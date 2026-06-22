@@ -1,3 +1,29 @@
+###  Публикация: 1359673   (964057) от 12.02.2020
+
+Слова из Слова v12.8 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слова из Слова - одна из лучших головоломок со словами для Android в замечательном бумажном стиле. Для прохождения вам доступны 96 уровней, также имеется мультиплеер, где вы можете помериться силами с друзьями или случайным противником. Правила игры просты и многим знакомы с детства. Вам дается некоторое слово, необходимо составить все возможные комбинации из имеющихся (   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 04.02.2020Разработчик: RedboxSoftПоддерживаемая ОС: Android. Зависит от устройства.Жанр: Словесные игрыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F12FD3859CBA395014239C10930558D9A10638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978376   (963299) от 23.01.2016
 
 Справочник лекарств и болезней v1.0 Ad-Free [Ru]
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963299.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959287.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Check Engine  v1.5.8.01 [Ru] - на русском языке
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959176.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958964.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954363.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Assistant Premium 3.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954144.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954069.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ IP Tools Premium v7.0.4 [Ru/Multi] - инструмент для анализа 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951380.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов фо
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947809.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947643.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Garmin: City Navigator Israel NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946501.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Swapper for ROOT 2.0.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945692.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ ElectroBuddy Pro 1.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945616.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ AntiVirus Android Premium 2.5.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945581.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Recorder 4 in 1 PRO 1.7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944268.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944224.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Bini СУПЕР АЗБУКА v2.6.9.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943626.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943618.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ SMD компоненты v1.7.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943560.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943415.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943265.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941115.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939706.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939571.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ caRRage 1.2 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939244.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ CaRRage — это увлекательный аркадный рейсинг н
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF5CB09559F41D497C10AE805CBE020643C6F4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363872   (939189) от 01.03.2020
-
-Stardew Valley v1.4.5.141 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stardew Valley – ролевая игра на андроид, где вы будете управлять фермой. Переезжайте жить в деревню и создайте там ферму своей мечты. Откройте для себя огромный мир где вы построите свою ферму и будете выращивать на ней овощи и фрукты. Превратите заросшее поле в плодородную землю, выращивайте домашних животных и ухаживайте за ними. Также в этой игре вы сможете завести (   Читать дальше...   )Релиз состоялся: 29 февраля 2020 г.Разработчик: Chucklefish LimitedПоддерживаемая ОС: Android 4.4+Жанр: RPGЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A188C7A572D6E3D266FF855DB8065F5A413F6C04
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,23 +1,23 @@
-###  Публикация: 1746096   (45294) от 29.08.2024
+###  Публикация: 1728813   (53953) от 08.06.2024
 
-В.Г. Беседина, И.А. Манухина | Professional IT English (2024) [PDF]
+Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пособие предназначено для углубленного изучения английского языка в сфере информационных технологий.
-Пособие состоит из 7 уроков, тематически охватывающих различные сферы использования современных информационных технологий. Каждый урок включает аутентичный профессионально-ориентированный текст, словарь с транскрипцией, упражнения для проверки понимания прочитанного, (   Читать дальше...   )Жанр: Учебное пособиеЯзык: Русский, английскийИздательство: Барнаул: Алтайский государственный технический университетФормат: PDFКачество: Изначально электронное (ebook)
+An essential teacher's companion to an innovative, uniquely visual English-language course, this guide helps English teachers--including those for whom English is not their native language--create clear, focused lesson plans, explain difficult concepts in a simple and concise way, and make language learning exciting, intuitive, and incredibly easy.
+English for Everyone (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B488AABDC2EBB68EAEB5001CB38FE0F057755AC3
+magnet:?xt=urn:btih:57A430A4BBA28A9CA39A4DA32DC17D0029ACFC6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749872   (43412) от 16.09.2024
+###  Публикация: 1728985   (53869) от 09.06.2024
 
-Антон Лета | Английский. 2000 самых нужных слов (2024) [PDF]
+Collins Dictionaries | English Visual Dictionary (2020) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я не лингвист и не учитель, но все же советую вам эту книгу, так как у меня были проблемы с английским в школе, в колледже он был для меня как японский, и когда захотел выучить английский, решил начать с нужных 2000 слов, а потом грамматику и дальше, и написал эту книгу, при помощи нее спокойно выучил эти слова (также предложил нескольким знакомым и они тоже легко (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: "Перо"Формат: PDFКачество: Изначально электронное (ebook)
+A photographic guide to 3000 key words and phrases in British English. This attractive pocket-sized book is a perfect English language travel companion and guide to life and culture in the UK.
+Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases. A helpful index allows you to find words quickly as you (   Читать дальше...   )Жанр: словари, учебное пособиеЯзык: английскийИздательство: CollinsФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B3470FABB4D2CD7FB213B3E4EA685EF302FCE82
+magnet:?xt=urn:btih:FEDEA84D49DF549B1F4A26BF6CAC21D1840660E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,134 +52,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750911   (42785) от 22.09.2024
+###  Публикация: 1729016   (53846) от 09.06.2024
 
-Д.Ю. Петров | Английский язык за 16 уроков. Продвинутый курс (2016) [DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42785.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложен продвинутый курс английского языка по методу Дмитрия Петрова, адаптированный для самостоятельных занятий.
-В каждом уроке - большое количество практических заданий, которые помогут сформировать навыки применения основных структур английского языка.
-Учебник является продолжением базового курса.Жанр: УчебникИздательство: Москва: Издательство Дмитрия ПетроваФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AED291A83B2D9D5123FC391BBBCA82CD2A928CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755451   (40346) от 15.10.2024
-
-Дмитрий Петров | Английский язык. 16 уроков. Базовый курс (2024) [PDF]
+Oxford University | Oxford Writing Tutor (2010) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это серия самоучителей от знаменитого полиглота и синхронного переводчика Дмитрия Петрова. Он уверен: чтобы заговорить на иностранном языке, совсем не обязательно посвящать его изучению десятилетия. Гораздо важнее освоить базовые алгоритмы, плюс — минимально необходимый для общения запас слов.
- И все это вполне возможно сделать за 16 уроков, что сам Дмитрий Петров (   Читать дальше...   )Жанр: Учебная литератураИздательство: БомбораФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573E4346BD525C91A559CCD1E6B7A2CC0359E2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760383   (36948) от 18.11.2024
-
-Аурика Ладонкина | Английский язык. Как это понимать? Истории, которые помогут эффективно изучать язык (2024) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произношение как у носителя, современные фразы в активном лексиконе, отточенная грамматика — не об этом ли мечтает каждый изучающий иностранный язык? Но как этого достичь? Опытный педагог и известный блогер Аурика @uchitel.govorit раскрывает секреты своей методики, построенной на интересе. Ее советами уже воспользовались более 125 тысяч подписчиков канала. Начните (   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C9554FEE155F3FFADA3DDC8E0C65D03A2C3985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763994   (35294) от 04.12.2024
-
-Макс Коншин | Fucking English. 1000+ слов и выражений из английского сленга [2 книги] (2024, 2025) [FB2, PDF, EPUB]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никаких табу – здесь ты найдешь всё, о чем предпочитали не говорить на уроках английского! Уличный сленг и цифровой андеграунд скрывают куда больше дичи, чем можно себе представить. В этой книге более 1000 слов и выражений, которыми щеголяют в самых опасных подворотнях и безднах интернета, дополненные стильными и остроумными иллюстрациями. И никаких скучных правил (   Читать дальше...   )Жанр: иностранные языки, пособие, сленгПеревод: АСТЯзык: русский, английскийИздательство: АСТФормат: FB2, PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7C494DDD6738437E02861D388049171547493E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767584   (33403) от 22.12.2024
-
-А.А. Логвина | Английский язык (2024) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие поможет быстро и эффективно подготовится к урокам, различным формам текущего и промежуточного контроля, а также к экзаменам. В книге в наглядной и доступной форме приводятся основные сведения за весь школьный курс английского языка.
+The Writing Tutor consists of a selection of skills pages with information on how to write different types of texts, including essays, CVs, letters, movie reports, etc. Each of the skills pages comes with an example, background how-to information and useful phrases that enable the students to express their ideas appropriately and following academic standards.
 
-В громоздких учебниках порой бывает сложно найти ответ на какой-то конкретный вопрос. А в данном издании представлена действительно (   Читать дальше...   )Жанр: Учебная литератураИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+«Репетитор (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27062BBA1AEB54C51FE67E626B1063A8F1A8A0D2
+magnet:?xt=urn:btih:B07073E7108D9A0C97DA7625C63CB2BA26447EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +80,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771957   (31626) от 08.01.2025
+###  Публикация: 1729219   (53740) от 10.06.2024
 
-Кристина Бьорн | Как говорить по-английски бегло вместе с English Spot (2025) [PDF, DJVU]
+Bruce Stirling | Pre-TOEFL Guide. Academic English Practice (2017) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Достигли небывалых высот в изучении английского языка, но до носителя все равно не дотягиваете? В таком случае эта книга очень удачно попала вам в руки. С ней вы успешно преодолеете последнюю ступеньку, улучшите разговорные навыки и сможете сойти за "своего", где бы вы ни оказались. Все, о чем вы боялись спросить или вообще не знали, все хитрости и приемы, (   Читать дальше...   )Жанр: Изучение иностранных языковИздательство: АСТФормат: PDF, DJVUКачество: Обработанный скан
+Preparing for TOEFL
+Do you plan to take TOEFL or IELTS but are not ready for the challenge? Do you need more practice? If you do, then this book is for you. Great for IELTS too! It is also for those who just want to practice their academic English. Whatever your purpose, this book will give you the foundation in academic English you need for TOEFL and IELTS success. (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B88A606016670FE449A43997F3751BAEC3B23B70
+magnet:?xt=urn:btih:1460D252D7EF4FC1BC52A32B0769F526191BAD2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +107,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772396   (31401) от 10.01.2025
+###  Публикация: 1729295   (53716) от 10.06.2024
 
-А.А. Кашнина | Точки и строчки. Арабский язык с нуля. Учебное пособие, практикум и прописи [2 книги] (2020, 2021) [PDF]
+U.O. Alday | Colloquial Spanish: The Complete Course for Beginners (2010) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебное пособие с аудиоприложением "Точки и строчки. Арабский язык с нуля " адресовано широкому кругу специалистов, изучающих арабский язык, а также студентам и всем, кто хотел бы овладеть навыками арабским языком и его письмом. Оно поможет в относительно короткий срок понять основы чтения и письма, а также элементы базовой грамматики. На листах прописей (   Читать дальше...   )Жанр: учебное пособиеИздательство: Квант МедиаФормат: PDFКачество: Необработанный скан
+Colloquial Spanish: The Complete Course for Beginners has been carefully developed by an experienced teacher to provide a step-by-step course to Spanish as it is written and spoken today.
+Combining a clear, practical and accessible style with a methodical and thorough treatment of the language, it equips learners with the essential skills needed to communicate confidently (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FDEA66DFEE30F7078ED6D403534F8482DE6F2BE
+magnet:?xt=urn:btih:EA9C8CC2066C19D493740E27E103A99217953C36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +134,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775402   (29735) от 26.01.2025
+###  Публикация: 1729537   (53685) от 11.06.2024
 
-Дж. Хокинс, Э. Делаханти, Ф. Макдональд | Толковый словарь английского языка Oxford (2008) [PDF, DJVU] [RU, EN]
+Л.В. Хведченя | Практический курс современного английского языка (Highlights) (2009) [PDF]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Словарь содержит 40 000 слов и выражений с подробной разработкой значений слов и примерами употребления в речи. Дано много полезной информации грамматического и лексического характера, много сведений из истории английского языка; знакомит словарь и с произношением трудных слов. Особое внимание уделено этимологии трудных слов, это углубляет знания изучающих английский (   Читать дальше...   )Жанр: словариЯзык: АнглийскийИздательство: Оксфорд Юниверсити Пресс, АСТ, АстрельФормат: PDF, DJVUКачество: Необработанный скан
+С 1999 года книга «Практический курс современного английского языка (Highlights)» переиздавалась 5 раз. Дата первого издания «Практический курс современного английского языка. Часть 1»: декабрь 1999 года, последнее, 5-е издание вышло в марте 2009 года.
+Настоящее пособие по английскому языку предназначено для студентов классических университетов (первый этап обучения). (   Читать дальше...   )Жанр: учебникИздательство: Вышэйшая школаФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC911D72461A9B6105B459033198110340AFC723
+magnet:?xt=urn:btih:4CCAA5861F59946B134FC5CE87F17C6EA814D05F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +161,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784222   (25271) от 09.03.2025
+###  Публикация: 1729576   (53667) от 11.06.2024
 
-Кирилл Шатилов | Умейте выражаться по-английски (2024) [PDF] [RU,EN]
+Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед вами далеко не исчерпывающий перечень почти 300 английских идиом. Автор в живой и доступной форме знакомит любознательного читателя с их значением, употреблением и происхождением, а заодно предлагает ряд синонимичных выражений. Книга рассчитана на широкий круг читателей, знакомых с английским языком хотя бы на уровне школьной программы.Жанр: ЯзыкознаниеИздательство: Издательские решения в системе RideroФормат: PDFКачество: Изначально электронное (ebook)
+Arabic Grammar in Context offers a unique and exciting approach to learning grammar. It presents grammar as a necessary and essential tool for understanding Arabic and for developing comprehension and production skills.
+Features include:
+authentic texts from a rich variety of sources, literary and non-literary, used as the starting point for the illustration and (   Читать дальше...   )Жанр: учебное пособиеЯзык: английский, арабскийИздательство: RoutledgeФормат: EPUB, MP3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:141A4EFC692523895E19BBB9D30405534CD021D7
+magnet:?xt=urn:btih:4A5A58CE53BAD8491EF632B9324CA5C501E79555
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +189,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785378   (24609) от 15.03.2025
+###  Публикация: 1729490   (53636) от 11.06.2024
 
-Светлана Варшавская | Учебник ненормативной лексики английского языка (2014) [PDF, DJVU] [RU, EN]
+Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53636.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник Ненормативной Лексики Английского Языка разработан Лингвистическим Университетом Светланы Варшавской, как дополнительное и общеобразовательное учебное пособие для всех, кто знает английский язык хотя бы на базовом разговорном уровне, но при этом есть стремление расширить свои знания. Это как раз будет тот вариант владения языком, когда «я английский не знаю, (   Читать дальше...   )Жанр: Языки. УчебникиИздательство: ООО «ЗУКЦ»Формат: PDF, DJVUКачество: Необработанный скан
+German Grammar in Context, 3rd Edition includes updated textual examples which provide the basis for an accessible and engaging approach to learning grammar.
+Using authentic texts from a variety of contemporary sources such as newspapers, magazines, poems, TV and film scripts, books or online sources, each chapter explores a key aspect of German grammar. Following (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7644E3889BA23D444664658A69FCCB353CA530F3
+magnet:?xt=urn:btih:C0B3B4EDB2977E4B118F89DF822C23238D81A968
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +216,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785631   (24462) от 16.03.2025
+###  Публикация: 1729709   (53522) от 12.06.2024
 
-Георгий Георгиевич Почепцов | Язык и юмор. Language and Humour (1974) [PDF, DJVU] [EN]
+Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге собрано более тысячи шуток на английском языке. Чтобы помочь читателю лучше понять языковую основу шуток, составитель предпослал сборнику теоретическую статью о природе языкового юмора и снабдил небольшой объяснительной статьей каждую часть сборника. Для удобства пользования книгой в конце ее даны тематический указатель и указатель слов и выражений. Книга (   Читать дальше...   )Жанр: Монография. Английский язык. Англоязычный юморЯзык: АнглийскийИздательство: Высшая школаФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
+Each chapter contains:
+Examples of typical mistakes.
+Examples of correct usage.
+Rules / explanations.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0B328BED42DFD4910C54C9131D9D540EE3BC7E7
+magnet:?xt=urn:btih:AC0124C77E3BF966E5B837BF12DDA5D08E4E3B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,106 +245,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785593   (24456) от 16.03.2025
+###  Публикация: 1729755   (53517) от 12.06.2024
 
-Я.М. Вовшин, И.И. Панова | Английский с улыбкой. The Fun of Handling Tricky Things in English (2001) [PDF] [RU, EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит увлекательный юмористический языковой материал для правильного восприятия сложных и неоднозначных построений английской речи. Пособие в занимательной форме развивает навыки творческого мышления, обеспечивает самоконтроль при решении лингвистических задач и тестов. Построенное по принципу интеллектуальной игры, пособие окажет неоценимую помощь всем, (   Читать дальше...   )Жанр: Справочное пособие. Английский язык. Англоязычный юморЯзык: АнглийскийИздательство: ПарадоксФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DC5B43B410E5087803EFB8C3C79D275FBABBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785768   (24380) от 17.03.2025
-
-А.Д. Дешевицына | Говорить по-китайски без акцента: учебное пособие по фонетике китайского языка (2022) [PDF]
+Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ключ к формированию свободной речи на китайском языке - это изучение естественных для носителей языка процессов: артикуляции, паузации, ударения и интонации. Эта книга станет вашим проводником в мир китайской фонетики и фонологии, поможет научиться думать и говорить по-китайски. Материал пособия изложен простым языком и рассчитан на постепенное изучение по мере прохождения (   Читать дальше...   )Жанр: Учебники и учебные пособия. Китайский языкИздательство: Издательский дом ВКНФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19056C0B8457D934EE184393F11FDCED93F69C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785757   (24354) от 17.03.2025
-
-В.А. Хомяков | Введение в изучение слэнга - основного компонента английского языка (1971) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет первую в отечественной англистике попытку дать подробный анализ компонентов просторечия как нормы второго уровня. Автор излагает историю вопроса и рассматривает в плане социолингвистики коллоквиализмы, сленг, кэнт, жаргоны и вульгаризмы. Автор ставил две основные задачи. Во-первых, дать читателю необходимые сведения из истории вопроса; (   Читать дальше...   )Жанр: МонографияИздательство: Вологда: Областная типографияФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D2D796A7740CA15FBC862BD7C6A154DEA525DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786957   (23769) от 23.03.2025
-
-Альберт Шубаев | Английский в деталях. Изучаем тонкости языка с @VeryEnglish! (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучаете английский язык? Не упустите шанс познакомиться с книгой лингвиста Альберта Шубаева, оформленной в стиле газеты!
+TOEFL iBT recycles opinion-based and fact-based arguments for testing purposes from start to finish. If you want a high score, you need essential argument scoring strategies. Learn how to maximize scoring by rhetorically analyzing all reading, listening, speaking and writing tasks.
 
-Внутри вас ждет:
-1. 35 глав на самые актуальные темы: от тонкостей грамматики до полезных лайфхаков.(   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+TOEFL iBT от начала до конца использует аргументы, основанные на мнениях и фактах, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Nova PressФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5428A2062A7C35ED9B5579B8486A1CFB2FE29997
+magnet:?xt=urn:btih:715D24F212003636D31D0ED782DFED5315683BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,25 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787529   (23457) от 26.03.2025
+###  Публикация: 1729947   (53447) от 13.06.2024
 
-Мария Столь | Топики по английскому языку. ОГЭ на "отлично"! (2025) [PDF]
+Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Топики по английскому языку. ОГЭ на "отлично!"" — это универсальное пособие для подготовки к ОГЭ. В книге представлены 18 тщательно отобранных тем уровня B1–B2, соответствующих кодификатору и структуре экзамена. Каждая тема сопровождается полезной лексикой, примерами и заданиями для тренировки навыков чтения, устной речи, грамматики и письма. (   Читать дальше...   )Жанр: Изучение иностранных языковИздательство: БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+Learn over 500 words and move up a level with our course book English Unlocked! Over 100 pages of quality learning. Your complete, self-study English learning pack.
+Inside...
+How to learn English with us.
+How to access Hot English.(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Hot English PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3D7C6EDD229358D4D546B4FBDA0AB343F7055AD
+magnet:?xt=urn:btih:DD9F0BF1F97143063A5B97A475F661C62A8E18DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,25 +302,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787517   (23454) от 26.03.2025
+###  Публикация: 1729889   (53429) от 13.06.2024
 
-А.А. Ковалев, Г.Ш. Шарбатов | Учебник арабского языка (2004) [PDF]
+Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (2016) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Переработанное и расширенное издание "Учебника арабского языка" (1-е изд.— 1960г.) рассчитано на двухгодичный курс обучения в вузах, а также может служить самоучителем. В настоящем издании устаревшие материалы заменены современными, тематически актуальными учебными текстами и оригинальными литературными произведениями; представлена современная общественно-политическая, (   Читать дальше...   )Жанр: Арабский языкИздательство: "Восточная литература" РАНФормат: PDFКачество: Обработанный скан
+The Complete Guide to Japanese Kanji: (JLPT All Levels) Remembering and Understanding the 2136 Standard Characters includes: Clear, large-sized entries, All of the General Use Joyo Kanji Characters, Japanese readings and English meanings, stroke-count, stroke order, usage examples, mnemonic hints for easy memorization.
+This book is essential to anyone who is planning (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Tuttle PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8902CACA523047E5FB39371C2B58C3CDABDE506
+magnet:?xt=urn:btih:694FCFBB3F2F0059BD04B7C066AC096A08FDA040
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,25 +329,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787742   (23323) от 27.03.2025
+###  Публикация: 1729994   (53425) от 13.06.2024
 
-В.С. Сегаль | Начальный курс арабского языка (1962) [PDF]
+Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um curso para estrangeiros. (2 издание) (2006) [PDF] [PT]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начальный курс арабского языка предназначен для лиц, начинающих практическое изучение современного арабского литературного языка как в учебном заведении, так и самостоятельно. К концу работы над курсом учащийся усваивает основы арабского произношения, приобретает навыки чтения и письма в арабской графике, овладевает активным лексическим запасом в несколько сот слов (   Читать дальше...   )Жанр: Арабский языкИздательство: Издательство Института Международных ОтношенийФормат: PDFКачество: Обработанный скан
+Falar, ler, escrever português - Um curso para estrangeiros. Livro do aluno (com a nova ortografia). Este livro, através de método estrutural-comunicativo, leva o aluno totalmente principiante a entender, falar, ler e escrever português com fluência e segurança, em nível de linguagem coloquial correta. É destinado a adultos (   Читать дальше...   )Жанр: учебное пособиеЯзык: португальскийИздательство: Editora Pedagogica E UniversitariaФормат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB822D2450FAA3BAF4BC6E185331874C729C0622
+magnet:?xt=urn:btih:BE3C6A64105D054650E9AAF5BE824E889D690137
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,25 +355,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787747   (23298) от 27.03.2025
+###  Публикация: 1730121   (53344) от 14.06.2024
 
-Н.А. Майбуров | Краткий русско-арабский разговорник (сирийский диалект) (1973) [PDF]
+Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящий "Краткий русско-арабский разговорник (сирийский диалект)" предназначается для лиц, получивших элементарные знания по сирийскому диалекту арабского языка.Жанр: Арабский языкИздательство: МоскваФормат: PDFКачество: Обработанный скан
+"Language Files: materials for an Introduction to Language and Linguistics" has become one of the most widely adopted, consulted, and authoritative introductory textbooks to linguistics ever written. The scope of the text makes it suitable for use in a wide range of courses, while its unique organization into student-friendly, self-contained sections allows (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Ohio State University PressФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A52CD9AA202D9920DD29B1B38BFF0803ACF7BC2D
+magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,27 +381,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788288   (23101) от 29.03.2025
+###  Публикация: 1730102   (53300) от 14.06.2024
 
-М. эль-Массарини, В.С. Сегаль | Арабско-русский словарь сирийского диалекта (1978) [PDF]
+Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Арабско-русский словарь сирийского диалекта
-(Эль-Массарани Мохамед, Сегаль Владимир Соломонович )
- включает около 12 тыс. слов сирийского диалекта. В словаре даны распространенные словосочетания и широко употребительные выражения, специфичные для сирийского диалекта. Слова и фразеология даны в арабской графике и латинской транскрипции. Заглавные слова расположены (   Читать дальше...   )Жанр: Арабский языкИздательство: Русский языкФормат: PDFКачество: Обработанный скан
+The stories, events, and teachings contained in the scriptures of the Old and New Testaments of the Bible, from Genesis to Revelations explained with accessible text and bold graphics.
+The Bible Book explores the ideas and beliefs key to the teachings of the most widely printed religious book of all time. This highly visual book highlights more than 100 of the most (   Читать дальше...   )Жанр: познавательная религиозная  литератураЯзык: английскийИздательство: D.K. PublishingФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A154CDAA8B14E28730857002EFD7BDDABAA6C518
+magnet:?xt=urn:btih:CA330B06249EBF53C11E5DF42092E21AAD2B148E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,25 +408,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787533   (23074) от 30.03.2025
+###  Публикация: 1730336   (53231) от 15.06.2024
 
-Александр Бебрис | Английский с нуля. Выучить может каждый! Практический самоучитель (2025) [PDF]
+Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга поможет вам выучить английский шаг за шагом, независимо от начального уровня. Автор — Александр Бебрис, сертифицированный преподаватель с квалификацией CELTA Кембриджского Университета и создатель популярного канала "АНГЛИЙСКИЙ ЯЗЫК ПО ПЛЕЙЛИСТАМ", которому доверяют миллионы учеников. Уникальная методика делает обучение простым и практичным: вы (   Читать дальше...   )Жанр: Английский языкИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to-use English phrases to help you navigate your way through social and business situations. There are phrases for talking with friends, offering opinions, collaborating with co-workers, addressing misunderstandings, and more. The book also includes common slang expressions you can use (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7C1F63488F24C3938BD1D64A94595B606CF0650
+magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,26 +434,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790154   (22202) от 07.04.2025
+###  Публикация: 1730355   (53196) от 15.06.2024
 
-В.С. Модестов | Английские пословицы и поговорки и их русские соответствия (2021) [PDF, DOCX] [RU, EN]
+Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth edition (2019) [PDF] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пособие включает более 3000 английских пословиц, поговорок и фразеологизмов и их русские соответствия или переводы. Для упрощения поиска в конце книги дан алфавитный список русских пословиц, которые снабжены номером, соответствующим нумерации в основном корпусе книги.
-Пособие рассчитано на студентов и школьников, изучающих английский язык, преподавателей английского (   Читать дальше...   )Жанр: Английский язык. Пословицы и поговоркиИздательство: ПросвещениеФормат: PDF, DOCXКачество: Изначально электронное (ebook)
+The concise clarity of this book makes it a handy reference for anyone interested in good writing-as well as a quick and ideal guide for freshman composition courses, writing courses across the disciplines, and as a supporting text in courses that require clear and direct writing. Style: The Basics covers the elemental principles of writing that will help students (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5715BEAC80664A40AF8608EE694748396BB888B
+magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +460,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790545   (21889) от 10.04.2025
+###  Публикация: 1730316   (53194) от 15.06.2024
 
-Кирилл Шатилов | Как сказать по-британски. Британский сленг в миниатюрах (2022) [PDF, FB2, EPUB] [RU, EN]
+Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (2018) [EPUB] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-И смех, и грех — так можно коротко охарактеризовать британский сленг. Вместе с тем, в нём таится много интересного из истории и культуры, попавших на Британские острова народов. Перед вами одна из редких отечественных книг, рассматривающая британский сленг с разных сторон и в сочных примерах. Предназначена для широкого круга читателей, знакомых с английским языком. (   Читать дальше...   )Жанр: Языкознание. Английский язык.Издательство: Издательские решения в системе RideroФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+Comprehensive subject review for every section of the exam
+Valuable practice with complex reading comprehension passages and higher-level math problems
+7 full-length practice tests (4 in the book, 3 online) with detailed answer explanations
+Drills for each test section—Reading, Writing and Language, and Math(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Princeton ReviewФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ABFFA9E109EB3DE1C887C808638DE288206663B
+magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,26 +489,212 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793276   (20549) от 23.04.2025
+###  Публикация: 1730568   (53105) от 16.06.2024
 
-Александр Переседов | Читай Как Native. Гайд по чтению английских слов (2024) [PDF, EPUB] [RU, EN]
+Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (2021) [EPUB] [EN]
 
 >>Научная и техническая литература
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга является настоящим сокровищем для всех, кто стремится овладеть английским языком. Объединяя в себе учебник, гид, справочник и тренировочный материал, она предлагает уникальный подход к изучению. В ней собраны всесторонние правила чтения английских слов, фраз и предложений, что делает её незаменимым помощником на вашем языке.
-С помощью этого учебного пособия (   Читать дальше...   )Жанр: Учебная литература. Английский языкИздательство: Самиздат, LitResФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+French Conversation is the go-to guide for expanding conversational fluency. Organized into 11 units, it presents realistic everyday dialogues, followed by helpful instruction on correct syntax and word usage, as well as lots of conversation-ready phrases.
+Inside... you'll learn how to Engage in dialogues that illustrate practical conversations. Expand your French (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7214444CB0B1650F909DD5BDD570C1850AD78FF5
+magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730512   (53100) от 16.06.2024
+
+Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth edition (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legal English is a professional language. This book is designed for law students who have followed their law studies in a language other than English. Textbooks on English law are too detailed for those who want to understand English legal terminology rather than English law itself. Legal dictionaries are useful but, as the words are ordered alphabetically, terms (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Eleven International PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730899   (52888) от 18.06.2024
+
+Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Language Acquisition Research (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52888.jpg" />
+</div>
+
+
+###  Подробнее
+
+The ideal text for all students studying language teaching methods, language teacher education, English teaching methodology and second language acquisition modules in advanced undergraduate and postgraduate/graduate TESOL and Applied Linguistics courses.
+Routledge Introductions to Applied Linguistics is a series of introductory level textbooks covering the core (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730959   (52875) от 18.06.2024
+
+Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52875.jpg" />
+</div>
+
+
+###  Подробнее
+
+In this book we have compiled 20 easy-to-read, compelling and fun stories that will allow you to expand your vocabulary and give you the tools to improve your grasp of the wonderful Spanish tongue.
+How Spanish Short Stories for Beginners works:
+Each story will involve an important lesson of the tools in the Spanish language (Verbs, Adjectives, Past Tense, Giving (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Lingo MasteryФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731141   (52805) от 19.06.2024
+
+Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52805.jpg" />
+</div>
+
+
+###  Подробнее
+
+A thematic organization of more than 10,000 fully illustrated terms labeled in both Polish and English, and comprehensive two-way indexes put the perfect translation at your fingertips. Additional feature panels include abstract nouns and verbs, as well as useful phrases that you can use in conversation once you are feeling more confident. Polish-English Bilingual (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731176   (52803) от 19.06.2024
+
+Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52803.jpg" />
+</div>
+
+
+###  Подробнее
+
+A photographic guide to the key words and phrases in Thai. This attractive pocket-sized book is a perfect travel companion and provides a practical guide to Thailand and Thai language and culture. Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Thai index help you to find words (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731194   (52801) от 19.06.2024
+
+Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Korean index help you to find words quickly as you learn. 3,000 essential words and phrases for modern life in Korea are at your fingertips with topics covering food and drink, home life, work and school, shopping, sport and leisure, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731345   (52708) от 20.06.2024
+
+Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A combined reference book and workbook covering over 3,000 entries of essential words and phrases to expand your English vocabulary.
+Designed around the most up-to-date theories of language acquisition, English for Everyone: English Vocabulary Builder includes all the words and phrases English learners need to know. Question words, feelings, hairstyles, technology, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
 ```
 
 https://mybot314.ru/tekegram_catalog/

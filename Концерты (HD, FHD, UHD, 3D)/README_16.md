@@ -1,30 +1,3 @@
-###  Публикация: 1130295   (714046) от 02.05.2017
-
-Филипп Киркоров - Шоу "Я" (2017) HDTV [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Филипп Киркоров: "Идея шоу "Я" уникальна. Это не просто концерт. Вместе с Франко Драгоне мы приготовили настоящий спектакль. На время представления зритель почувствует себя героем фантастической истории, путешественником в мир собственных фантазий и грез".
-Впервые идея такого шоу родилась у Филиппа Киркорова десять лет назад во время гастролей (   Читать дальше...   )Жанр: PopСубтитры: нетПродолжительность: 02:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2D28A69858E82976F8D19054185FAFF02B8924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024834   (713698) от 10.06.2016
 
 Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
@@ -33,7 +6,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713698.jpg" />
 </div>
 
 
@@ -62,7 +35,7 @@ AC/DC: Live at Donington (1991) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_713549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713549.jpg" />
 </div>
 
 
@@ -91,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712657.jpg" />
 </div>
 
 
@@ -121,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712592.jpg" />
 </div>
 
 
@@ -147,7 +120,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711946.jpg" />
 </div>
 
 
@@ -176,7 +149,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709437.jpg" />
 </div>
 
 
@@ -205,7 +178,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709325.jpg" />
 </div>
 
 
@@ -234,7 +207,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709322.jpg" />
 </div>
 
 
@@ -260,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708974.jpg" />
 </div>
 
 
@@ -289,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705325.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705168.jpg" />
 </div>
 
 
@@ -349,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702569.jpg" />
 </div>
 
 
@@ -375,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700702.jpg" />
 </div>
 
 
@@ -404,7 +377,7 @@ Nightwish - End Of An Era (2005) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_700610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700610.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699419.jpg" />
 </div>
 
 
@@ -462,7 +435,7 @@ ZZ Top - Stagecoach - California's Country Music Festival (2015) HDTV [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698849.jpg" />
 </div>
 
 
@@ -491,7 +464,7 @@ Lemonade / Beyonce: Lemonade (2016) HDTV [H.264/1080i] [EN/RU Sub]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696093.jpg" />
 </div>
 
 
@@ -520,7 +493,7 @@ Axel Rudi Pell - Magic Moments/25th Anniversary Special Show (2014) BDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695444.jpg" />
 </div>
 
 
@@ -550,7 +523,7 @@ Status Quo - Aquostic! Live At The Roundhouse (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691750.jpg" />
 </div>
 
 
@@ -579,7 +552,7 @@ Dio - Holy Diver Live (2006) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691679.jpg" />
 </div>
 
 
@@ -608,7 +581,7 @@ Quiet Riot - One Night in Milan (2019) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690047.jpg" />
 </div>
 
 
@@ -637,7 +610,7 @@ Uriah Heep - Live At Koko (2014)  Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689485.jpg" />
 </div>
 
 
@@ -666,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689389.jpg" />
 </div>
 
 
@@ -693,7 +666,7 @@ VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688575.jpg" />
 </div>
 
 
@@ -722,7 +695,7 @@ Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687415.jpg" />
 </div>
 
 
@@ -736,6 +709,32 @@ Uriah Heep выпускают концертный альбом Live At Koko, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506462   (687404) от 06.06.2012
+
+30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живой концерт группы 30 seconds to Mars 5 июня 2010 года в Германии в рамках фестиваля Rock am Ring.Жанр: Alternative RockПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

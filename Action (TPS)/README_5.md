@@ -1,3 +1,133 @@
+###  Публикация: 1450923   (1028581) от 28.02.2021
+
+Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack xatab [Ultimate Sith Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальная версия фантастического боевика Star Wars: The Force Unleashed с тремя новыми эпизодами. Абсолютным воплощением зла во вселенной «Звездных войн» всегда был Дарт Вейдер, однако на сцену выходит новая персона. Тайный ученик темного лорда еще молод, но по силе вряд ли уступает опытным воинам. Империя поручает ему ответственное задание - уничтожить всех джедаев (   Читать дальше...   )Тип издания: RepackРазработчик: LucasArts Entertainment CompanyЖанр: Экшн, От третьего лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EA609A969D536991BF55C2B8AC4F04BC916A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453990   (1026475) от 13.03.2021
+
+Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) Repack SpaceX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pascal's Wager – это ролевой экшен в мире темного фэнтези, который заставит вас попотеть. Примерьте на себя роль курьеров и раскройте тайну, сокрытую за Мрачным туманом. Столетия назад солнце утонуло в море, из-за чего Мрачный туман в одночасье покрыл всю землю. В то же время стали появляться гиганты.Тип издания: RepackРазработчик: TipsWorksЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F759AB108EDB932B245AC56DE0EBF6749D31F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454098   (1026462) от 13.03.2021
+
+Pascal's Wager: Definitive Edition (2021) [Ru/Multi] (1.1.1.1000) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pascal's Wager – это ролевой экшен в мире темного фэнтези, который заставит вас попотеть. Примерьте на себя роль курьеров и раскройте тайну, сокрытую за Мрачным туманом. Столетия назад солнце утонуло в море, из-за чего Мрачный туман в одночасье покрыл всю землю. В то же время стали появляться гиганты.Тип издания: LicenseРазработчик: TipsWorksЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B397255360BA58BD04E393ECFEEABA11B4328C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454344   (1026281) от 14.03.2021
+
+Prototype (2009) [Ru] (1.0.0.1) Repack Other s
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — Прототип, Алекс Мерсер, человек без памяти с меняющимися способностями, ищущий путь к сердцу заговора, который создал вас; и заставляющий ответственных за это платить по счетам.Тип издания: RepackРазработчик: Radical EntertainmentЖанр: Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5296371BDD2F929BCB8459C28A7179CB993C9A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455191   (1025702) от 18.03.2021
+
+Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack Other s
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте зомби, творите беспредел и жрите мозги. 1959 год. Город Панчбоул — столица прогресса и образец прекрасной жизни. Однако вам предстоит доказать, что закон и порядок — ничто по сравнению с целеустремленным зомби. Парень Мэгги вернулся, а это значит только одно — Панчбоул больше никогда не будет прежним!Тип издания: RepackРазработчик: AspyrЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4BBA6FED9F459F199467020BB1EC76506FD73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456019   (1025152) от 21.03.2021
 
 Persona 5 Strikers (2021) [Multi] (1.0/dlc) Repack xatab
@@ -6,7 +136,7 @@ Persona 5 Strikers (2021) [Multi] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025152.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Batman: Arkham City / Бэтмен: Аркхем Сити (2012) [Ru/En] (1.1/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025147.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Vampyr (2018) [Ru/Multi] (1.1.7/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023528.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Kingdom Hearts Melody of Memory (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023379.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Kingdom Hearts HD 1.5+2.5 ReMIX (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023368.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Kingdom Hearts HD 2.8 Final Chapter Prologue (2021) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023363.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Vampyr (2018) [Ru/Multi] (1.1.7/dlc) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022869.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ DreadOut 2 (2020) [Ru/Multi] (1.1.7/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021058.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ LEFT ALIVE (2019) [Multi] (1.0) License EMPRESS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014734.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ LEFT ALIVE (2019) [Multi] (1.03/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014578.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014100.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013738.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Tunguska: The Visitation (2021) [En] (1.0) License Fairlight
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012318.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Ninja Gaiden Σ (Sigma) (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011755.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Ninja Gaiden Σ (Sigma) 2 (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011750.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Ninja Gaiden 3: Razor's Edge (2021) [Multi] (1.0) License CODEX [Master Collecti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011732.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Scarlet Nexus (2021) [Ru/Multi] (1.02) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008192.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Shattered - Tale of the Forgotten King (2021) [Ru/Multi] (1.3.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006213.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.5.1/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005953.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Gods Will Fall (2021) [Ru/Multi] (35/dlc) License GOG [Valiant Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005547.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Gene Rain: Wind Tower (2020) [Multi] (1.0/dlc) Repack Mr_Weegley
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003079.jpg" />
 </div>
 
 
@@ -537,138 +667,6 @@ Gene Rain:Wind Tower – это научно-фантастический шут
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9574B90DD6D4535412AB9115707882A95238488B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351065   (1002631) от 08.01.2020
-
-Alienautics (2019) [En] (1.0) Repack Mr_Weegley
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alienautics – тактический научно-фантастический шутер с видом от третьего лица, в котором вам придется отправиться в самое сердце базы инопланетной расы и сразиться с многочисленными противниками… События игры начинают происходить в тот самый момент, когда космический корабль «Alienautics» был атакован инопланетной расой. Единственным выжившим оказался Агент 33, (   Читать дальше...   )Тип издания: RepackРазработчик: Imran ArafatЖанр: Action, 3D, RPG, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFF20647E8E7543B9D7AB8575C87F01DF253FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488034   (1002440) от 09.08.2021
-
-Star Wars Battlefront II (2017) [Ru/Multi] (Build 5433720) OriginRip =nemos= [Celebration Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в бесконечное приключение в Battlefront, самой популярной серии HD-видеоигр по «Звёздным Войнам™» в истории. Участвуйте в сетевых боях в приквелах, оригинальной трилогии и новой эпохе или станьте новой героиней в напряженной сюжетной кампании, события которой затронут тридцать лет истории вселенной. Изменяйте и улучшайте героев, звездные истребители или (   Читать дальше...   )Тип издания: OriginRipРазработчик: DICEЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A134C50CA6D3E87077DA35D2D1F8E40C427ABC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352167   (1001203) от 13.01.2020
-
-REFUGE (2020) [Ru/Multi] (1.0) License HOODLUM
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра представляет из себя рогалик от третьего лица, сбалансированный элементами слешера и медленного боя с перекатами. В игре, игроку предстоит исследовать открытый мир и уничтожать боссов, тем самым зарабатывая особую валюту, которая сохраняется навсегда и позволяет открывать новые предметы, которые после открытия начнут выпадать в новых забегах, что даёт большую (   Читать дальше...   )Тип издания: LicenseРазработчик: TlySoftЖанр: ActionЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DBEF40D243FD74DEE3F42756142DB539A1A464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216649   (1000723) от 15.01.2020
-
-Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/upd5a/dlc) Repack Other s [Director’s Cut Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вито Скалетта начал завоевывать себе репутацию на улицах Эмпайр Бэй являясь «тем, кто точно выполнит свою работу». Вместе со своим другом Джо он упорно выполняет различные поручения, чтобы завоевать доверие Мафии, быстро поднимаясь по «семейной» лестнице, все сильнее нарушая закон, все сильнее поднимая свой статус и все сильнее приближая момент, когда ему придется (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Czech, Feral Interactive (Mac)Жанр: Action (Shooter), Racing (Cars), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ED563C93D6556E4DED4F7543702D508DC803E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597008   (1000575) от 01.01.2013
-
-Kane & Lynch Dilogy [Ru/En] (RePack) 2007 - 2010 | R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грязные улочки Шанхая – отличное местечко, чтобы забыть о кровавом угаре. Десять баксов, девочка под боком, и ты король мира. Но когда приезжает старый друг, все это ни черта не значит. И страсть как охота посидеть, вспомнить былые деньки – но на горизонте новые проблемы. А вот решать их придется по старинке. Ведь когда подонки зажимают в угол, так и тянет достать дробовик и устроить всем вокруг кровавую бойню!
-
-Парочка самых жестоких и безбашенных убийц за всю историю видеоигр возвращается! Кейн и Линч расскажут новую историю со взрывами, ураганной стрельбой и густыми потоками крови. Невероятный реализм жестоких событий перенесет вас в каменные джунгли. Здесь опасней, чем в любом гетто, но эти зловещие герои – матерые хищники. Своя шкура дороже, чем жизни местных заправил. Лучше отправить на тот свет целый город, чем позволить кому-то избежать возмездия. Когда они встретятся, мир вокруг рухнет. Готовьтесь – Кейн и Линч уже близко. И они готовы убивать. (   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D210B26108B563B85EBCBD384C4BB07E73C64A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

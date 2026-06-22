@@ -1,3 +1,29 @@
+###  Публикация: 1257680   (342922) от 27.10.2018
+
+BBC: Гении современного мира / Genius Of The Modern World (2016) WEB-DL [H.264/1080p-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342922.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 век - эпоха бурных потрясений, время перемен в промышленности, науке и политике. Но самое главное - в мировоззрении. Это была пора смелых и рискованных идей, ознаменовавших возникновение нового мира. У его истоков стояли великие умы: Карл Маркс, Фридрих Ницше и Зигмунд Фрейд. Они жили в эпоху, когда рушились старые реалии, низвергались существующие режимы, а наука (   Читать дальше...   )Производство: Великобритания, ВВС Open University Partnership, Religion & Ethics Production SalfordЖанр: Документальный, история, исследованияРежиссер: Роб ГоулингПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: английскиеПродолжительность: 3 x ~00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F80E7F5FAD7EFEB6C92D80A7A2D0DF4006E24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419298   (341638) от 27.10.2020
 
 Тайные города / An Art Lovers' Guide (2017) DVB (сезон 1, серии 5 из 6)
@@ -6,7 +32,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341638.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341002.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340511.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336378.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336375.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330096.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326193.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325485.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ BBC: Уникальные способности животных / Super Senses
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323255.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318176.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316168.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315053.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308553.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308131.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) UHD BDRemux [H.265/216
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306767.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303259.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300972.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300886.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ BBC. Вивисекция. Как устроены насекомые / Insect D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297576.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297335.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295459.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292504.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291977.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ BBC. Российская империя: Династия Романовых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284205.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ BBC: Забытые британские рабовладельцы / Britain's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283892.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ BBC: Забытые британские рабовладельцы / Britain's 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71F9B0E7338AFC9787CFEEBE710C8AD356ABEF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344724   (281671) от 11.12.2015
-
-BBC: Частная жизнь шедевров. "Свобода на баррикадах" Эжена Делакруа / The Private Life of a Masterpiece. "Liberty on the barricades "by Eugene Delacroix (2004) TVRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный цикл фильмов, посвященный величайшим произведениям искусства, созданным выдающимися скульпторами и живописцами. Программа расскажет о том, как создавались эти шедевры и какое влияние они оказывали и продолжают оказывать на все человечество до сих пор.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2C56382B343F4C7F4253F73448A42B364F1114
 ```
 
 https://mybot314.ru/tekegram_catalog/

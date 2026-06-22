@@ -1,3 +1,55 @@
+###  Публикация: 1121118   (800643) от 02.04.2017
+
+И. П.  Вороницын | Декабристы и религия (1928) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800643.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе рассказано об отношении декабристов к религии. Дана общая характеристика развития философской и общественной мысли в России первой четверти 19 века. Проанализировано отношение к религии в конституционных проектах, составленных декабристами. Рассказано о жизни декабристов - верующих и атеистов - на каторге.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB437B02B5206CC7D557BAD0986DCCB919611D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120948   (800600) от 02.04.2017
+
+Преподобный Макарий Оптинский | Предостережение читающим духовные отеческие книги. Об Иисусовой молитве (2011) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее «Предостережение» преподобного Макария Оптинского обращено к желающим проходить умную Иисусову молитву, но не имеющим к тому искусных наставников. Однако в равной степени творение старца Макария может быть адресовано и всем христианам — как совет не искать в себе высоких духовных дарований и таких же состояний, а смиренно шествовать путем исполнения Христовых (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B8058BF2DB4145AFFACCBA8C6A7501E48917D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120964   (800556) от 02.04.2017
 
 Александр Дворкин | Как защитить себя и своих близких от тоталитарных сект (2006) [DJVU]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800556.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800469.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800443.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800248.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800193.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800105.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799619.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799460.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798830.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798720.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798473.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798292.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798130.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797948.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797647.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797642.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797497.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797487.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797457.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796867.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796659.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796378.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795990.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795977.jpg" />
 </div>
 
 
@@ -631,62 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACE9E46C248FCFC47B960861B7D039B91D2C601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385959   (795923) от 27.05.2020
-
-Архимандрит Наум (Байбородин) | О помощи Пресвятой Богородицы в Великой Отечественной войне: отрывки из проповедей и произведений (2020) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пресвятая Богородица сохраняет всех призывающих Её на жизненном пути от бед и неведения, от всяких скорбей, подаёт добродетели, помогает стяжать благодать, готовит вечное спасение.
-
-Сборник архимандрита Наума (Байбородина; 1927–2017) «О помощи Пресвятой Богородицы в Великой Отечественной войне» составлен из проповедей и произведений лаврского старца и содержит исторические (   Читать дальше...   )Жанр: Православие. Военная историяФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D116ACCD7F65E1EAA6C2C59C2006C4708B96ED83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012105   (795681) от 29.04.2016
-
-Гордей Щеглов | История и чудеса Васьковской иконы Божией Матери (2013) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено истории одной из белорусских местночтимых чудотворных икон Божией Матери, в настоящее время считающейся утраченной. В книге описаны история явления и последующая судьба иконы, а также многочисленные случаи проявления ее благодатной силы — поразительные факты чудесных исцелений.
-
-Издание рассчитано на широкий круг читателей, интересующихся христианскими (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25059B684723B1A59073E365D8E49FCF8A73B04
 ```
 
 https://mybot314.ru/tekegram_catalog/

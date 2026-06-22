@@ -1,3 +1,81 @@
+###  Публикация: 1230789   (611929) от 14.06.2018
+
+Кролик Питер / Peter Rabbit (2018) BDRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о приключениях маленького и непоседливого крольчонка по имени Питер, который хочет пробраться в огород к грозному фермеру и вдоволь полакомиться там фруктами и овощами.Производство: Австралия, США / Sony Pictures Entertainment (SPE)Жанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Уилл ГлакАктеры: Джеймс Корден, Файсаль Баззи, Донал Глисон, Сиа, Колин Муди, Сэм Нилл, Марго Робби, Элизабет Дебики, Дэйзи Ридли, Роуз БирнПеревод: Дублированный (Лицензия EUR)Субтитры: Русские (forced, full), Украинские, Английские (full, SDH, SDH Colored)Продолжительность: 01:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B8BE9BDD1D3A58C92CAD15E2C89531C4A3C1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296405   (611741) от 17.04.2019
+
+Робо-Пес / Robo-Dog (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвероногий друг Тайлера трагически погибает, и его отец-изобретатель создает взамен говорящего робопса, оснащенного супербатареей и суперспособностями. Пока робопес осваивается в нашем мире и перенимает повадки настоящих собак, шеф отца Тайлера мистер Уиллис решает заиметь такую же супербатарею, и за робопсом начинается охота.Производство: США, Consolidated Media Holdings, In The Dark Entertainment, Prism PicturesЖанр: Фантастика, семейныйРежиссер: Джейсон МерфиПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2766172D9C6AB798A452528397324230DFF013F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434237   (609770) от 26.07.2016
+
+Полет навигатора / Flight of the Navigator (1986) [720p] BDRip
+
+>>След.
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609770.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1978 году 12-летний мальчик не вернулся домой. Он считался пропавшим без вести в течение 8 лет. Но однажды он вернулся. Радости родных не было предела, но что случилось с ребенком? За эти годы он совсем не вырос, оставшись таким, как и много лет назад. Сам он не может ничего объяснить. Мальчик помнит только, что заблудился в лесу, потом упал, а когда очнулся, то (   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Рэндэл КлайзерАктеры: Джои Крамер, Пол Рубенс, Вероника Картрайт, Клифф Де Янг, Сара Джессика Паркер, Мэтт Адлер, Ховард Хессеман, Роберт Смолл, Элби УайтакерПродолжительность: 01:25:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038295   (608367) от 27.07.2016
 
 Братья ветра / Brothers of the Wind (2015) BDRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608367.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608190.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608056.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606607.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606430.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606202.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605684.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604890.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602007.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599865.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599194.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595973.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593896.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593825.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593636.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593632.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593460.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593321.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593217.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592549.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592259.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592145.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591847.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58F6748953FF503D86D932ECA168293EE4925468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915452   (591802) от 06.07.2015
-
-Том Сойер / Tom Sawyer (1973) HDTV [H.264/1080i]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский детский фильм 1973 года. Музыкальная интерпретация одноимённого произведения Марка ТвенаПроизводство: США, Reader's Digest, Apjac InternationalЖанр: Мьюзикл, Приключения, СемейныйРежиссер: Дон ТейлорАктеры: Джонни Уайтакер, Селест Холм, Уоррен Оутс, Джефф Ист, Джоди Фостер, Люсиль Бенсон, Генри Джонс, Ной Кин, Даб Тейлор, Ричард ИстхэмПеревод: Двуголосый закадровыйПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF4BABCECBD38A1CD0A81F9F1D83B3392353060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915967   (591746) от 06.07.2015
-
-Виплала / Wiplala (2014) HDRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что не говори, но семью Бломов нельзя считать успешной. Ведь на плечи отца семейства после смерти супруги легла вся ответственность за двух несовершеннолетних детей. Да и должность учителя в местной школе – это не гарант финансового благополучия. Но самое главное – это то, что в этой семье никто не унывает, даже самый младший Йоханнес – самый впечатлительный и безропотный. (   Читать дальше...   )Производство: НидерландыЖанр: ПриключенияРежиссер: Тим ОлихоекАктеры: Питер Пол Мюллер, Геза Вайз, Кие Кетелаар, Питер Ван Ден Бегин, Кэс Джэнсен, Ганс Кестинг, Мамун Эленуссис, Рене Гротхоф, Морис Нэйтан Вирт, Ферди СтофмеельПеревод: Одноголосый закадровый, любительскийЯзык субтитров: РусскийПродолжительность: 01:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC91A77784CCB3571C11FDF5004939DDEB0C204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550972   (591204) от 13.05.2022
-
-Поллианна / Pollyanna (1960) BDRip [H.264/720p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по роману Элеоноры Х. Портер "Поллианна" 1913 года. После смерти родителей девочку Поллианну забрала к себе её тётя, известная своим суровым нравом и безраздельно властвующая в маленьком американском городке. Попав в мир строгих правил и запретов, оказавшись одна в чужом городе, в чужом доме, среди чужих людей, Поллианна не отчаивается. Ей помогает (   Читать дальше...   )Производство: США, Walt Disney ProductionsЖанр: драма, комедия, семейныйРежиссер: Дэвид СвифтВ ролях: Хейли Миллс, Джейн Уаймэн, Ричард Иган, Карл Молден, Нэнси Олсон, Адольф Менжу, Дональд Крисп, Агнес Мурхед, Кевин Коркоран, Джеймс ДруриПеревод: любительский многоголосыйСубтитры: русские, английскиеПродолжительность: 02:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B166F1EC3E0E61DDE42BB10E8DF15DB849B1F1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

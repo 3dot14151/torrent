@@ -1,3 +1,32 @@
+###  Публикация: 1310417   (543610) от 28.06.2019
+
+Волейбол. Лига наций 2019. Женщины. 3-й Этап. Группа 12. Бельгия — Сербия (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543610.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 июня 2019, четверг. 21:15 МСК
+II Женский турнир Волейбольной Лиги наций 2019 года. Кортрейк (Бельгия)
+Предварительный раунд. 3-й Этап. Группа 12.
+Бельгия — Сербия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD78F43D11266CCA98A3C3773BD30AC201B9CECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310843   (543528) от 28.06.2019
 
 NASCAR-2019. 16-й Этап. Сонома. Гонка / Monster Energy NASCAR Cup Series 2019. Toyota_Save Mart 350. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +35,7 @@ NASCAR-2019. 16-й Этап. Сонома. Гонка / Monster Energy NASCAR Cu
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543528.jpg" />
 </div>
 
 
@@ -27,6 +56,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365255   (543222) от 20.07.2011
+
+Что от нас осталось / Ce qu'il reste de nous (2004) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543222.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Я знала об истории и борьбе 200 тысяч тибетских беженцев, но сопротивление 6 миллионов тибетцев, живущих в Тибете, сопротивление, которое помогает им выживать в условиях насилия – которое принимает форму то мелких повседневных столкновений, то чудовищных злодеяний – оставалось для меня тайной. И вот у меня родилась идея – привезти в Тибет послание Далай-ламы. Положить конец его 50-летнему отсутствию, и своими глазами увидеть – что от нас осталось…"Жанр: ДокументальныйРежиссер: Франсуа ПревостПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: ФранцузскийПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1A283696F470656355632D2E9757CA40BA2542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924921   (543165) от 05.08.2015
 
 90 минут плюс. Эфир 02.08.2015 (2015) HDTVRip
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543165.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542963.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542901.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542900.jpg" />
 </div>
 
 
@@ -148,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542887.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542853.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542542.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542487.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542486.jpg" />
 </div>
 
 
@@ -284,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541888.jpg" />
 </div>
 
 
@@ -313,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541802.jpg" />
 </div>
 
 
@@ -342,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541801.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541799.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541793.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541790.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541787.jpg" />
 </div>
 
 
@@ -487,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541416.jpg" />
 </div>
 
 
@@ -506,6 +561,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365502   (541377) от 21.07.2011
+
+Живое море-Живая Кубань (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_541377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о подводном мире и обитателях Чёрного моря, которые показанны с точки зрения 11-летней девочки. Ведь для большинства россиян Чёрное море - это символ детства. Медузы, мидии, редкие рыбы, затонувшие корабли и новорожденный младенец, проплывающий рядом с дельфинами.Жанр: ДокументальныйРежиссер: Валерий ТимощенкоТелекомпания: Краснодарская киностудияВ ролях: Валерий Кушнир, Ирина КушнирПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6BE7B64F9AA1EE03B66DCE2706D1560466A1D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 364937   (541098) от 21.07.2011
 
 Затерянные племена. Жизнь с племенем Мек (Западное Папуа). Связующий мост [6 серия] / World's Lost Tribes - New Adventures of Mark and Olly. Bridging the Divide (2007) IPTVRip
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541098.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541093.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541058.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541048.jpg" />
 </div>
 
 
@@ -624,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540873.jpg" />
 </div>
 
 
@@ -638,91 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:505ACA438570294970F5AF5CCA021027E530660C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366090   (540852) от 21.07.2011
-
-Затерянные племена. Жизнь с племенем Мек (Западное Папуа). Чье колдовство сильней [7 серия] / World's Lost Tribes - New Adventures of Mark and Olly. The Battle of Beliefs (2007) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540852.jpg" />
-</div>
-
-
-###  Подробнее
-
-07. Чье колдовство сильней / The Battle of Beliefs
-Марк и Олли посещают врагов племени. Они обнаруживают деньги и знакомятся с религиозными верованиями. Однако, вернувшись, они узнают, что одна девушка напустила на вождя порчу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C6C16BC3A5A0C28A29DE284E5094BB2B6C26EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049619   (540772) от 07.09.2016
-
-Хоккей. КХЛ 2016-2017. Торпедо (Нижний Новгород) - Сочи (04.09.2016) IPTVRip [H.264] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540772.jpg" />
-</div>
-
-
-###  Подробнее
-
-04 сентября 2016, воскресенье. 17:00 МСК
-
-Стадион: Нагорный (Нижний Новгород, Россия) , 5 350 зрителей (96 % при вместимости 5 600)
-Главный судья: Александр Сергеев (Жуковский, Россия)(   Читать дальше...   )Телекомпания: КХЛ ТВЖанр: СпортЯзык озвучки: Русский (Владимир Гучек, Сергей Борисов)Продолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BA3A91923B99C34384811B42C922C29A3431EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050239   (540771) от 07.09.2016
-
-Футбол. Товарищеский матч. Россия - Гана (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540771.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 сентября 2016, вторник. 19:00 МСК
-Товарищеские матчи 1
-
-Стадион: Локомотив (Москва, Россия) , вместимость: 28800(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Дмитрий Шнякин, Владислав Батурин)Продолжительность: 02:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFB9B5A46DC06F456AB5EDBEE6DE68ADC339912
 ```
 
 https://mybot314.ru/tekegram_catalog/

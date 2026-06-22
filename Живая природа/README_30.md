@@ -1,3 +1,107 @@
+###  Публикация: 1300570   (341011) от 10.10.2019
+
+Лучшие друзья собаки / Dog's Best Friend (2019) SATRip (сезон 2, серии 1-12 из 12)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно, вы видели фотографии, на которых изображена дружба собак с черепахами, птицами и даже кошками. Рассказ о реальных историях порой неожиданной, но искренней дружбы между разными животными по всему миру. Вы узнаете, как собаки дружат с дельфинами, уживаются с овцами и даже орангутангами. Необыкновенная преданность делает собак не только лучшими друзьями человека, (   Читать дальше...   )Производство: Канада, Ontario Creates, Viasat Nature, Animal PlanetЖанр: Документальный, истории о животныхРежиссер: Сара МариноПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CED2CFEFC67D0066951A547A741639209A3CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578841   (340970) от 25.09.2022
+
+Масаи-Мара / Maasai Mara (2020) WEBRip [H.264/720p] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масаи-Мара – заповедник на юго-западе Кении, в округе Нарок. Является северным продолжением национального парка Серенгети. Заповедник назван в честь племени масаи – традиционного населения региона и реки Мара, которая разделяет его. Масаи-Мара знаменит своими редкими животными и ежегодной миграцией гну, проходящей в сентябре и октябре. В парке Кении Масаи-Мара живут (   Читать дальше...   )Производство: Франция, Sintaxis FilmsЖанр: документальный, природа, флора, фаунаРежиссер: Адам Скотт КеннедиПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFB1FE6D9008B6FC652C325BE7C8C2EE08026C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912230   (340236) от 18.11.2016
+
+Viasat Nature: Австралия: путешествие сквозь эволюцию / Australia - A Journey Through Evolution (2014) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340236.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате отделения Австралии от основного континента миллионы лет назад, остров оказался изолирован океаном. Благодаря такому особому расположению материка и его отдаленности от других земель, а также большому разнообразию погодных условий в Австралии развивалась своя собственная, совершенно особенная экосистема, эволюционировавшая на протяжении многих миллиардов (   Читать дальше...   )Телекомпания: Explora FilmsЖанр: Документальный, познавательныйРежиссер: Laura Casamayor del RinconПеревод: Одноголосый закадровый, профессиональный, переведено и озвучено на студии "SDI Media" перевод Татьяны Вишневской, текст читает Юрий БольшаковПродолжительность: ~ 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A976091439BE67B7041EF014F51C40971D8082D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954730   (339967) от 08.11.2015
+
+Друг дельфинов / Friends of dolphins (2003) TVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харди Джонс задался целью, которая когда-то считалась невыполнимой, поплавать в открытом море с дикими дельфинами, как член стаи и друг. Но то, что начиналось, как попытка общения, закончилась в компании по охране дельфинов от людской жадности. Вот уже двадцать пять лет он предан своему делу, став защитником дельфинов...Производство: СШАТелекомпания: RamblerЖанр: ДокументальныйРежиссер: Харди ДжонсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9198E61CBF38BF251E3D48F1959D5E19644361BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180804   (337772) от 05.11.2017
 
 Море жизни / The Sea Of Life (2015) SATRip
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337772.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335429.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335091.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334942.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334466.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333821.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333755.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333674.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332918.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332808.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332488.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332469.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332365.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331999.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331185.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330719.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329819.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328811.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328722.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324475.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323403.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322778.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAB6299140D61C6B7809B0E736FBA5328CF5F252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259328   (321392) от 03.11.2018
-
-Разговор с животными / Talk to the Animals (2014) HDTVRip [H.264/1080p-LQ] (Серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люси изучает дружбу среди животных. Она узнает, что лошади могут сохранять мысленный образ друга, а свист дельфинов — это их подпись; у каждого дельфина есть свое уникальное имя...Производство: Великобритания, США, Make-Believe EntertainmentЖанр: Документальный, природа, исследованиеРежиссер: Чарли ПикарниПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 2x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FE49B7F93D8E3E978F74F3315B3224F8D6F03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259364   (321265) от 03.11.2018
-
-Эволюция в действии / Evolution on the Move (2014) HDTVRip (серии 1-4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о поразительных особенностях поведения животных. В Саудовской Аравии, в Канаде, в Сенегале и в России ученые, обнаружили виды, которые проходят через удивительный эволюционный скачок.Производство: Франция, Arte France & Les Films en VracЖанр: Документальный, природа, эволюцияРежиссер: Жан-Франко БартодПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2358E262FC70F17277B8ED83C0CDDFCD72C5D190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582567   (320777) от 10.10.2022
-
-Дикий юг / Wild South (2019) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых живописных, необыкновенных и красочных уголков планеты – западное побережье Южной Африки. Место, где встречаются два океана – теплый Индийский и холодный Атлантический. Удивительное сочетание бескрайней пустыни, высоких гор, водопадов и каньонов. Поистине космические пейзажи. Потрясающие редкие животные. Всё это в увлекательном фильме "Дикий юг".Производство: Турция, Happy Film Entertainment, Yerli FilmЖанр: документальный, природа, флора, фаунаРежиссер: Бурак ДогансойсалПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6270F9725850B86E23A3D52B2531745D1E883C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421283   (319629) от 04.11.2020
-
-Дикая территория / Неизведанные горизонты / Undiscovered Vistas (2018) UHDTVRip [H.264/1080p] (сезон 1, серии 1-3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319629.jpg" />
-</div>
-
-
-###  Подробнее
-
-По всему миру находится множество малоизвестных, захватывающих дух природных условий. Познакомьтесь с этими областями выдающейся природной красоты, их дикой природой и уникальными историческими силами, которые их формируют.
-imdbПроизводство: США / Blue Ant Media, Canada Media FundЖанр: Документальный, Природа, Флора, ФаунаПеревод: Одноголосый профессиональныйПродолжительность: 3 х ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67537C256729318991833580A4DA26F111D6D1B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

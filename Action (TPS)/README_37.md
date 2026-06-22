@@ -1,3 +1,159 @@
+###  Публикация: 1641078   (247450) от 21.06.2023
+
+Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247450.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Aliens: Dark Descent вам предстоит взять под командование отряд опытных колониальных морпехов, чтобы остановить распространение жутких ксеноморфов на луне Лета. Управляйте своими солдатами в реальном времени, ведя их в бой с небезызвестными ксеноморфами, вышедшими из подчинения оперативниками алчной корпорации «Вейланд-Ютани» и ордой ужасающих существ, прежде (   Читать дальше...   )Тип издания: RepackРазработчик: Tindalos InteractiveЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7265DF008529B4235FDFE54F555F2A00AFC7F4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570839   (247105) от 08.07.2023
+
+Thymesia (2022) [Ru/Multi] (21.24723) License GOG [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thymesia - это жестокий и динамичный ролевой экшн с тщательно продуманной системой болезнетворного оружия. В роли таинственного Корвуса вам предстоит выживать в королевстве, где свирепствует смерть. Выслеживайте врагов, овладейте силой чумы и докопайтесь до правды в своих собственных воспоминаниях. Для некогда процветающего королевства Гермес настали темные времена. (   Читать дальше...   )Тип издания: LicenseРазработчик: OverBorder StudioЖанр: Экшны, Приключение, ФэнтeзиЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B561C1E599F8DA0E99A624A3A47C7C121EDD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833188   (246249) от 01.11.2025
+
+Resident Evil 0 / biohazard 0 HD Remaster (2016) [Multi] (1.0/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil  рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных телевизоров. Приготовьтесь раскрыть (   Читать дальше...   )Тип издания: LicenseРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E255919F798606A775E0D6ED29924FACEFCCD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553314   (233127) от 25.05.2022
+
+Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игроку предстоит стать Сэмом Фишером, оперативником Третьего эшелона, спецподразделения Национального агентства безопасности. Третий эшелон состоит из множества несвязанных между собой ячеек. Он напрямую зависит от главных разведывательных агентств США, но правительство Америки никогда не признает факт его существования. Если одна из ячеек «эшелона» будет рассекречена (   Читать дальше...   )Тип издания: LicenseРазработчик: UbisoftЖанр: Action, StealthЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A27F11EA19BCCE33D6CA21383DEE3EE3656844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555044   (231513) от 02.06.2022
+
+Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что стало бы с миром, если бы Советский Союз победил в Холодной Войне? Один из вариантов драматического развития событий предлагает игра Freedom Fighters. Америку, готовую пасть под натиском советских войск, могут спасти только рядовые граждане, объединенные волей лидера. Чувствуете себя таким лидером? Тогда проявите свои командирские качества: изобретательность, (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: Шутер, Экшн, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42B1E9443F0791EBC79B180053F8D452BD143E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832926   (230578) от 31.10.2025
+
+Prince of Persia: The Forgotten Sands / Принц Персии: Забытые Пески (2010) [Ru/Multi] (Build 19335) Repack Yaroslav98
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много песка утекло со времени нашего первого знакомства с Принцем Персии, и вот он вернулся. На этот раз он расскажет нам историю о давно забытом прошлом, почти утерянном в круговороте времени. После получения невероятной силы - возможности управлять Песками Времени - Принц отправился в королевство своего брата Малика, но там встретил лишь смерть и разрушение. Чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A316DA037EE9870984E7009AE8A607776725629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424047   (229945) от 15.11.2020
 
 Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) License GOG [Director’s Cut]
@@ -6,7 +162,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) License GOG [Director’s 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229945.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228367.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228210.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Inversion (2012) [Ru] (1.0.1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226744.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Yakuza 0 (2018) [En/Ja] (1.0) License CPY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225556.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Fear the Dark Unknown (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220471.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ ArcRunner (2023) [Ru/Multi] (1.1.0.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220014.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Dark Void (2010) [Ru/En] (1.0) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218514.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.1.90663/dlc) License CODEX [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216053.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Oddworld Stranger's Wrath HD (2010) [Ru/Multi] (1.5) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215417.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ LEMURIA (2022) [Ru/Multi] (1.2.5/dlc) License DOGE
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214969.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Mafia II (2) (2010) [Ru/En] (1.0/dlc) Lossless Repack R.G. Catalyst [Enhanced Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214849.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Valakas Story (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213928.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Blades of Time (2012) [Ru/Multi] (1.0.0/dlc) Repack Other s [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213902.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Alien Breed: Impact (2010) [Ru/Multi] (126) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212878.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Alien Breed 2: Assault (2010) [Ru/Multi] (118.6) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212877.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Alien Breed 3: Descent (2010) [Ru/Multi] (5.11) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212875.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Di
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212424.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Deer Avenger / Олень-мститель (1.0/2.0/3.0/4.0) (1998—2001) [En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211293.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211176.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:200670039482D6F49EF97CD314622E4CD49E8599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567685   (211161) от 04.08.2022
-
-Drunken Fist 2: Zombie Hangover (2022) [Ru/Multi] (1.0) License TiNYiSO
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Drunken Fist 2: Zombie Hangover с ее кровищем и потерями конечностей, изображенными в беззаботном низкополигональном стиле, представляет собой причудливый взгляд на жанр «ужас выживания», в котором физика «тряпичной куклы» приводит к действиям, которые ни один трезвый игрок не воспринял бы всерьез. Пришло время осушить как можно больше бухла, найти жрачку, которая (   Читать дальше...   )Тип издания: LicenseРазработчик: DEKLAZONЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC5278F060EA35AFC689D38E8A94086CB7D2603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586605   (204692) от 27.10.2022
-
-El Matador (2006) [Ru/Multi] (1.1) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204692.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жаркую зелень джунглей Южной Америки, на улицы ее городов и деревень пришли новые хозяева. Они не знают страха. Им не ведома жалость. Эти люди называют себя la Valedora и все они одержимы одним желанием - создать самый могучий наркокартель, истинную империю, способную запустить ядовитые щупальца в самые отдаленные уголки мира.Тип издания: LicenseРазработчик: Plastic Reality TechnologiesЖанр: Экшны, От третьего лицаЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56F1C56B251BE9D20ED89538612461BB3333028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830059   (202395) от 26.10.2025
-
-Prototype 2 (2012) [Ru] (Build 19788008/dlc) Repack Yaroslav98 [Radnet Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prototype 2 продолжение бестселлера с открытым миром, разработанного студией Radical Entertainment в 2009 году. Сиквел не менее жесток, чем первая часть, и в нем будет продолжен рассказ о превращении человека в абсолютное оружие.Тип издания: RepackРазработчик: Radical EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BD6099FC5EE312BE8BDB13925DD6043AD61C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829224   (202237) от 25.10.2025
-
-Tomb Raider (2013) [Ru/Multi] (Build 9573671/dlc) Repack Other s [GOTY Edition / Game of the Year Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomb Raider рассказывает напряженную и захватывающую историю о том, как Ларе Крофт, робкой юной девушке, пришлось столкнуться с враждебной средой и научиться выживать там, где другие погибали. Имея в своем распоряжении только чутье и инстинкты, Лара должна выйти за пределы человеческой выносливости, раскрыть темные тайны забытого острова, на который ее забросила (   Читать дальше...   )Тип издания: RepackРазработчик: Crystal Dynamics, Feral Interactive, Feral InteractiveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33479F5120A7AE17B800867914BA447EB5D19F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523451   (201980) от 27.08.2023
-
-Tunguska: The Visitation (2021) [Ru/Multi] (1.71-2/dlc) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tunguska: The Visitation — это трёхмерный шутер с видом сверху с элементами выживания, такими как: еда, медикаменты, энергия, усиление характеристик, опасная среда и инвентарь. Механика выживания предполагает минимум рутинной работы и неудобств для игрока, но поощряет стратегическое планирование перед каждым боестолкновением. Вдохновлённая «Пикником на обочине» Стругацких (   Читать дальше...   )Тип издания: RepackРазработчик: Rotorist WorkshopЖанр: Adventure (Top-Down), Action (Shooter), 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCD512EFFB254FD6FA83272BE19601B6CC00A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656539   (201807) от 31.08.2023
-
-Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.0) Scene Rune
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daymare: 1994 Sandcastle - это сюжетный хоррор от третьего лица, приквел к полюбившейся всем игре Daymare: 1998. Играйте за специального агента Далилу Рейес, бывшего правительственного шпиона на службе и приготовьтесь попасть в самое таинственное место в истории. Но будьте начеку, ведь в лабиринте коридоров научно-исследовательского центра вас ожидает нечто ужасное (   Читать дальше...   )Тип издания: SceneРазработчик: Invader StudiosЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFAD05D63D7B5DAD730FF90E3D367D31D4F6BB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1207842   (780354) от 19.02.2018
+
+Wake me up! Умный Будильник v5.0.5 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wake me up! - это постоянно улучшаемый умный будильник с расширенными функциями в стиле Material Design. Он полностью совместим с Android 6 Marshmallow, Android 7 Nougat, Doze и DirectBoot. Даже в режиме Doze будильники срабатывают правильно и вовремя.Тип издания: Пиратка (разблокирована)Релиз состоялся: 01.11.2017Разработчик: FiveZПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DCBB1DBFCB0AC53E6F602DDD743D43E562C6B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209266   (779482) от 25.02.2018
 
 Скороговорун v1.0 AdFree [Ru]
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779482.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779421.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777803.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ VideoMix v2.7.7 Ad-Free [Ru/En] - просмотр видео онлайн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777687.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774382.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Strive Intervals v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772951.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ SPB TV Russia v1.9.5 AdFree [Ru] - онлайн ТВ каналы, фильмы 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772767.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Essential Anatomy 3 v1.1.3 [En] - справочник по анатомии ч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772763.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ NRG Player Full 2.0.3 [Ru] - Аудио плеер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770882.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Global Equalizer & Bass Booster Pro v0.03 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770570.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769008.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768999.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ DevCheck Hardware and System Info Pro 2.61 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768864.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768854.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ FullReader Premium 4.2.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768848.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768492.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768488.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768356.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Language Translator v1.5 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767550.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ RealVisor / Детектор движения v5apr2017 Full [Ru/En] - Виде�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767522.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ TikTok v16.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767478.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767451.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767443.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767150.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766200.jpg" />
 </div>
 
 
@@ -665,35 +691,6 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF649ACB2E91D00B09F0702EF3CA72E2B15CF397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521299   (766007) от 01.01.2022
-
-Резьбы и калькуляторы v3.3.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое и быстрое приложение с помощью которого вы можете:
-- Производить расчеты в специальных калькуляторах
-- Узнавать параметры резьбы в дюймах или миллиметрах
-- Все резьбы и калькуляторы снабжены высококачественными графиками, которые можно увеличиватьТип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 27 октября 2021 г.Разработчик: Artem KhПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A64AC95053391CDC45587D969B691333B9A8C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

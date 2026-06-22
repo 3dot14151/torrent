@@ -6,7 +6,7 @@ Browser Care 4.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741115.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DjVu Reader FS 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740507.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ TableEdit Pro 1.3.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740186.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ PDF to Pages Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738808.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ PDF to Numbers Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738805.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ PDF Converter Master 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738804.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Compress PDF 2.0.0 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738802.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ PDF Converter OCR 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738785.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ PDF to EPUB Converter 6.2.1 fix [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738782.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ PDF to Word OCR 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738780.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ PDF to Excel Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738773.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ PDF to Word Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738388.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ iMuscle 2 v3.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738207.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ SnippetsLab 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738162.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ PopDo 2021.2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737836.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Twitterrific 5 v5.4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737830.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ iBarcoder 3.12.11 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737810.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Bill Express 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737408.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Project Office Pro 9.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736915.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Navicat Premium 16.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736398.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ RSS Button for Safari 1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735399.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Storyspace 3 v3.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735396.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VoodooPad 6 v6.0.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734977.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mitch for Twitch 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734313.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Deliver 2.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734026.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Bookends 13.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732147.jpg" />
 </div>
 
 

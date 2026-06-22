@@ -1,3 +1,270 @@
+###  Публикация: 1323778   (429377) от 07.09.2019
+
+Godzilla (2015) [PS3] [EUR] 4.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король чудовищ, Годзилла, впервые объявился в 1954 году. В результате долгих исследований ученым удалось обуздать энергию монстра, “Энергию G”, неиссякаемый запас которой мог послужить во благо человечества. 60 лет спустя, когда от памяти о жутком монстре остались лишь детские страшилки, Годзилла объявился снова. По злой иронии, именно Энергия G, источник благополучия (   Читать дальше...   )Тип издания: LicenseРазработчик: Natsume AtariЖанр: Action, 3rd PersonЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86966D50090E63BF2CBE2866899BD09A36DB322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323380   (429376) от 07.09.2019
+
+Masquerade: The Baubles of Doom (2016) [PS3] [EUR] 4.21 [Repack] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Masquerade предлагает окунуться в фантастический мир Королевства, полный опасностей и приключений и сразиться в легендарной битве за волшебные шары друидов– самые могучие артефакты на земле, ибо однажды было сказано, что тому, кто сумеет ими завладеть, суждено стать властелином мира.
+Вам предстоит объединить свои усилия с дерзким балагуром Джаксом и его прелестной (   Читать дальше...   )Тип издания: RepackРазработчик: Big Ant StudiosЖанр: Action, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF621D87CBE2FED91008CBED4F32AD4EEF3C9CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323201   (429358) от 07.09.2019
+
+Deadfall Adventures: Heart of Atlantis (2014) [PS3] [EUR] 4.50 [PSN] [Ru]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadfall Adventures – приключенческий FPS, действия которого разворачиваются в 1938 году. Игрокам предстоит выступить в роли путешественника Джеймса Ли Квотермейна, сопровождающего агента США, Дженнифер Гудвин, в египетский храм на поиски древнего артефакта «Сердце Атлантиды». Но не только американцы положили глаз на артефакт – немецкие оккультисты из Аненербе также (   Читать дальше...   )Тип издания: PSNРазработчик: The Farm 51Жанр: Action, Adventure, Shooter, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AF749C5EC1D51C2DA639A8A109EE80155B036F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323955   (429241) от 07.09.2019
+
+Disney-Pixar Up (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взрослая история, рассказанная в мультфильме- так можно охарактеризовать блистательную картину «Вверх» от компании Disney и студии Pixar. Удивительная, захватывающая, сказочная история пожилого человека, на склоне лет решившего воплотить мечту всей жизни, трогает за живое и детей, и их родителей- каждое поколение находит в ней что-то свое. Благодаря игре Up (Вверх) (   Читать дальше...   )Тип издания: LicenseРазработчик: Heavy IronЖанр: Adventure, 3D PlatformerЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721C4E8B1DF39899D9BE30E4900A36B46E6EBDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829798   (428097) от 11.10.2014
+
+Pure [PS3] [EUR] [En] [2.41] [Cobra ODE / E3 ODE PRO ISO] (2008)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драйв, адреналин, зрелищность! Вы неравнодушны к экстремальным видам спорта? Тогда добро пожаловать во вселенную Pure! Здесь правят бал сумасшедшие скорости, безумные трюки и желание быть лучшим!
+
+Создайте свой уникальный квадроцикл (доступно более 6500 модификаций вашего транспортного средства) и покоряйте на нем бездорожье! Вашими соперниками на пути к победе будут (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Black Rock StudioЖанр: Arcade racingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD25282479F2E9AA6C5C73F9FE0821401E140FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829690   (427828) от 11.10.2014
+
+Mirror’s Edge [PS3] [EUR] [Ru] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас зовут Фейт (в переводе с английского - Вера), и вы - профессиональный Бегун. Ваша стихия - сверкающие на солнце крыши небоскребов, куда правительственные агенты забредают нечасто. Однако нынешняя миссия кардинально отличается от рядового заказа. Вашу сестру обвинили в преступлении, которого она не совершала, а на вас объявили охоту. Теперь спрятаться не удастся (   Читать дальше...   )Тип издания: ЛицензияРазработчик: DICEЖанр: Action / Action-adventure / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D0275EBF0F65F5784E2E7A83CAAF2583F75B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 830369   (427826) от 11.10.2014
+
+Need For Speed: Hot Pursuit (Limited Edition) [PS3] [EUR] [En] [3.50] [Cobra ODE / E3 ODE PRO ISO] (2010)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for speed: Hot Pursuit это встреча двух мастодонтов аркадных автосимуляторов. Разработчика Criterion Games и издателя Electronic Arts. Студию Criterion Games знает любой обладатель консолей по захватывающей серии консольных автосимуляторов "Burnout".
+
+Улучшенное и изменённое продолжение серии вновь предстанет на суд публике. Накалённая до кипения атмосфера (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Criterion GamesЖанр: Arcade / Racing(Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD3741DDBFF178544E484560CF0CAEA04BAD7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064145   (427496) от 19.10.2016
+
+Saw: dilogy (2009 - 2010) [Xbox360] [RegionFree] 8507 - 8955 [FreeBoot] [Unofficial] [Ru/En]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saw 2 является продолжением ужастика Saw: The Video Game, сюжет которой охватывает события, происходящие между второй и третьей частью фильма. Во второй части главным героем выступит Майкл (Michael), сын детектива Таппа (Tapp), который займется расследованием смерти своего отца.
+В Saw 2 вас ждут еще более зверские и суровые испытания, новые загадки, новые ужасные (   Читать дальше...   )Тип издания: UnofficialРазработчик: Zombie StudiosЖанр: Action (Survival horror), 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A86B45AA52B5B0724682ED14DDDE3F3BE0BCB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064522   (425541) от 20.10.2016
+
+Smart as... / Умник?!  (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы протестировать ваши интеллектуальные способности, «Умник?!» в полной мере использует все возможности портативной консоли PS Vita, включая сенсорное управление, камеры и технологию дополненной реальности. Проверьте, насколько вы сильны в арифметике, умеете ли логически мыслить, наблюдательны ли вы. Чем больше наберете баллов в каждой категории, тем больше новых (   Читать дальше...   )Тип издания: LicenseРазработчик: XDEVЖанр: Puzzle, LogicЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4585321630751E78103FC7D244816D28CB422368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946854   (424564) от 14.10.2015
+
+Saint Seiya: Soldiers' Soul (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En/Jp]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saint Seiya: Soldiers' Soul - это долгожданное возвращение Saint Seiya! В этой игре представлены персонажи из всей серии, включая 12 Gold Saints и их God Cloths из недавно вышедшего аниме 'Soul of Gold'.
+Saint Seiya: Soldiers' Soul - это использование новейших технологий для создания зрелищной графики, динамичного игрового процесса, напряженных боев и множества других (   Читать дальше...   )Тип издания: UnofficialРазработчик: DimpsЖанр: FightingЯзык озвучки: ЯпонскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567691FEE3AF854C1DD836A0B7B95BDA5FADDAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 830695   (423498) от 13.10.2014
 
 WWE All Stars [PS3] [EUR] [En] [3.56] [Cobra ODE / E3 ODE PRO ISO] (2011)
@@ -6,7 +273,7 @@ WWE All Stars [PS3] [EUR] [En] [3.56] [Cobra ODE / E3 ODE PRO ISO] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423498.jpg" />
 </div>
 
 
@@ -32,7 +299,7 @@ UFC Undisputed 3 [PS3] [EUR] [En] [4.01] [Cobra ODE / E3 ODE PRO ISO] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423318.jpg" />
 </div>
 
 
@@ -60,7 +327,7 @@ Assassin's Creed II Game Of The Year Edition [PS3] [RUS] [PAL] [3.55 Kmeaw] (200
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423209.jpg" />
 </div>
 
 
@@ -86,7 +353,7 @@ Call of Duty: Black Ops III (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422302.jpg" />
 </div>
 
 
@@ -112,7 +379,7 @@ WRC 5 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En/Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422125.jpg" />
 </div>
 
 
@@ -138,7 +405,7 @@ Street Fighter X Tekken [PS3] [EUR] [Ru/En] [3.73] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421002.jpg" />
 </div>
 
 
@@ -164,7 +431,7 @@ Ratchet & Clank: All 4 One [PS3] [RUS] [PAL] [3.55 Kmeaw] [Rip] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420770.jpg" />
 </div>
 
 
@@ -194,7 +461,7 @@ The Evil Within + DLC + TU (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419785.jpg" />
 </div>
 
 
@@ -220,7 +487,7 @@ Mafia II / Мафия 2 + DLC (2010) [Xbox360] [RegionFree] [FreeBoot] [License]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419630.jpg" />
 </div>
 
 
@@ -246,7 +513,7 @@ FIFA 2020 (2019) [PS4] [EUR] 7.55 [HEN] [License / 1.25] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418334.jpg" />
 </div>
 
 
@@ -272,7 +539,7 @@ Castle of Illusion Starring Mickey Mouse HD (2013) [Xbox360] [RegionFree] [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417671.jpg" />
 </div>
 
 
@@ -300,7 +567,7 @@ Homefront: Ultimate Edition (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417669.jpg" />
 </div>
 
 
@@ -326,7 +593,7 @@ Alien Rage (2013) [PS3] [EUR] 4.40 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416053.jpg" />
 </div>
 
 
@@ -352,7 +619,7 @@ Mass Effect: Andromeda (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.10] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415374.jpg" />
 </div>
 
 
@@ -379,7 +646,7 @@ Cadence of Hyrule (2019) [Switch] [USA] 10.1.0 [NSP] [Unofficial / 1.4.0 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415299.jpg" />
 </div>
 
 
@@ -405,7 +672,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414130.jpg" />
 </div>
 
 
@@ -418,270 +685,6 @@ Pro Evolution Soccer 2018 - это очередная часть серии фу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C079B520098B2EA2D11500063351A5C3BF98F8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166624   (414115) от 21.09.2017
-
-Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 4.80 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Evolution Soccer 2018 - это очередная часть серии футбольных симуляторов с улучшенным геймплеем, графикой и новые способы игры. От предыдущей части серии PES'18 отличается дизайном и графикой, новыми многопользовательскими режимами и наличием командной сетевой игры.
-
-Многие элементы, такие как "случайный подбор матча", изменены и доработаны с учетом (   Читать дальше...   )Тип издания: LicenseРазработчик: PES ProductionsЖанр: SportЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2D1C5E3B8E18CD1BA3732085325F6EA587CE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831995   (414112) от 17.10.2014
-
-Prototype 2 [PS3] [EUR] [Ru] [4.11] [Cobra ODE / E3 ODE PRO ISO] (2012)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prototype 2 - сиквел экшена Prototype, разработанный студией Radical Entertainment. Игра рассказывает историю американского морпеха Джеймса Хеллера. Вернувшись домой, главный герой обнаруживает своих близких мертвыми, в чем является виновным Алекс Мерсер, герой предыдущей части. В Prototype 2 игрок в роли Джеймса станет таким же мутантом и отомстит Алексу за весь (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Radical EntertainmentЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2225ED27D2BF311008D00E7FE78105CD754B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710876   (413381) от 15.10.2013
-
-Metal Gear Solid VR Missions [PS1] [En] (1999)
-
->>Консольные Игры
->>PS1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413381.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Metal Gear Solid: VR Missions вам предстоит пройти 300 тренировочных миссий в виртуальном боевом симуляторе. Вы сможете испытать себя в бесшумном устранении противника, в меткой стрельбе, точном метании гранат и в использовании всяческих видов оружия и оснащений. VR Missions состоят из задач-пазлов, мини-игр, разных специальных режимов и прохождения на скорость.Разработчик: KonamiЖанр: Stealth actionЯзык озвучки: АнглийскийЯзык субтитров: Мультиязычный (русский присутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F69E7D362EECF09BF621D6DB8F105E8D9F8616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066132   (413305) от 25.10.2016
-
-Need for Speed: The Run (2011) [Xbox360] [PAL] 14699 [FreeBoot] [License / TU4] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это The Run. Подпольные гонки с сумасшедшими ставками. Единственный способ сохранить жизнь - первым прибыть из Сан-Франциско в Нью-Йорк. Нет ограничений скорости. Нет правил. Нет союзников. Все, что у вас есть - ваше водительское мастерство и четкое понимание того, что вам противостоят сотни лучших в мире гонщиков на самых опасных трассах в стране. В Need for Speed (   Читать дальше...   )Тип издания: LicenseРазработчик: EA Black BoxЖанр: RacingЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0992DFD57A80699A8C73988F4D06F6361FBD9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948226   (412924) от 19.10.2015
-
-NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте собственного баскетболиста и помогите ему подняться на вершину спортивного Олимпа. Возьмите в свои руки управление всей Национальной Баскетбольной Ассоциацией. Или оттачивайте свое мастерство, чтобы сражаться с лучшими игроками мира по сети.
-
-Благодаря обновленной анимации движения игроков стали более плавными, а их эмоции – более реалистичными. Не будет (   Читать дальше...   )Тип издания: PSNРазработчик: Visual ConceptsЖанр: Sport (Basketball) / SimulationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCD8533855C3F68A40C96BE71811AF92E8E760B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568855   (411760) от 31.08.2022
-
-Hacked Xbox Backwards Compatibility / Взломанный эмулятор Xbox Original (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [En]
-
->>Консольные Игры
->>Тех. раздел Консолей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взломанный эмулятор Xbox Original для Xbox360 FreeBoot, версия 2011 года.Тип издания: UnofficialРазработчик: Team-XeDEVЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123093C8887AFDE341C8EF74F6416EE2D07C02A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832434   (411653) от 18.10.2014
-
-Resident Evil: Revelations / Biohazard: Revelations [PS3] [EUR] [Ru] [4.31] [Cobra ODE / E3 ODE PRO ISO] (2013)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil: Revelations – обновленная версия, выпущенной в январе 2012 года видеоигры в жанре Survival Horror, разработанной и изданной японской компанией Capcom для портативной консоли Nintendo 3DS, заслужившей благосклонное отношение фанатов и прессы. События игры Resident Evil: Revelations охватывают период между Resident Evil 4 и Resident Evil 5. Вместе со (   Читать дальше...   )Тип издания: ЛицензияРазработчик: CapcomЖанр: Action(Survival horror) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E7AFC552B5731A21645C1D35CF2EEDE9DD978D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406510   (411178) от 02.10.2020
-
-Spiritfarer (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.3] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spiritfarer — это уютная игра о смерти. Вам предстоит играть за Стеллу — перевозчика душ умерших. Постройте лодку для исследования мира, подружитесь с душами и позаботьтесь о них, пока они не обретут покой в жизни после смерти. Занимайтесь земледелием, добывайте руду, рыбачьте, собирайте урожай, готовьте и мастерите предметы, чтобы переправиться через таинственные (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunder LotusЖанр: Приключение, Платформер, Симулятор.Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7ABDFCCC2003F222BF5F3E8335C864AFAB597C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948633   (410691) от 20.10.2015
-
-Disney Epic Mickey 2: The Power of Two (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Epic Mickey 2: The Power of Two является продолжением платформера Epic Mickey, рассказывающего о приключениях Микки Мауса. Во второй части Микки предстоит путешествовать вместе с Кроликом Освальдом, поэтому разработчики добавили кооперативный режим, позволяющий другому игроку в любой момент присоединиться к игре. Кроме этого теперь все голоса были озвучены.Тип издания: ЛицензияРазработчик: Blitz Games Studios, Junction Point StudiosЖанр: Arcade / Adventure / Platformer / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F80FFB3431258E01DA6DE99A6874EE95E322AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325628   (408516) от 17.09.2019
-
-Pure Football (2010) [PS3] [EUR] 3.21 [Cobra ODE / E3 ODE PRO ISO] [Repack] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pure Football предлагает новое и уникальное видение футбольных игр. В уличном футболе 5 на 5 нет судейства и правил, а акцент делается на физических аспектах этого вида спорта. Впечатление усиливается динамической камерой и мощными звуковыми эффектами, реагирующими на события на поле и помещающими игрока в самое сердце футбольного действа!Тип издания: RepackРазработчик: UbisoftЖанр: SportsЯзык озвучки: Английский, Французский и другиеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1400C0BCEB62889E4632600594C46ACEB0F57216
 ```
 
 https://mybot314.ru/tekegram_catalog/

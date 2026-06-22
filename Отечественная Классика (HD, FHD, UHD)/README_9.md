@@ -1,3 +1,29 @@
+###  Публикация: 1142588   (623059) от 24.06.2017
+
+За спичками (1979) HDTV [H.264/1080i-LQ]
+
+>>След.
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие комедии, по мотивам одноименной повести Майю Лассила, происходит в дореволюционной Финляндии в 1910 году, когда эта страна еще была частью Российской империи. Жена посылает Ихалайнена за спичками, а тот по дороге встречает едущего навестить его старого друга, с которым десять лет назад они дали зарок не пить спиртного. Тогда им пришлось платить кругленькую (   Читать дальше...   )Производство: СССР, Финляндия, киностудия: Мосфильм, Suomi-FilmiЖанр: КомедияРежиссер: Леонид Гайдай, Ристо ОркоАктеры: Евгений Леонов, Вячеслав Невинный ст., Рита Полстер, Ритва Валкама, Георгий Вицин, Галина Польских, Кауко Хеловирта, Лео Ластумяки, Пекка Аутиовуори, Сергей Филиппов, Нина ГребешковаПродолжительность: 01:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FE69A0C5D6382B11E221A7A26417304FFD741B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905898   (621349) от 20.06.2015
 
 Человек-амфибия (1961) BDRip [H.264/1080p] [Реставрация КП]
@@ -6,7 +32,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621349.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618676.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615723.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615660.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613907.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613493.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611940.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610896.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610292.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610090.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608979.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607933.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604710.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603877.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601522.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600796.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599478.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597589.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567434.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566801.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556338.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556325.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556009.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541739.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540335.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449536D62881F8F88188E1FC62E7BDEDCD17597B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049866   (540109) от 07.09.2016
-
-Четвертый (1972) HDTV [H.264/1080i-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский журналист волею обстоятельств поставлен перед выбором: предать огласке преступные планы сторонников войны и при этом лишиться всех жизненных благ или отступить…Производство: Россия, МосфильмЖанр: ДрамаРежиссер: Александр СтолперАктеры: Владимир Высоцкий, Маргарита Терехова, Сергей Шакуров, Александр Кайдановский, Сергей Сазонтьев, Юрий Соломин, Татьяна Ицыкович, Марис Лиепа, Армен Джигарханян, Юозас Будрайтис, Михай Волонтир, Лев Дуров, Лев Круглый, Зинаида Славина, Леонид КулагинПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D64B8B96D57AE3C5A254BED4194E64151F5BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1566791   (478487) от 31.07.2022
+
+Meitantei Conan: Zero no Tea Time | Detective Conan: Zero's Tea Time | Детектив Конан: Чаепитие Зеро [2022, TV, 6 из 6] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент бюро общественной безопасности, частный детектив, член Чёрной Организации... Амуро Тору - человек, который ведёт тройную жизнь и каждый день балансирует между светом и тьмой ради единой цели - торжества правосудия и справедливости.Производство: TMS EntertainmentЖанр: детектив, повседневностьРежиссер: Косака ТомотиПеревод: официальный (Netflix)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 6 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F6F398D3ECE763BE75171B0F17D609F8937F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567011   (478416) от 31.07.2022
 
 Moonlight Mile: 2nd Season - Touch Down | Лунная миля: Приземление [2007, TV, 14 из 14] HDTV 1080p HEVC 10-bit raw
@@ -6,7 +32,7 @@ Moonlight Mile: 2nd Season - Touch Down | Лунная миля: Приземл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478416.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477979.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ New Game! | Новая игра! [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476655.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25] BDrip 720p Hi10b
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476437.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Neko no Dayan / Dayan the cat / Кот Даян [2014, TV, 1 из 52 серий]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475490.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Bakumatsu Rock | Рок эпохи Бакумацу [2014, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475150.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475080.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Qualidea Code [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474617.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ D.Gray-man Hallow | Грэй-мен: Святой [2016, TV, 13 эп.] HDTVRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474605.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Chocotto Sister / Чоко, сестрёнка [2006, TV, 24 эп.] DVDRip 480p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474501.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Haibane Renmei / Собор Пепельнокрылых / Союз Серокр
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474391.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Moonlight Mile: 1st Season - Lift off | Лунная миля [2007, TV, 12 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474312.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: Orion no Ya 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473154.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473153.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Aoharu x Kikanjuu / Aoharu x Machinegun / Юность и оружие [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472789.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Ben-Tou / Жрач-ка [2011, TV, 12] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472456.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Kamigami no Asobi | Забавы богов [2014, TV, 12 из 12] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470985.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Hinako Note | Дневник Хинако [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470722.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Taimadou Gakuen 35 Shiken Shoutai | Anti-Magic Academy: The 35th Test Platoon | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470590.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Rokka no Yuusha | Герои шести лепестков [2015, TV, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470488.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Amaama to Inazuma / Sweetness and Lightning / Сладость и молния [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470401.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Yawaraka Sangokushi Tsukisase!! Ryofuko-chan / Рёфуко-тян [2007, OVA, 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470290.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Kakegurui Twin | Безумный азарт: Близнец [2022, Web, 6 из 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470182.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Suzumiya Haruhi no Yuuutsu / The Melancholy of Haruhi Suzumiya / Меланхо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470017.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Mondaiji-tachi ga Isekai kara Kuru Sou Desu yo? / Проблемные дети 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469711.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ Mondaiji-tachi ga Isekai kara Kuru Sou Desu yo? / Проблемные дети 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044699   (468220) от 01.10.2016
-
-Bananya | Бананя [2016, TV, 13] HDTV 720p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бананя - загадочный котик в банановой кожуре. Живет он среди настоящих бананов, и никто никогда не видел, что прячется под кожурой. А когда никого нет рядом, Бананя тихонько играет и проказничает. Бананя обожает игры и сладости и мечтает стать стильным шоколадным бананом.
-© animespiritЖанр: комедияРежиссер: Ятатэ Кё / Yatate Kyou / 矢立恭Продолжительность: 13 серий по 3 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85932245F3FEA7A31A3E79624B2D4BC79E3B3E25
 ```
 
 https://mybot314.ru/tekegram_catalog/

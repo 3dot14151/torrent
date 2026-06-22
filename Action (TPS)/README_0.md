@@ -1,3 +1,81 @@
+###  Публикация: 1870164   (1068682) от 10.05.2026
+
+Dishonored (2013) [Ru/Multi] (334700_2022/dlc) Repack Wanterlude [Definitive Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dishonored - это насыщенный экшен от первого лица, в котором вам предстоит вжиться в роль убийцы, чьими поступками движет жажда мести. Гибкая система боя в Dishonored позволит вам комбинировать ваши сверхъестественные способности, оружие и необычные устройства так, как того захотите вы, чтобы устранить ваши цели. Преследуйте врагов под покровом тьмы или обнажите (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D9785B3F9009FE643734E6760E0E142B89B92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869949   (1068566) от 09.05.2026
+
+Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Complete Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее человечества балансирует на острие клинка. Земля была разорена странными чудовищами, и горстке выживших людей пришлось покинуть родной мир, бежав в Колонию на орбите. Ева вернулась на истерзанную Землю с важным заданием: спасти человечество, отвоевав планету у биотивов - мутировавших тварей, разоривших ее мир. Но, уничтожая биотивов одного за другим и собирая (   Читать дальше...   )Тип издания: RepackРазработчик: SHIFT UP CorporationЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6B712E5C51EE9F043714910FD4E7090E4EC382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869666   (1068339) от 07.05.2026
+
+Conan Exiles Enhanced (2018) [Ru/Multi] (1.0.1/dlc) Scene Rune
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Conan Exiles Enhanced - это игра на выживание в открытом мире, действие которой разворачивается в мифических землях Конана-варвара. В одиночной, кооперативной или постоянной многопользовательской игре вы должны научиться выживать в диких пустошах Хайбории, прежде чем строить собственный дом или целый общий город.Тип издания: SceneРазработчик: Funcom, Inflexion GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A3127DDD1ED9924BE8FC053DF62B94ACF19184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869351   (1068311) от 
 
 Just Cause (2006) [Multi] (1.0) License GOG
@@ -6,7 +84,7 @@ Just Cause (2006) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068311.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ American McGee presents Bad Day L.A. / Bad Day L.A. (2006) [Ru/En] (1.1.0) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068137.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Grand Theft Auto: Vice City (2003) [Multi] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067216.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Black Myth Wukong (2024) [Ru/Multi] (1.0.21.23831/dlc) Repack Let'sРlay [Digita
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067161.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Black Myth Wukong (2024) [Ru/Multi] (1.0.21.23831/dlc) Repack seleZen [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067115.jpg" />
 </div>
 
 
@@ -128,6 +206,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868049   (1067105) от 28.04.2026
+
+Black Myth Wukong (2024) [Ru/Multi] (1.0.21.23831/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Myth: Wukong - ролевой боевик по мотивам китайской мифологии. Его сюжет основывается на «Путешествии на Запад», одном из четырёх классических романов китайской литературы. Став Избранным, вы отправитесь в приключение, полное испытаний и чудес, в котором вам предстоит приподнять завесу тайны над великой легендой.Тип издания: RepackРазработчик: Game ScienceЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01EFFF1EA23821BBD33341A19A77C3A5B2A50F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867680   (1066831) от 26.04.2026
 
 Dead Space (2008) [Ru/En] (1.0.0.222) Repack xatab
@@ -136,7 +240,7 @@ Dead Space (2008) [Ru/En] (1.0.0.222) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066831.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/En] (1.2/dlc) Repack FitGirl [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066740.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064428.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.47/dlc) Repack Let'sРlay [Deluxe Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064401.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack dixen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064300.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Mindseye (2025) [Ru/Multi] (6508009/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063236.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (Build 223150
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062273.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Gotham Knights (2022) [Ru/Multi] (Build 21284365/dlc) Repack HardwareMining [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062272.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.33/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062095.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack seleZen [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061851.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack HardwareMining [Mas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061052.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Tomb Raider: Underworld (2008) [Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060859.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060834.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060793.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.1.1/dlc) Repack Wanterlude [Defini
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060432.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ L.A.Noire (2011) [Ru/Multi] (1.3.2675.1/dlc) Scene SKIDROW [The Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060303.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Max Payne 2: The Fall of Max Payne (2003) [En] (1.01) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060215.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Max Payne 2: The Fall of Max Payne - жестокая любовная исто�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA013A9FE1C6F0A775DB44D0C3C0E8E422894AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858254   (1060084) от 09.03.2026
-
-Resident Evil 4 Remake (2023) [Ru/Multi] (Build 22154679/dlc) Repack Decepticon
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060084.jpg" />
-</div>
-
-
-###  Подробнее
-
-После биологической катастрофы в Раккун-Сити прошло шесть лет. Агента Леона С. Кеннеди, пережившего те события, отправили на задание по спасению похищенной дочери президента. В попытках отыскать ее он оказывается в укромной европейской деревеньке, где с местными жителями творится что-то не то.Тип издания: RepackРазработчик: CAPCOMЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8753D73BA8F14670165607EA79CD38D6FB7B3308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858027   (1059991) от 08.03.2026
-
-Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Other s [Master Assassin Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте историю Басима, хитрого вора, который устремляется на оживленные улицы Багдада IX века в поисках ответов и справедливости. Вступив в загадочную и древнюю организацию Незримых, Басим станет смертоносным мастером-ассасином и изменит свою судьбу куда сильнее, чем ожидал.Тип издания: RepackРазработчик: Ubisoft BordeauxЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637D4BD7B2788C2BA6D7017FBE9C2527248588FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858029   (1059975) от 08.03.2026
-
-Wicked Seed (2026) [En] (Build 21603000) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wicked Seed сочетает элементы survival horror с пошаговой боевой системой в стиле экшена. Путешествуйте по тёмным лесам центрального Мэна, исследуйте забытые подземные туннели, прочёсывайте эвакуированный город и многое другое, чтобы раскрыть тайну внезапного появления монстров. Выживайте со стилем! Более 30 костюмов, которые можно полностью разблокировать через (   Читать дальше...   )Тип издания: RepackРазработчик: Dead Right GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786F69F48F0D23A16791FCD56B25065A089107D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858042   (1059959) от 08.03.2026
-
-Star Wars Jedi: Survivor (2023) [Ru/Multi] (Build 15643690/dlc) Repack HardwareMining [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059959.jpg" />
-</div>
-
-
-###  Подробнее
-
-STAR WARS Jedi: Survivor продолжит повествование о жизни Кэла через пять лет после прошлых событий. В этом галактическом экшен-адвенчуре с видом от третьего лица тебя ждет захватывающий сюжет, который погрузит тебя в мир, погружающийся во мрак. Стоит ожидать сражений с новыми и старыми врагами, а также важных решений, которые придется принимать Кэлу, чтобы спасти (   Читать дальше...   )Тип издания: RepackРазработчик: Respawn EntertainmentЖанр: Экшены, ПриключениеЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD48FBE7336D2C5598367A39B63CEC7158507D13
 ```
 
 https://mybot314.ru/tekegram_catalog/

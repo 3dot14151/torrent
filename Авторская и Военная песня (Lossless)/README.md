@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035686.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034146.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030189.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012263.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010318.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004733.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002049.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001186.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000976.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VА - Эх, дороги... (2008) [FLAC|Lossless]<Ретро, Военная п
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987763.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - С Днем защитника отечества! (2013) 3 CD (unpublished
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955283.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950299.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Сборник Авторской Песни (2000) S&V #06/2000 [FLAC|Loss
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903985.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893964.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859738.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857064.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853628.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822688.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Песни Победы. 75-летию посвящается (2020) [FLAC|
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822262.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819251.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793914.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791780.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771304.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771214.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745099.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737967.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1790539   (13622) от 24.06.2025
+
+Это путешествие | Zatsu Tabi: That's Journey [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тика Судзугамори — талантливая, но разочарованная в себе мангака, чьи работы раз за разом наталкиваются на холодное равнодушие издателей. Вместо того чтобы продолжать бороться в одиночестве, она решает превратить свою жизнь в открытую книгу, запустив необычный проект: путешествие по Японии, где каждое новое направление выбирают её подписчики в социальных сетях. Спонтанность (   Читать дальше...   )Производство: Япония / Студия Makaria, LuminasЖанр: Приключения, повседневностьРежиссер: Ватанабэ МасахаруЯзык озвучки: Русский (VF-Studio); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC63A80003CB8AFA8BC6CA4710664E3381326FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790569   (13469) от 25.06.2025
+
+Непостижимая Ахарэн [ТВ-2] | Aharen-san wa Hakarenai Season 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэйна Ахарэн и Райдо Мацубоши уже сделали немало шагов навстречу друг другу, но новый учебный год точно преподнесёт немало вызовов их социальной неловкости.
+Учитывая поистине непостижимую открытость Ахарэн, а также невероятную способность Райдо делать самые необычные выводы из самых обычных вещей, нас снова ждёт целая вереница милых, забавных и чуточку абсурдных (   Читать дальше...   )Производство: Япония / Студия Felix FilmЖанр: Комедия, романтика, повседневность, школаРежиссер: Ямамото ЯсутакаЯзык озвучки: Русский (AniLibria); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66E5457511FD0D8CE46B9044857A025C7C9EA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790966   (13431) от 26.06.2025
+
+Сила гориллы | Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | The Gorilla God's Go-To Girl [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13431.jpg" />
+</div>
+
+
+###  Подробнее
+
+События аниме разворачиваются в ином мире, в котором все люди в 16 лет получают особое благословение богов-животных.
+Так, наша София, робкая и нежная дворянская дочь, получает покровительство бога гориллы, дарующее ей способность поднимать вещи под тонну и больше. И, хоть девушка больше всего желала тихой и спокойной жизни, теперь у неё не будет отбоя от просьб о (   Читать дальше...   )Производство: Япония / Студия Kachigarasu, DiomedeaЖанр: Комедия, романтика, фэнтезиРежиссер: Оидзаки ФумитосиЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957A21865608F76699342B97AAE4620736010C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790754   (13419) от 26.06.2025
 
 Дети семьи Сиундзи | Shiunji-ke no Kodomo-tachi | The Shiunji Family Children [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +86,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13419.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13287.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13196.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13121.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13091.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12814.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12757.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12578.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12502.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12375.jpg" />
 </div>
 
 
@@ -272,7 +352,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11806.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11634.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11323.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11098.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11097.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11065.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10376.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9989.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9888.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9827.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд В�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9022.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8611.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7955.jpg" />
 </div>
 
 
@@ -597,85 +677,6 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCA4FE850BF4685C15651B1515AA744EDCBE4D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812650   (7756) от 15.08.2025
-
-Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 31 год после Третьей мировой войны и ядерной бомбардировки столицы Японии, воссоздан новый город - Нью-Токио. Внешне все под контролем, однако страна теперь напоминает профашистское государство, жесточайшим образом подавляющее попытки мятежа. В исследовательских центрах проводятся парапсихологические опыты над людьми для разработки совершенного вида оружия. (   Читать дальше...   )Производство: Япония / Akira Committee Company Ltd., Akira Studio, TMS EntertainmentЖанр: аниме, мультфильм, фантастика, боевик, триллер, детективРежиссер: Кацухиро ОтомоПеревод: Дублированный (Студийная Банда, Reanimedia)Язык озвучки: Русский, японскийСубтитры: РусскиеПродолжительность: 02:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398B15EACFAE38F38A491354F4B8F2B6649B87F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799914   (7149) от 18.08.2025
-
-Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и демонов [2025, TV, 18 из 24 эп.] WebRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7149.jpg" />
-</div>
-
-
-###  Подробнее
-
-В период Эдо в горной деревне Кадоно жила жрица по имени «Ицукихимэ». Дзинта , молодой человек, который, несмотря на то, что он чужак, выступает в качестве стража жрицы, сталкивается с таинственным демоном, который говорит о далеком будущем в лесу, куда он отправился, чтобы победить его. От Эдо до эпохи Хэйсэй, это фэнтезийная серия о демоне-человеке, который путешествует (   Читать дальше...   )Производство: Yokohama Animation LabЖанр: приключeния, фэнтeзиРежиссер: Айура КадзуяПеревод: SanaeЯзык озвучки: Японский и РусскийПродолжительность: эп. 01 – 54 мин. | эп. 02-13 и 18 – 24 мин. | эп. 14-17 – 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306930B6CD72D82732DCA1DF108E7149657E6B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737209   (5285) от 30.08.2025
-
-Юный лорд — мастер побега | Неуловимый самурай | Nige Jouzu no Wakagimi | The Elusive Samurai [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть потомком рода Камакура и будущим сёгуном и так непросто, но ещё сложнее, когда ты ко всему прочему не особо-то любишь сражаться. Тогда у тебя остаётся лишь два варианта: либо терпеть, либо просто сбегать с тренировок! И наш герой — Ходзё Токиюки — выбирает второе, ведь он — настоящий мастер побега.
-Но вот спокойным денькам приходит конец. Сёгунат Камакура оказывается (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: Комедия, приключения, сёненРежиссер: Ямадзаки ЮтаЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7BA7DDF0FB87CB23DAD3BB78D007F1DE5F5D3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

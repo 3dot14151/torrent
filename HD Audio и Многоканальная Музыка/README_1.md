@@ -1,3 +1,89 @@
+###  Публикация: 1865058   (1065422) от 13.04.2026
+
+Orden Ogan - Studio Albums (9 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orden Ogan - рок-группа из Арнсберга, Северный Рейн-Вестфалия (Германия), основана в 1996 году.2004 - Testimonium A.D
+2008 - Vale
+2010 - Easton Hope
+2012 - To The EndЖанр: Power MetalПродолжительность: 08:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A82F311334FC9F43921B50C061CA010EE5B7612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865206   (1065369) от 14.04.2026
+
+Sacrilege (Sweden) - Studio Albums (2 releases) (1996-1997) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sacrilege - дэт-метал группа из Гётеборга, Швеция, существовавшая с 1993 по 1998 год.
+Группа распалась, когда Даниэль Свенссон присоединился к In Flames.1996 - Lost In The Beauty You Slay
+1997 - The Filth SeasonЖанр: Melodic Death MetalПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9688AB147D26CCBCAC693F79EF0F626AA6BBF068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865201   (1065368) от 14.04.2026
+
+Merle Haggard And George Jones - A Taste Of Yesterdays Wine (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065368.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Yesterday's Wine
+A2 I Haven't Found Her Yet
+A3 I Think I've Found A Way (To Live Without You)
+A4 Silver Eagle(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3B79AED564766A788A176A0B6A241594E656D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865193   (1065367) от 14.04.2026
 
 Merle Haggard And The Strangers - A Working Man Can't Get Nowhere Today (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
@@ -6,7 +92,7 @@ Merle Haggard And The Strangers - A Working Man Can't Get Nowhere Today (1977) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065367.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Enforcer - Studio Albums (6 releases) (2008-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064814.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ Gorguts - Studio Albums (6 releases) (1991-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064615.jpg" />
 </div>
 
 
@@ -93,7 +179,7 @@ Larry Gatlin - Rain Rainbow (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064613.jpg" />
 </div>
 
 
@@ -122,7 +208,7 @@ Sons of Eternity - Studio Albums (2 releases) (2023-2026) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064150.jpg" />
 </div>
 
 
@@ -149,7 +235,7 @@ Prelude - Owlcreek Incident (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064048.jpg" />
 </div>
 
 
@@ -178,7 +264,7 @@ Tommy Roe - Tommy Roe's 16 Greatest Hits (1975) [FLAC 2.0|96/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063898.jpg" />
 </div>
 
 
@@ -207,7 +293,7 @@ Monolithe - Studio Albums (11 releases) (2003-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063706.jpg" />
 </div>
 
 
@@ -236,7 +322,7 @@ Anthemon - Studio Albums (5 releases) (1998-2005) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063223.jpg" />
 </div>
 
 
@@ -265,7 +351,7 @@ Doomed - Studio Albums (6 releases) (2012-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063058.jpg" />
 </div>
 
 
@@ -294,7 +380,7 @@ Ram-Zet - Studio Albums (6 releases) (2000-2026) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062842.jpg" />
 </div>
 
 
@@ -323,7 +409,7 @@ Harry Secombe With Myrna Rose - Sings The Songs Of Ivor Novello (1967) [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062841.jpg" />
 </div>
 
 
@@ -352,7 +438,7 @@ The Melachrino Strings And Orchestra - Moods In Music: Music For Relaxation (195
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062562.jpg" />
 </div>
 
 
@@ -381,7 +467,7 @@ Samael - Studio Albums (13 releases) (1991-2026) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062561.jpg" />
 </div>
 
 
@@ -410,7 +496,7 @@ Hollywood Symphony Orchestra - Orchestral Fireworks (1966) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062317.jpg" />
 </div>
 
 
@@ -439,7 +525,7 @@ Celine Dion - I Am. Original Motion Picture Soundtrack (2024) [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062316.jpg" />
 </div>
 
 
@@ -468,7 +554,7 @@ Johnny Mathis - Faithfully (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062283.jpg" />
 </div>
 
 
@@ -497,7 +583,7 @@ Barry Manilow - Manilow Magic. The Best Of Barry Manilow (1979) [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062282.jpg" />
 </div>
 
 
@@ -526,7 +612,7 @@ Les Paul And Mary Ford - Lovers' Luau (1959) [FLAC 1.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061627.jpg" />
 </div>
 
 
@@ -555,7 +641,7 @@ Peggy Lee - I'm A Woman (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061595.jpg" />
 </div>
 
 
@@ -584,7 +670,7 @@ Roger Miller - The One And Only Roger (1965) Reissue 1969 [FLAC 2.0|96/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061388.jpg" />
 </div>
 
 
@@ -613,7 +699,7 @@ Elvenking - Studio Albums (12 releases) (2001-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061347.jpg" />
 </div>
 
 
@@ -642,7 +728,7 @@ Dinah Kaye With Tubby Sykes And The Power-House 7 - The Roaring 20's (1963) [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061229.jpg" />
 </div>
 
 
@@ -656,93 +742,6 @@ A4 Tiger Rag(   Читать дальше...   )Жанр: Jazz, Dixieland, Ragti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B79CB17B87EE2E098614337C012A622E3AB7C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859602   (1061228) от 17.03.2026
-
-Tool - Studio Albums (7 releases) (1991-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tool — американская рок-группа из Лос-Анджелеса, штат Калифорния, США, образованная в 1990 году.1991 - 72826
-1992 - Opiate (EP)
-1993 - Undertow
-1996 - ÆnimaЖанр: Progressive MetalПродолжительность: 06:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AEA0772875582E601096C7754DB272CF1C7E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859718   (1061224) от 17.03.2026
-
-Seven Impale - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seven Impale — это звучание прошлого и будущего. Они сочетают в себе ритмы современного метала, часто встречающиеся у таких групп, как Tool и Meshuggah, и классический прогрессивный рок в стиле King Crimson. Seven Impale также используют элементы джаза в гармониях и импровизации.2013 - Beginning-Relieve (EP)
-2014 - City of the Sun
-2016 - Contrapasso
-2023 - Summit(   Читать дальше...   )Жанр: Prog RockПродолжительность: 03:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF8E362DDC281DCAFBB36FD25E1FB646B00C75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859309   (1061042) от 15.03.2026
-
-Delibes / Chopin - Douglas (Berliner Philharmoniker, Herbert von Karajan) - Coppelia-Ballettsuite / Les Sylphides (1961) Reissue, Repress [LAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Romant ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Delibes: Coppelia-Balletsuite
-A1 Vorspiel Und Mazurka
-A2 Szene Und Walzer Der Swanhilde
-A3 Csardas(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93634F230E038A4D13E88D04713564CB8FA6F9BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

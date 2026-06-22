@@ -1,3 +1,81 @@
+###  Публикация: 1609270   (1043370) от 02.02.2023
+
+Сурамская крепость (1922) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043370.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной повести грузинского классика Даниила Чонкадзе, взявшего за основу старинную грузинскую легенду. Узнав об измене возлюбленного, Вардуа решает жестоко мстить. Во время наступления турок на Имеретию она внушает грузинскому царю, что победа над врагом будет одержана, если сына Дурмишхана замуруют живым в стену Сурамской крепости. Царь приказывает выполнить (   Читать дальше...   )Производство: Грузия, Киносекция Наркомпроса ГрузииЖанр: драма, мелодрама, немое киноРежиссер: Иван ПерестианиАктеры: Амо Бек-Назаров, Михаил Чиаурели, Т. Сакварелидзе, Т. Максимова, Л. Галусиани, Н. Долидзе, Ольга Майсурян, Шалва Дадиани, Н. Оданкевич, Ванда ПоликевичСубтитры: Русские интертиры, итальянские (hardsub)Продолжительность: 0:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56BF0E60C48C73C2D3DA0EF2A13360992856DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437194   (1042475) от 03.01.2021
+
+Вертикаль (1967) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа альпинистов готовится к штурму непокоренной вершины Кавказа - пика Ор-Тау. Получив разрешение, они отправляются в путь, а между тем, радист базового лагеря принимает радиограмму о надвигающемся грозовом циклоне. Связист группы получает сигнал только после того, как пройдены самые опасные места, и скрывает от остальных это сообщение...Производство: СССР, Одесская к/стЖанр: Драма, ПриключенияРежиссер: Станислав Говорухин, Борис ДуровАктеры: Владимир Высоцкий, Маргарита Кошелева, Геннадий Воропаев, Александр Фадеев, Георгий Кулбуш, Лариса Лужина, Бухути Закариадзе, М. Анучринов, Л. Глисеев, Л. КахилинСубтитры: Русские, английскиеПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AFAED948882B15F54198B535047316AC8FADB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610474   (1042406) от 07.02.2023
+
+Нет счастья на земле (1922) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Служащий Николай Покровский женится на юной Вере, своей сослуживице. Новобрачные не вполне счастливы. Нужда заставляет Веру заниматься продажей самодельных пирожков. Приехавший из Америки Оболенский, давний друг Покровского, с первых дней знакомства покоряет сердце Веры. Она не отказывает ему в поездках за город и вскоре ее поведение становится достоянием общественности. (   Читать дальше...   )Производство: РСФСР, Арт-Экран и СевзапкиноЖанр: драма, короткометражный, немое киноРежиссер: Александр ПантелеевАктеры: Александр Пантелеев, Роман Аполлонский, Александра Чижевская, Раиса Мамонтова, Сергей Шкляревский, Александр Литвинов, В. РусиноваСубтитры: Русские интертирыПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3A595525332E7C4225833E5D84AEEAA4E0793F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611321   (1041372) от 11.02.2023
 
 Венок сонетов (1977) WEB-DL [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041372.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041048.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040480.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040274.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039659.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039583.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038795.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038693.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038555.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037815.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037401.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036841.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036802.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036224.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036116.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036104.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035936.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035836.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034803.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034795.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034585.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033421.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032450.jpg" />
 </div>
 
 
@@ -595,85 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFC8DA606988AE5825F6D271F5408995703EF114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447212   (1032018) от 12.02.2021
-
-Безобидный человек (1970) HDTVRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игровой комедийный фильм, пропагандирующий вред алкоголя.
-Обычный, добродушный человек, отец семейства, никому не причиняет вреда, пытается всем помочь. Ну подумаешь, немного любит выпить, так он собрался бросать это дело. К тому-же, выпив, он становится ещё добрее и позитивней. Вот только он не замечает, что это может принести большой вред окружающим.Производство: СССР / МосфильмЖанр: Короткометражный, комедия, драмаРежиссер: Хасан БакаевАктеры: Алексей Смирнов, Нина Агапова, Юрий БеловСубтитры: ОтсутствуютПродолжительность: 00:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394CF2EED22B689B9950CBF3D9D5E406113C9BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447397   (1031761) от 13.02.2021
-
-Мы, нижеподписавшиеся (1981) WEBRip [H.264/1080p-LQ] (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные события разворачиваются в поезде. Приемочная комиссия из Москвы, выявив недоделки в построенном хлебзаводе, не подписала акт его сдачи. Но от этого зависит судьба не только многих людей, связанных со строительством, но и жизнь городка в целом. Леня Шиндин — человек совестливый и порядочный — всеми силами и любыми средствами пытается изменить решение комиссии…Производство: СССР / ТО «Экран»Жанр: драмаРежиссер: Татьяна ЛиозноваАктеры: Леонид Куравлёв, Ирина Муравьёва, Аристарх Ливанов, Юрий Яковлев, Клара Лучко, Олег Янковский, Николай Парфёнов, Вадим Захарченко, Владимир Шихов и др.Субтитры: ОтсутствуютПродолжительность: 01:07:10 + 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6A12C59296553E1D182C820483741D2FA648BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447889   (1031276) от 15.02.2021
-
-Шофёр на один рейс (1981) WEBRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колхозница Софья, которая наконец-то накопила на автомобиль, приезжает в Москву, где знакомится с человеком, который помогает ей в покупке и соглашается доставить авто до места жительства. Все это время героев поджидают жизненно-комические ситуации, которые делают фильм легким и смешным.Производство: СССР / ТО «Экран»Жанр: КомедияРежиссер: Вадим ЗобинАктеры: Лидия Федосеева-Шукшина, Олег Ефремов, Лидия Сухаревская, Наталья Вавилова, Юрий Дуванов, Вадим Андреев, Любовь Соколова, Валентина Якунина, Наталья Кустинская, Владимир СошальскийСубтитры: ОтсутствуютПродолжительность: 02:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCAF64E248978D7FD6C6EFFAD7FA7C3B6278178
 ```
 
 https://mybot314.ru/tekegram_catalog/

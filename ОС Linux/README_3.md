@@ -1,3 +1,113 @@
+###  Публикация: 762247   (892190) от 02.03.2014
+
+Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов) [x86-64] 9xDVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net.
+
+Новости в дистрибутиве: обновлен пакетный менеджера Pamac 0.9.7; возможность включения/отключения поддержки AUR (пользовательских репозиториев); у иконки уведомлений в трее пакетного менеджера Pamac изменен период обновлений; удалены ненужные зависимости; изменены настройки через pamac-manager/updater GUI; добавлена запись 'Просмотр истории' в меню pamac-менеджера; добавлена поддержка AUR в инсталляционный скрипт менеджера pacmac (данная функция работает, если она включена в конфигах pamac.conf). Добавлены новые возможности в MHWD (Manjaro Hardware Detection): поддержка сетевых карт. Добавлен раздел «/home» в режиме автоматической установки. Исправлена проблема изменения размера окна в настройках языка. Исправлена проблема (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7E5B900A864BF5D98DD72E87CC1F3B34051278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762256   (892067) от 02.03.2014
+
+Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) [i686] 9xDVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net.
+
+Новости в дистрибутиве: обновлен пакетный менеджера Pamac 0.9.7; возможность включения/отключения поддержки AUR (пользовательских репозиториев); у иконки уведомлений в трее пакетного менеджера Pamac изменен период обновлений; удалены ненужные зависимости; изменены настройки через pamac-manager/updater GUI; добавлена запись 'Просмотр истории' в меню pamac-менеджера; добавлена поддержка AUR в инсталляционный скрипт менеджера pacmac (данная функция работает, если она включена в конфигах pamac.conf). Добавлены новые возможности в MHWD (Manjaro Hardware Detection): поддержка сетевых карт. Добавлен раздел «/home» в режиме автоматической установки. Исправлена проблема изменения размера окна в настройках языка. Исправлена проблема (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516B4096A56C902AF39E849603363993B1082DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102780   (888620) от 10.02.2017
+
+CentOS 7.3 (1611) [i386] 4xDVD, 2xCD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_888620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоялся выпуск дистрибутива CentOS 7.1611 (i386), вобравшего в себя изменения из Red Hat Enterprise Linux 7.3. Напомним, что номер версии 7.1611 связан с введением в практику ежемесячной сборки rolling-обновлений установочных образов и отражает время очередной сборки, при том, что в рамках подготовки данной сборки репозиторий был переведён на пакетную базу RHEL (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C65B640D629A3DA97D0130EA90B993C9A1517B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641565   (880799) от 10.04.2013
+
+OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики OS4 (ранее проект носил название PC/OS) выпустили очередной новый релиз своего дистрибутива. OS4 представляет собой дружественный к пользователю настольный и серверный дистрибутив на базе Xubuntu, его основными особенностями являются поддержка многих популярных плагинов для браузеров, дополнительное ПО для работы с мультимедиа, создания контента и разработки, а также инновационная компоновка рабочего стола.
+
+Релиз OS4 Workstation 13.4 доступен для архитектур 32- и 64-бит, среди его компонентов – ядро 3.2.0,  Firefox 20.0; Thunderbird 17.0.4; Google Maps сменивший Nokia Maps, а также многое другое. Существенные изменения были внесены в более чем 200 пакетов. Ранее в дистрибутив были включены новые системные темы на базе Radiance и Ambiance, новые границы окон, интегрированное главное меню.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764664   (879650) от 09.03.2014
 
 Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
@@ -6,7 +116,7 @@ Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879650.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ Cinnarch 2013.04.05 [i686 + x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877630.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ KaOS Linux 2016.03 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876774.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872755.jpg" />
 </div>
 
 
@@ -116,7 +226,7 @@ Manjaro Linux 0.8.5 (Arch с несколькими рабочими стола�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871036.jpg" />
 </div>
 
 
@@ -150,7 +260,7 @@ Q4OS 1.4.8 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864066.jpg" />
 </div>
 
 
@@ -178,7 +288,7 @@ ROSA Marathon 2012 RP2 (Enterprise Desktop X1) (Национальная про�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863503.jpg" />
 </div>
 
 
@@ -206,7 +316,7 @@ OSGeo-Live 9.0 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862661.jpg" />
 </div>
 
 
@@ -232,7 +342,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860789.jpg" />
 </div>
 
 
@@ -262,7 +372,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860592.jpg" />
 </div>
 
 
@@ -292,7 +402,7 @@ Foresight Linux 2.5.3 [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860583.jpg" />
 </div>
 
 
@@ -320,7 +430,7 @@ Scientific Linux 6.4 Live [i386] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860219.jpg" />
 </div>
 
 
@@ -348,7 +458,7 @@ Pear Linux 7.0 [amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859921.jpg" />
 </div>
 
 
@@ -378,7 +488,7 @@ Scientific Linux 6.4 Live [x86-64] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859818.jpg" />
 </div>
 
 
@@ -406,7 +516,7 @@ Pinguy OS 14.04.4-1 [i686, x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853625.jpg" />
 </div>
 
 
@@ -432,7 +542,7 @@ Kubuntu 13.04 Raring Ringtail [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852493.jpg" />
 </div>
 
 
@@ -458,7 +568,7 @@ Xubuntu 13.04 [i386, amd64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852490.jpg" />
 </div>
 
 
@@ -488,7 +598,7 @@ Edubuntu 13.04 (Ubuntu для школ и вузов) [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852486.jpg" />
 </div>
 
 
@@ -516,7 +626,7 @@ CAE Linux 2018 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846138.jpg" />
 </div>
 
 
@@ -542,7 +652,7 @@ Ubuntu Studio 13.04 [i386 + amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843330.jpg" />
 </div>
 
 
@@ -568,7 +678,7 @@ Debian GNU/Linux 8.4.0 Jessie [amd64] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843124.jpg" />
 </div>
 
 
@@ -594,7 +704,7 @@ Sabayon 13.04 (CoreCDX, HardenedServer, ServerBase, SpinBase) [x86, x86-64] (4xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841564.jpg" />
 </div>
 
 
@@ -607,118 +717,6 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650937   (841482) от 01.05.2013
-
-Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86-64] (4xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux kernel 3.8.8 с поддержкой BFQ iosched и ZFS, GNOME 3.6.3, KDE 4.10.2, MATE 1.6, Xfce 4.10, LibreOffice 4.0. Включена полная поддержка EFI/UEFI и поддержка UEFI SecureBoot, существенно улучшена поддержка NVIDIA Optimus.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651019   (841481) от 01.05.2013
-
-JonDo 0.9.42 (Анонимный доступ в сети) [x86] (DVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел корректирующий релиз дистрибутива JonDo  - 0.9.42
-
-Jondo Live-CD / DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. JonDoBrowser предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail для электронной почты, Pidgin для анонимного обмена мгновенными сообщениями и чатов. Медиа-плеер сохраняет  анонимность метаданных.  Присутствует Toolkit для очистки документов и изображений и многие другие приложения содержащиеся на CD/ DVD частью Live-CD.
-
-Версия DVD содержит дополнительное программное обеспечение: I2P и GNUnet, LibreOffice.org, GIMP, Bluegriffon для разработки веб-сайта, Calibre для электронных книг и некоторые другие инструменты.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650938   (841466) от 01.05.2013
-
-Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86] (4xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux kernel 3.8.8 с поддержкой BFQ iosched и ZFS, GNOME 3.6.3, KDE 4.10.2, MATE 1.6, Xfce 4.10, LibreOffice 4.0. Включена полная поддержка EFI/UEFI и поддержка UEFI SecureBoot, существенно улучшена поддержка NVIDIA Optimus.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003749   (841386) от 04.04.2016
-
-Debian GNU/Linux 8.4.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841386.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B8631CB2F9BAA3C73CF94AF1D282F1356E4263
 ```
 
 https://mybot314.ru/tekegram_catalog/

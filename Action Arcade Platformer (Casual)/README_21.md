@@ -1,3 +1,55 @@
+###  Публикация: 1715997   (59827) от 13.04.2024
+
+CD 2: Trap Master (2024) [Ru/Multi] (1.0.2) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59827.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 2: Trap Master - инновационный геймплей, в котором два разных жанра органично сочетаются в одном интересном приключении. В этой динамичной истории вы становитесь на место опытного мастера ловушек, которому поручено защищать свои алтари от неумолимых волн загадочных существ. Суть геймплея заключается в настройке личного арсенала, состоящего из набора ловушек и (   Читать дальше...   )Тип издания: RepackРазработчик: ACE EntertainmentЖанр: Казуальные игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский и другиеЯзык интерфейса: Русский, Английский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F976EFCCDD64D881DAEC9D77E7696F862C1E4667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693262   (59461) от 17.04.2024
+
+Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.4f0) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turnip Boy Robs a Bank - это забавный двухмерный приключенческий экшен. Мальчик-репка вернулся, и он привел с собой свою печально известную банду "Маринованная банда", чтобы захватить Ботанический банк. Это не обычное ограбление - ждите неожиданностей, когда вы будете выбивать заложников, сражаться с охранниками и элитными отрядами вегетарианцев и грабить (   Читать дальше...   )Тип издания: SceneРазработчик: Snoozy KazooЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Итальянский, Французский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCEEF253D64E1687D2ECB74BAE0A6E63CE2E1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717221   (59220) от 19.04.2024
 
 BIOMORPH (2024) [Multi] (1.1.26426) Repack FitGirl
@@ -6,7 +58,7 @@ BIOMORPH (2024) [Multi] (1.1.26426) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59220.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Turbo Kid (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59108.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Pepper Grinder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59006.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Knights & Guns (2024) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58935.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58844.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58701.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ ReMix (2024) [Ru/Multi] (1.01.07) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58689.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Pepper Grinder (2024) [Ru/Multi] (392-full_release) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58458.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58256.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Lunar Lander Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57643.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Gift (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57102.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Hand In Hand (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56894.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.2a03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56829.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56804.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Clive 'N' Wrench (2023) [Multi] (Patch 1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56752.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56698.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Braid (2024) [Multi] (0.444) Repack FitGirl [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56493.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Astral Ascent (2023) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56306.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Super Catboy (2023) [Ru/Multi] (1.0.4a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56122.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ The Last Faith (2023) [Ru/Multi] (1.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56120.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ BroodStar (2020) [En] (1.6.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55661.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.5r2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55412.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Nocturnal (2023) [Multi] (1.2.1.748) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55274.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Cuphead (2017) [Ru/Multi] (1.3.2/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55142.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Cuphead – это в прямом смысле слова "классическ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6CCE533BE05B20BC9F4525992C8C59F49AFC72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657739   (55070) от 29.05.2024
-
-Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любители загадочных приключений и увлекательных головоломок, скорее всего, найдут для себя что-то особенное в игре Lapin. Погружаясь в визуально привлекательные локации, игрок сталкивается с различными препятствиями и интерактивными элементами, которые добавляют глубину геймплею и делают прохождение незабываемым. Главный герой - милый и очаровательный кролик, который (   Читать дальше...   )Тип издания: SceneРазработчик: Studio DoodalЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Корейский, Японский, Китайский и другиеЯзык интерфейса: Английский, Корейский, Японский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5F145C7A6312D372512E16B04ADDD2D75A2F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727687   (54492) от 03.06.2024
-
-F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.200.002) Repack dixen18
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54492.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как шесть лет назад животные Города Светоч были побеждены вторгшимся Легионом Роботов в Войне сопротивления, кролик Райтон, бывший боец Сопротивления, держался в тени. Арест его друга означал, что у него не было другого выбора, кроме как надеть свой гигантский металлический кулак и бороться против тех, кто его угнетает. Он не знал, что вскоре попадет (   Читать дальше...   )Тип издания: RepackРазработчик: TiGamesЖанр: Action, Platformer, Adventure, IndieЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B2CF991B8ECF23FA3920F0C2824B51808D81FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

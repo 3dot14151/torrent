@@ -6,7 +6,7 @@ Direct Message for Instagram Pro 4.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684584.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Fluid Browser 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684550.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Murus Pro 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684420.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684418.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ InstaBro | Browser for Instagram 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684411.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Araxis Merge Pro 2016.4774 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684297.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Direct Mail 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684241.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Wondershare Recoverit 7.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684235.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ eMail Address Extractor 3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684130.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VueScan Pro 9.5.77 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682903.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Benvista PhotoZoom Pro 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682811.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Forecast Bar 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682740.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ MacX Video Converter Pro 5.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682199.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ AnyTrans for Android 7 v7.0.0 (build 20190314) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682080.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ SmartAlbums 2.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681961.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Boom 3D 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681877.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ PhotoScape X Pro 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681845.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ TG Pro (Temperature Gauge Pro) 2.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681683.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681469.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681377.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Smooze 1.1.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681309.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ iGallery Pro — Best Instagram Uploader 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681301.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ AirFoil 5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681192.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Winclone Pro 6 v6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681190.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681160.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Principle 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681091.jpg" />
 </div>
 
 

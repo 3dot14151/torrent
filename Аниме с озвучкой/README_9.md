@@ -1,3 +1,84 @@
+###  Публикация: 611806   (987957) от 31.01.2013
+
+Nazo no Kanojo X / Mysterious Girlfriend X / Загадочная девушка Икс [2012, TV, 13+OVA] BDRip 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил был самый обычный ни чем не выделяющийся паренек - Цубаки Акира, Ходил в школу как все, учился как все...короче совсем обычный. За исключением одного но. Акире всегда снились странные сны...
+ В один прекрасный день вся его обычная жизнь рухнула, когда в их класс перевелась "Странная" девушка Урабэ Микото....
+©FooBooЖанр: комедия, романтика, школаРежиссер: Ватанабэ АюмуПродолжительность: ТВ, 13 серий + OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C653678C69DD4E01966BF3D4B3C4C011DA64F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971919   (984366) от 04.01.2016
+
+Gokukoku no Brynhildr / Brynhildr in the Darkness / Брюнхильда во тьме [2014, TV, 13 ep + SP] BDRip Hi10p 720p Raw+Rus x3(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984366.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Рёта Мураками дружил с девочкой по прозвищу Куронэко. Его подружка не раз заявляла, что встречалась с пришельцами, и однажды взялась лично показать «неверующему» братьев по разуму. Кончилось это плохо – девочка погибла, мальчик еле выжил. Потеряв близкого человека, Рёта поверил, что «истина где-то рядом» и решил стать астрономом, чтобы в будущем работать (   Читать дальше...   )Жанр: приключения, фантастика, драмаРежиссер: Имайдзуми КэнъитиПеревод: Русские субтитры от nnm-club^anime
+Переводчик/Оформление: kvaking, Редактор/Тайм-код: ElSwankoСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 13 эпизодов и спэшл по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED38F1C48AFEF2C8CE061F7D162A4414C489E8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342251   (984294) от 25.01.2020
+
+Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение аниме-сериалаПроизводство: Madhouse Studios, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Ито НаоюкиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2BB0C7942D0C53010A1804EC500719113DD3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972339   (982610) от 05.01.2016
 
 Kaze no tani no Naushika / Nausicaa from the Valley of the Wind / Навсикая из долины ветров [1984, Movie] DVDRip raw
@@ -6,7 +87,7 @@ Kaze no tani no Naushika / Nausicaa from the Valley of the Wind / Навсика
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982610.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Yuru Yuri 2 / Yuruyuri 2 / Cвободу Лесбиянкам 2 [2012, TV, 12] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979731.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Burn Up | Burn Up! | Разгон! [1991, OVA] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979603.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ Burn Up W | Burn-Up W - On the Case & In your Face | Разгон! Дубль-в
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979601.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Burn Up Scramble | Burn Up Scramble | Спецотряд Burn Up [2004, TV] DVDR
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979599.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972799.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Teizokurei Daydream | Ghost Talker's Daydream | Мечты вульгарног�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968331.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечери
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966920.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война танук�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965824.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965822.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965821.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965819.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965240.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | К
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962793.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? | And You Thought There Is Never a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961638.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга Магии дл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960289.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ Baccano! / Шумиха! [2007, TV, 13] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959755.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ B Gata H Kei / Размер - второй, характер - извращен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959753.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ Gekijouban Soushuuhen Overlord | Overlord: Fushisha no Ou & Shikkoku no Eiyuu | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958951.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ Maken-ki! / Не проиграю! [2011, TV, 12 ep] BDRip 720p Hi10p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958383.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Keijo!!!!!!!! / Кэйджо!!!!!!!! [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954718.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ Haiyore! Nyaruko-san W | Ползучий Хаос! Няруко-Сан [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951929.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951921.jpg" />
 </div>
 
 
@@ -600,87 +681,6 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBB67AF8D2C9283912A3D006ADDD313383F3BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362095   (950452) от 22.02.2020
-
-Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танки: Настоящая Битва за Анцио! [2014, OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950452.jpg" />
-</div>
-
-
-###  Подробнее
-
-OVA, сюжет которой рассказывает о битве против старшей школы Анцио. Хронологически, это 8-ой эпизод TV-сериала.Производство: Actas, ЯпонияЖанр: ПриключенияРежиссер: Мидзусима ЦутомуОзвучка: Одноголосая закадроваяСубтитры: ПолныеПродолжительность: 37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A76FAC130106A9DDAE8FA408DF5957CF36A920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362094   (950451) от 22.02.2020
-
-Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Танки. Фильм [2015, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950451.jpg" />
-</div>
-
-
-###  Подробнее
-
-После 63 турнира Сэнся-до японское Министерство образования решает закрыть женскую академию Оарай, несмотря на их недавний триумф на чемпионате. Чтобы сохранить академию, Михо и её команда должны выиграть состязание против университетской команды в Сэнся-до. В этом нелёгком сражении к Михо спешат на помощью старые друзья из других школ, а также новые — из академии (   Читать дальше...   )Производство: Actas, ЯпонияЖанр: ПриключенияРежиссер: Мидзусима ЦутомуОзвучка: Одноголосая закадроваяСубтитры: ПолныеПродолжительность: 02:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2258998D7AE0F28B5436A4EB01E923E1EA3346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361929   (950450) от 22.02.2020
-
-Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie] BDRip 1080p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький мальчик, чьим единственным другом остаётся верный пёс, удирает от погони. За ним охотятся люди местного князя, который вступил в сделку с посланцами из Китая. Никто не знает, что нужно странным чужакам, но они платят золотом, поэтому рабочие целыми днями трудятся над постройкой странного сооружения, а воины прочёсывают ближайшие деревни. Между тем их добыча (   Читать дальше...   )Производство: Япония / BonesЖанр: Самураи, история, боевые искусстваРежиссер: Масахиро АндоЯзык озвучки: Русский
-Профессиональный многоголосый (KANSAI Studio)
-Любительский многоголосый (Shinobi участники: Hattori Hanzo, Lord Alukart, =dmk=, Lunifera)
-Любительский Одноголосый (Юки Нацуи / Animegroup / ARRU)(   Читать дальше...   )Субтитры: Русские, полные (отключаемые) BakaNyakaПродолжительность: 1 ч 43 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C89B600EEB89D494E421601FC709B49A96F61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

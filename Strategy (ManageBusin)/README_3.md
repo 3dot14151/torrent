@@ -6,7 +6,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784717.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782585.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Barn Finders (2020) [Ru/Multi] (1.0.0.16128) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782185.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zoo Tycoon: Ultimate Animal Collection (2017) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781547.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763894.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Spore - Complete Pack (2009) [Ru/En] (1.2.0.2818/3.0.0.2818) Repack R.G. Мех�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760486.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.05.17/dlc) License GOG [Two-Horned Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754974.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mars Horizon (2020) [Ru/Multi] (1.4.1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747773.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Industry Giant 2 / Промышленный Гигант II (2015) [Ru] (2.3.3.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745916.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738622.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20220103.476/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736798.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Tropico / Тропико Трилогия [Ru] (Lossless RePack) 2002-2011 | R.G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719420.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tropico 4 (2011) [Multi] (1.6.345/dlc) License GOG [Complete Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714307.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lobotomy Corporation | Monster Management Simulation (2018) [Ru/Multi] (1.0.1.0�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712931.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.21.26998/dlc) License RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712489.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Sims 4 (2014) [Ru/Multi] (1.50.67.1020/dlc) Unofficial R.G. Origins [Deluxe 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712396.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710319.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ TransOcean 2: Rivals (2016) [Ru/Multi] (1.0.8) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709181.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Space Run Galaxy (2016) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697569.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ SimCity (2014) [Ru/En] (10.3.4/dlc) Repack xatab [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690941.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Theme Hospital / Частная клиника [En] 1997 | GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689236.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Surviving Mars (2018) [Ru/En] (Opportunity Update/dlc) Repack R.G. Механи�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684438.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681108.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Railroad Tycoon 2 + OST (Rip) [Ru] 1999 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678422.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (10100111001) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677788.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_674133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674133.jpg" />
 </div>
 
 

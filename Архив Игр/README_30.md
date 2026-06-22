@@ -6,7 +6,7 @@ Spec Ops: The Line (Steam-Rip/1.0) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645056.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru] 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644823.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Day One: Garry's Incident (2013) [En] (1.0.9953.0/dlc) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644793.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Spec Ops: The Line [Ru/En] (LossLess RePack/1.0.6890.0) 2012 l R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644685.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2/DLC) [Ru] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644680.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Spec Ops: The Line (RePack/1.0.6890.0/DLC) [Ru] 2012 l UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644676.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Spec Ops: The Line [Ru/En] (Lossless RePack/1.0.6890.0)  2012 l R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644668.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644564.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Spec Ops: The Line (Steam-Rip/1.0.6890.0) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644552.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Policenauts [PS1] [En, Ja] (1996)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644035.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ BLACKHOLE (2015) [Multi] (1.0.4e/dlc) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642946.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642940.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Dragon Ball Xenoverse (2015) [Ru/Multi] (1.0.7.00/dlc) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642939.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.20/dlc) Repack xatab [Gold Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642357.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ The Chronicles of Narnia: Prince Caspian [Wii] [PAL] [France] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641813.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641311.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Hoodwink [Multi8\+] (RePack/1.0) 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640842.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru/En] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640465.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Northgard (2018) [Ru/Multi] (1.6.12610/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638701.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Walking Dead: Episode 1,2 (RePack) [Ru/En] 2012 l Audioslave {обновля
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638540.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dead Space Дилогия [Ru/En] (RePack) 2008-2011 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638537.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Double Dragon: Neon (2014) [En] (1.0 upd2) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637960.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Banner Saga (2014) [Ru/Multi] (2.6.61/3dlc) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637951.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Breach & Clear: Deadline (2015) [Ru/Multi] (1.09) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637542.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Gas Guzzlers Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) License PROPHET [Gold Pack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635549.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Shank 2 (RePack/1.0dc120305) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635216.jpg" />
 </div>
 
 

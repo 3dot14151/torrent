@@ -1,3 +1,38 @@
+###  Публикация: 357562   (580962) от 07.07.2011
+
+Random Hand - Seething is Believing (2011) [MP3|320 kbps]<Ska-core>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580962.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tales Of Intervention (2:41)
+2. Sons Of Robots (2:19)
+3. Not A Number (4:33)
+4. Three From Six (3:16)
+5. Floating Ghosts (4:14)
+6. Bones (3:07)
+7. Due To Circumstance (2:32)
+8. Start The Fans (2:20)
+9. Find What's Out There (3:30)
+10. Henchmen (3:43)(   Читать дальше...)Жанр: Ska-coreПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E089C74602E6D42AEF733435AFC607BE026BBD79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920464   (579089) от 23.07.2015
 
 Kirastas - Iru Hanum (2015) [MP3|320 кб/с]<Alternative, Art Rock>
@@ -6,7 +41,7 @@ Kirastas - Iru Hanum (2015) [MP3|320 кб/с]<Alternative, Art Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579089.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Sophia (Robin Proper-Sheppard) - As We Make Our Way (Unknown Harbours) (2016) [M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578384.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Cabin Boy Jumped Ship - 3 Albums (2016-2022) [MP3|320 Kbps] <Post-hardcore, Meta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577896.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Five Finger Death Punch - Afterlife (2022) [MP3|209-221 kbps VBR (V0)] <Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577489.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Winter Moon - Make Real, Make Believe (2019) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574443.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ Our Last Night - Younger Dreams (2015) [MP3|320 кб/с]<Post-Hardcore, Alt. Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571509.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ Blue Stahli - The Devil (Remixes) (2018) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570903.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ Richy Nix - Fearless (2015) [MP3|320 кб/с]<Alternative, Post Hardcore, Rap Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569874.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ Bobaflex - Anything That Moves (2015) [MP3|320 кб/с]<Alternative, Nu Metal, H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569872.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ Useless ID - The Lost Broken Bones (2015) [MP3|320 кб/с]<Pop Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569864.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ Killswitch Engage - Live at the Palladium (2022) [MP3|320 Kbps] <Alternative, Me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568916.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ Memphis May Fire - Remade In Misery (2022) [MP3|320 kbps] <Metalcore, Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568738.jpg" />
 </div>
 
 
@@ -355,7 +390,7 @@ Big Talk - Straight In No Kissin’ (2015) [OGG| 492-540 кб/с]<Alternative, I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568215.jpg" />
 </div>
 
 
@@ -384,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567273.jpg" />
 </div>
 
 
@@ -413,7 +448,7 @@ Foster the People - Sacred Hearts Club (2017) [MP3|320 Kbps] <Alternative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567076.jpg" />
 </div>
 
 
@@ -442,7 +477,7 @@ Alesana - Confessions (2015) [MP3|320 кб/с]<Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566608.jpg" />
 </div>
 
 
@@ -471,7 +506,7 @@ Mary Lou Lord - Backstreet Angels (2015) [OGG| 415-510 кб/с]<Alternative, Fol
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566602.jpg" />
 </div>
 
 
@@ -500,7 +535,7 @@ Kopecky - Drug For The Modern Age (2015) [OGG|430-505 кб/с]<Alternative, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564625.jpg" />
 </div>
 
 
@@ -529,7 +564,7 @@ Placebo - B-Sides (2015) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564486.jpg" />
 </div>
 
 
@@ -558,7 +593,7 @@ Saint Asonia - Saint Asonia (2015) [MP3|320 кб/с]<Alt. Metal, Modern Hard Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564386.jpg" />
 </div>
 
 
@@ -587,7 +622,7 @@ Kopecky Family Band - Kids Raising Kids (2012) [OGG| 441-506 кб/с]<Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562846.jpg" />
 </div>
 
 
@@ -616,7 +651,7 @@ The Cranberries - Дискография [78 релизов] (1991-2012) [MP3|32
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562293.jpg" />
 </div>
 
 
@@ -642,7 +677,7 @@ Blur (Seymour) - 21 (Limited Edition, Box Set) (2012) [MP3|320 kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560733.jpg" />
 </div>
 
 
@@ -678,7 +713,7 @@ Finger Eleven - Five Crooked Lines (2015) [MP3|320 кб/с]<Alternative Rock, Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560645.jpg" />
 </div>
 
 
@@ -707,7 +742,7 @@ Barb Wire Dolls - Rub My Mind (2017) Silver Lining Music, Motörhead Music [MP3|
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558664.jpg" />
 </div>
 
 
@@ -721,35 +756,6 @@ Barb Wire Dolls - Rub My Mind (2017) Silver Lining Music, Motörhead Music [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:280BB255EF4C8EBBE32873B3D68F0408366F3C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305628   (555933) от 02.06.2019
-
-Печной Сверчок - Ненависть (2019) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ненависть
-02.Розовые пони
-03.Тоска
-04.Пепел(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C571E3AF9CE97E677C0E9A062D76976FFB11D61F
 ```
 
 https://mybot314.ru/tekegram_catalog/

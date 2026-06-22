@@ -1,3 +1,83 @@
+###  Публикация: 641877   (882860) от 09.04.2013
+
+Рецепт колдуньи (2003) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на обилие «рецептов счастья», каждый составляет его для себя сам, из подручных средств и имеющихся ингредиентов. У бывшей балерины Полины Горчаковой есть любящий муж-бизнесмен, семейный комфорт и достаток в доме. Однако для полного счастья ей не хватает главного — ребенка.На что готова пойти Полина, подталкиваемая деловой и напористой подругой Люсей? На (   Читать дальше...   )Жанр: МелодрамаРежиссер: Татьяна ВоронецкаяАктеры: Амалия Мордвинова, Наташа Королёва, Виктор Раков, Александр Лазарев, мл. Татьяна Васильева, Елена Караджова, Дарья Шаталина, Игорь Орщуляк, Григорий Данцигер, Евгений Карельских.Продолжительность: 01:32:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641674   (882718) от 09.04.2013
+
+Ты у меня одна (1993) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший боксер, а ныне — рядовой инженер, Евгений Тимошин получает возможность изменить свою жизнь к лучшему. Его зовет с собой в Америку молодая, красивая, богатая женщина, которая с детства в него влюблена. Но Тимошин любит свою жену, и никогда не мечтал об Америке…Производство: РоссияЖанр: ДрамаРежиссер: Дмитрий АстраханАктеры: Александр Збруев, Светлана Рябова, Марина Неелова, Александр Лыков, Ирина Мазуркевич, Виктор Гоголев, Андрей Федорцов, Анатолий Журавлев, Владимир Труханов, Сергей Лысов, Анна Банщикова, Ольга Васильева (Назарова)...Продолжительность: 01:35:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 136519   (877985) от 07.04.2020
+
+Комедия строгого режима (1992) DVD5
+
+>>След.
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в одной колонии строгого режима. Приближается дата 100-летия со дня рождения Ленина (то есть 1970 год). Для того, чтобы продемонстрировать перед вышестоящим начальством культмассовую работу, руководство колонии решает подготовить к юбилею спектакль, посвящённый революции. А в этом спектакле главные роли должны сыграть заключённые.
+
+Заключённых (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Михаил Григорьев, Владимир СтуденниковАктеры: Виктор Сухоруков, Иван Криворучко, Лев Кубарев, Станислав Концевич, Виктор Михайлов, Виктор Соловьев, Юрий Вьюшин, Константин Демидов, Владимир Калиш, Анатолий СливниковСубтитры: отсутствуютПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01270E01DF3A5F0EF2984137C9E2ADE7DE7CA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187059   (876518) от 28.03.2010
 
 Даун Хаус (2001) DVD5
@@ -6,7 +86,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876518.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866193.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863300.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856482.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854994.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835773.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829574.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828522.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825972.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825324.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823439.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811116.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810271.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810151.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808723.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808322.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801122.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790960.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787284.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781561.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778589.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773061.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772282.jpg" />
 </div>
 
 
@@ -604,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D29DF1D5E8710980FAC9CC0861E48BACD6C7B5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211298   (765836) от 29.01.2019
-
-Принцесса на бобах (1997) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен из «новых русских» Димa Пупкoв с помощью фиктивного брака решает поменять свою неблагозвучную фамилию на престижную. Его знакомят с... посудомойкой Ниной, которая, как выяснилось, принадлежит к знаменитому роду Шереметьевых. Она с трудом перебивается на нескольких работах и, как кажется Диме, легко согласится на выгодное предложение. Однако оказалось, что (   Читать дальше...   )Жанр: Мелодрама, КомедияРежиссер: Виллен НовакАктеры: Мамука Кикалейшвили, Владимир Конкин, Сергей Жигунов, Елена Сафонова, Антон Бондаренко, Владислав Дружинин, Владислав Галкин, А. Кузьменков, Ульяна Лаптева, Борис Молодан, Александра НазароваСубтитры: русскиеПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2513C3BBED8731F3092C7C04C5FFAA1A991BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523444   (751269) от 11.01.2022
-
-Серебряные коньки (2020) DVD9 [Custom]
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751269.jpg" />
-</div>
-
-
-###  Подробнее
-
-1899 год, рождественский Петербург. Яркая праздничная жизнь бурлит на скованных льдом реках и каналах столицы. Накануне нового столетия судьба сводит тех, кому, казалось бы, не суждено было встретиться. Люди из совершенно разных миров, Матвей — сын фонарщика, его единственное богатство — доставшиеся по наследству посеребренные коньки; Алиса — дочь крупного сановника, (   Читать дальше...   )Производство: Россия / Централ Партнершип, ГПМ КИТ, Кинослово, Студия ТритэЖанр: Мелодрама, приключения, драмаРежиссер: Михаил ЛокшинАктеры: Федор Федотов, Софья Присс, Алексей Гуськов, Северия Янушаускайте, Кирилл Зайцев, Юра Борисов, Тимофей Трибунцев, Юрий Колокольников, Сергей Колтаков, Василий КопейкинПеревод: Не требуется (Русский)Субтитры: Русские (forced, full (SDH)), итальянскиеПродолжительность: 02:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDE2FA24A2AC77A5FE5039343F334B0F02CEC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206303   (750529) от 01.06.2010
-
-И была война (2009) DVD5 (1-3 серии из 3)
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_750529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Июнь 1941. Два молодых деревенских парня застигнуты врасплох начавшейся войной. Один из них получает повестку в военкомат (он уже достиг призывного возраста), хотя вовсе не горит желанием идти на фронт. Другой, ярый комсомолец, несмотря на свои 17 лет идет в ополчение добровольно. Ускоренные военные курсы, оборвавшаяся первая любовь — и взвод ополченцев с нашими (   Читать дальше...   )Производство: Россия, Z-синематикЖанр: ВоенныйРежиссер: Алексей ФеоктистовАктеры: Анна Ковальчук, Алексей Панин, Алексей Булдаков, Анатолий Кузнецов, Борис Клюев, Анатолий Котенев, Виктор Проскурин, Сергей РубекоСубтитры: отсутствуютПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

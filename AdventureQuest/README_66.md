@@ -1,3 +1,133 @@
+###  Публикация: 1670381   (169624) от 27.10.2023
+
+Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами модернизированная версия классического романа Агаты Кристи. На сей раз события «Убийства в Восточном экспрессе» разворачиваются в 2023 году: новая интерпретация классического сюжета удивит самых преданных фанатов. Новые подробности добавляют напряжения и таинственности оригинальной истории. Откройте для себя заново одно из самых знаменитых дел Эркюля Пуаро!Тип издания: SceneРазработчик: Microids Studio LyonЖанр: Action, Adventure, SimulationЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7778504A9FEC33691B3651CD9717A29C41F1C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430512   (169154) от 11.12.2020
+
+Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unto The End – зрелищный рисованный платформер о долгой и трудной дороге домой. Овладейте мастерством боев на мечах, наблюдая за врагами и импровизируя. Используйте артефакты и выменивайте припасы. Напишите своими деяниями историю о возвращении в родной дом.Тип издания: RepackРазработчик: 2 Ton StudiosЖанр: Adventure (Platform), Action, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C3F64436A16E0B2A3D6BCC251F971BEBE3C006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671571   (168649) от 28.10.2023
+
+Slay the Princess (2023) [En] (20231024) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы идете по лесной тропе, и в конце этой тропы стоит хижина. А в подвале этой хижины находится Принцесса. Ты здесь, чтобы убить ее. Если вы этого не сделаете, это будет конец света. Она сделает все, что в ее силах, чтобы остановить вас. Она очарует, и она солжет, и она пообещает тебе мир, и если ты позволишь ей, она убьет тебя дюжину раз. Вы не можете позволить этому (   Читать дальше...   )Тип издания: SceneРазработчик: Black Tabby GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8309275CE3905D501055C9CCFA21B0A8C0843D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596902   (167833) от 12.12.2022
+
+Titan Station (2022) [Ru/Multi] (1.2) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Titan Station — это однопользовательская мистерия от первого лица, действие которой разворачивается в ретро-фантастической вселенной. В далеком 1999 году Дэвид бежит от проблем, устраиваясь системным оператором на космическую станцию. Однако, привычная работа на станции превращается в борьбу за выживание, когда Дэвид делает шокирующее открытие.Тип издания: RepackРазработчик: Joakim LarsenЖанр: Adventure (Space), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66817403CC2AE8BF89B2D9986A39C57ECFFB51A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337552   (167731) от 13.12.2019
+
+Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8109/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров. Trine 4 предложит вам как одиночное, так и кооперативное прохождение с множеством (   Читать дальше...   )Тип издания: RepackРазработчик: FrozenbyteЖанр: Action, Adventure, PlatformerЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358B545EC98D6AE52FBA8C7ED2594C8078755EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672605   (167497) от 29.10.2023
 
 Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
@@ -6,7 +136,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167497.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167008.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.1116.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167007.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165987.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164520.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163764.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163566.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163507.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163501.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163204.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162644.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162240.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162236.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162229.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162011.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161918.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161818.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Scrapland Remastered (2021) [Ru/Multi] (1.1/1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161765.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161617.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161560.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161552.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Skabma - Snowfall погружает нас в мир преданий и кул
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84BC7D106F7E7CC565362A5B84F200F2EF656BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674510   (160914) от 05.11.2023
-
-Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAiRLIGHT
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Нуну и Виллумпу - закадычным друзьям, путешествующим по морозным просторам Фрельйорда. В странствии по прекрасным, но коварным землям мальчик и йети все теснее привязываются друг к другу. Вместе они обретают новых союзников и противников, и ведут их семья, дружба и волшебство. Song of Nunu: A League of Legends Story - это однопользовательская сюжетная (   Читать дальше...   )Тип издания: SceneРазработчик: Tequila WorksЖанр: Приключение, Экшны, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, Турецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59C8E33DCB8F37F674EC45F5AA58E661CFD2BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674435   (160882) от 05.11.2023
-
-The Talos Principle 2 (2023) [Ru/Multi] (673723) Scene FairLight
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160882.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Talos Principle 2 предлагает увлекательный и заставляющий задуматься опыт для поклонников первой части. Переносясь в мир, лишенный остатков человечества, но наполненный остатками их культуры, игроки оказываются в роботизированном городе внутри таинственной мегаструктуры, хранящей секреты вселенной и судьбу цивилизации. В отличие от типичной головоломки, The Talos (   Читать дальше...   )Тип издания: SceneРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F0D648136B823BAE23535CB3EAA8CB4631F008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674601   (160784) от 06.11.2023
-
-Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enypnion Redreamed представляет собой удивительное путешествие в мир снов, где границы реальности смутны, а возможности безграничны. Игроки погружаются в атмосферу мистики и открытий, ведь каждый уровень несет в себе уникальные загадки и тайны. Этот виртуальный мир сновидений манит своей непредсказуемостью и открывает перед игроками безбрежные просторы воображения.Тип издания: LicenseРазработчик: Sinking Sheep, Dionous GamesЖанр: Приключение, Головоломка, ExplorationЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8D0AE71D6B40D9A47BAD41A3942FC2C82D3057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674612   (160748) от 06.11.2023
-
-The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune [Episodes 1-6]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте поразительную вселенную The Expanse в уникальном приключении от Telltale под названием The Expanse: A Telltale Series. Вы можете обшаривать обломки кораблекрушения в невесомости, сражаться с пиратами или заниматься чем-то ещё, но придётся постоянно делать выбор, который повлияет на последующий ход игры. Кара Джи (Cara Gee) в роли Камины Драммер поможет (   Читать дальше...   )Тип издания: SceneРазработчик: Deck NineЖанр: Экшены, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674632   (160738) от 06.11.2023
-
-The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160738.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1979 году Адам, криптоаналитик, работающий на ЦРУ, переезжает из Бостона в загородный домик вместе со своей женой Эммой. Кураторы сомневаются, что там он будет в безопасности, тем не мене Адам считает, что расшифровать военный код ему удастся лишь находясь в тишине на природе. От его работы может зависеть исход Холодной войны. К сожалению, отыскать спокойствие (   Читать дальше...   )Тип издания: LicenseРазработчик: Illusion Ray StudioЖанр: Adventure, Action (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

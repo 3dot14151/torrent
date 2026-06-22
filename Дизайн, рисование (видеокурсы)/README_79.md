@@ -6,7 +6,7 @@ Blender Studio, Simon Thommes | Geometry Nodes from Scratch (2022) PCRec [EN / E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183515.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FlippedNormals, Ben Erdt | Advanced Character Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183359.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Udemy, Artem Daysun | Create a 3D Game Asset in Blender & Substance Painter - Vi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183349.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182971.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VFX Grace | Houdini Tutorial Volcanic Eruption (2021) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182932.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ FlippedNormals, Chunck Trafagander | UV развёртка для игр в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182908.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ CGcircuit, Diogo Guerreiro | The Faroe Islands in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182877.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Gumroad, Emilis Baltrusaitis | Monsoon – Tutorial Large Scale Environment Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182863.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Wingfox, Ors Barczy | Use Arnold for Lighting, Rendering and Compositing (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182845.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Liveclasses, Дмитрий Ларионов | Fusion в DaVinci Resolve: быс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182745.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Udemy, Кирилл Несмелов | Создание сайта в Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182723.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Udemy, Кирилл Несмелов | Профессия Ui/Ux веб-диза�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182570.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Domestika, Gemma Roman | Adobe Photoshop for Illustration (2022) WEB-DL [ES / ES
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182130.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181459.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ lectoroom, Елизавета Залегина | Натюрморт «Завтр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181290.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gumroad, FlippedNormals, Tim Bergholz | Полное Руководство По
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181249.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Stepik, Askarov Workshop | Рисунок карандашом - построе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181125.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Udemy, VFX 3D Pro | PolyModeling in Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181115.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181084.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Skillbox, Евгений Тонконогий | Иллюстрация на iPad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181043.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Kalyakin School, Максим Калякин | Дизайн персонажей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180693.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Gumroad, FlyCat | Cyberpunk Style Girl Blender Modeling (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180687.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180660.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ CG Cookie, Chris Kuhn | Риггинг транспорта в Blender 2.6 / Rig
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180635.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180626.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ CG Cookie, Louis du Mont | Создание анимированного жут�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180617.jpg" />
 </div>
 
 

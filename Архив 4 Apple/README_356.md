@@ -1,3 +1,31 @@
+###  Публикация: 1054085   (494325) от 19.09.2016
+
+SimpleMind 1.14.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
+
+SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: SimpleappsПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7AC1A7D4BF966C1796EA2A32D3EBC77ECB63492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318441   (494284) от 06.08.2019
 
 Tropico 6 v4.20.2 (2019) [Multi/Ru] [macOS Native game]
@@ -6,7 +34,7 @@ Tropico 6 v4.20.2 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494284.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ GraphicConverter 10.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494223.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Screens 4.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494127.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Lyn 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494123.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ iMazing 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494081.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ NetWorker - Advanced Network Information App 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493837.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ Canary Mail 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493713.jpg" />
 </div>
 
 
@@ -200,7 +228,7 @@ iWatermark Pro 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493695.jpg" />
 </div>
 
 
@@ -227,7 +255,7 @@ CleanMyMac X 4.0.0b3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493677.jpg" />
 </div>
 
 
@@ -256,7 +284,7 @@ iSkysoft iMedia Converter Deluxe 10.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493558.jpg" />
 </div>
 
 
@@ -284,7 +312,7 @@ WiFi Scanner 2.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493398.jpg" />
 </div>
 
 
@@ -310,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492939.jpg" />
 </div>
 
 
@@ -336,7 +364,7 @@ Stats 2.7.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492681.jpg" />
 </div>
 
 
@@ -362,7 +390,7 @@ SyncBird Pro 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492678.jpg" />
 </div>
 
 
@@ -388,7 +416,7 @@ Tipard Screen Capture 1.1.18 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492676.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ Things 3 v3.15.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492599.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ WidsMob Viewer Pro 2.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492459.jpg" />
 </div>
 
 
@@ -467,7 +495,7 @@ Omni Recover 3 v3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492457.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ Fix My iPhone 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492436.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ X Lossless Decoder 20160920 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492369.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ Data Rescue 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492122.jpg" />
 </div>
 
 
@@ -580,7 +608,7 @@ Leaf - RSS News Reader 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492095.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ beaTunes 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492092.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ iStat Menus 5.32 (730) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492088.jpg" />
 </div>
 
 
@@ -667,7 +695,7 @@ Parallels Desktop Business Edition 11.0.1 (31277) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491219.jpg" />
 </div>
 
 
@@ -678,32 +706,6 @@ Parallels Desktop Business Edition 11.0.1 (31277) [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7EA601DDDAD68F9C879BFD3273243181BAEB7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565771   (490511) от 25.07.2022
-
-ProFind 1.14.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DA2FD7A9971F040FF62B2CF74731C150AC3868
 ```
 
 https://mybot314.ru/tekegram_catalog/

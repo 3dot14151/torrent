@@ -6,7 +6,7 @@ Forecast Bar 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662155.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ URL Extractor 4.5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661295.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Translator & Dictionary 1.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661198.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Movavi Picverse Photo Editor 7.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661183.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ GlanceCal 1.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660342.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Scrutiny 10 v10.4.17 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660339.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ GroupsPro 5.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660334.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cocktail Big Sur Edition 14.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660268.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ TangerineWallpaper 1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660254.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Graphics for iWork 3.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660187.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Layout Lab - Templates for Keynote 3.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660112.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Infographics Lab for Pages - Templates Bundle 3.1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660100.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Infographics Lab for Keynote - Templates Bundle 3.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659912.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ MAGIX SOUND FORGE Pro Mac v3.0.0 (100) CE [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659548.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sketch 50.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659546.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Elements Lab - Templates for iWork 3.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659196.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Theme Lab - Templates for Keynote 5.1.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659074.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ephnic Movie Maker 2.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658995.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Expert Set - Templates for Pages, Keynote, Numbers 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658904.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Mail Stationery Expert - Templates for Mail 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658123.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Photo Album Expert - Templates for Adobe Photoshop 3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657711.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Escape 2 v2.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656919.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ CollageIt 3 Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656178.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656163.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Mac Video Downloader 2.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655118.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Video Copilot - Heat Distortion 1.0.30 for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655110.jpg" />
 </div>
 
 

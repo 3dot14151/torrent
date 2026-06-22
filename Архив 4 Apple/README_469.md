@@ -1,3 +1,59 @@
+###  Публикация: 1081005   (286561) от 08.12.2016
+
+Circular Studio 1.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Circular Studio  - новый поворот в редактировании фотографий. Превратите ваши фотографии в удивительные круговые изображения.
+Circular Studio  веселое приложение с мощными новыми возможностями, вы можете легко увеличивать и уменьшать масштаб вашего круговой изображения. Добавьте профессиональные эффекты, такие как блики и небесные объекты: солнце, луна, птицы и т.д. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83A27D8968AA8FEC6274D1D1F71482449536679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081063   (286455) от 08.12.2016
+
+SkyLab Studio 1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286455.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вдохновленный своей собственной любовью к красивому небу".
+SkyLab Studio - изменит ваше представление о небе на фотографии.
+Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5CD1738434F9C7C948505F558017165ED2FCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080849   (286447) от 08.12.2016
 
 OmniGraffle Pro 7.2.1 [Multi/Ru]
@@ -6,7 +62,7 @@ OmniGraffle Pro 7.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286447.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ LensFlare Studio 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286437.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ DriveDx 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286370.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ Find Any File 2.0.1b6 (216)  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286347.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ Disk Xray 2.7.1 (build 27110) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286345.jpg" />
 </div>
 
 
@@ -143,7 +199,7 @@ iCollections 5.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286344.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ Athentech Perfectly Clear Complete 3.8.0.1688 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286343.jpg" />
 </div>
 
 
@@ -197,7 +253,7 @@ DoubleTake 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286311.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ Luminar 2018 v1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286224.jpg" />
 </div>
 
 
@@ -251,7 +307,7 @@ AppDelete 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285912.jpg" />
 </div>
 
 
@@ -280,7 +336,7 @@ Bootstrap Studio 4.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285836.jpg" />
 </div>
 
 
@@ -308,7 +364,7 @@ Live Home 3D Pro Edition 3.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285823.jpg" />
 </div>
 
 
@@ -336,7 +392,7 @@ Beamer 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285787.jpg" />
 </div>
 
 
@@ -364,7 +420,7 @@ Disk Drill Enterprise 3.5.872 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285650.jpg" />
 </div>
 
 
@@ -391,7 +447,7 @@ Affinity Designer 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285622.jpg" />
 </div>
 
 
@@ -420,7 +476,7 @@ Pacifist 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285507.jpg" />
 </div>
 
 
@@ -449,7 +505,7 @@ Bartender 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285123.jpg" />
 </div>
 
 
@@ -476,7 +532,7 @@ XMind 7 Pro 3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285122.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ OS X El Capitan 10.11.2 (15C50) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285043.jpg" />
 </div>
 
 
@@ -529,7 +585,7 @@ AnyTrans 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284899.jpg" />
 </div>
 
 
@@ -556,7 +612,7 @@ DropDMG 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284897.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ SpamSieve 2.9.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284887.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ Alfred Powerpack 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284786.jpg" />
 </div>
 
 
@@ -641,7 +697,7 @@ UninstallPKG 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284772.jpg" />
 </div>
 
 
@@ -654,60 +710,6 @@ UninstallPKG может использоваться для очистки св�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA8A450F26A787619253D65629ECC2F1CA5E84DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186857   (284743) от 26.11.2017
-
-PullTube 0.10.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.
-
-PullTube предлагает Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2017Разработчик: MyMixAppsПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD915FC24FB3C7A26EAD097653FC79A07036185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081314   (284741) от 09.12.2016
-
-Hazel 4.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 ноября 2016Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667D2BB13A7EF0C5A68595D385B19575101B1C26
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Scott Ellison - Cold Hard Cash (2001) [APE|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_404061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_404061.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Coyote Kings - Large Band Extravaganza! (2009) [APE|Lossless|image + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403989.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tommy Castro & The Painkillers - Stompin' Ground (2017) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403933.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ JJ Grey & Mofro - Brighter Days (Live) (2011) [FLAC|Lossless|tracks + .cue] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402464.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tom Waits - 11 Japan SHM-CD / Mini LP (1973-1988) [FLAC (image+.cue)|Lossless]<B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399116.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Burton Gaar - Fried Grits & Greens (2011) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389404.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Bugs Henderson Group - Backbop (1998) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389399.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Bryan Lee - My Lady Don't Love My Lady (2009) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388273.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Bad Luck Friday - Bad Luck Friday (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387917.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Sweet Scarlett - Sell Your Ticket (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387897.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ William Shatner - The Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, AO
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387870.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - 100 Hits - Ultimate Soul (2016) 5CD, Box Set [FLAC|Lossless|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386833.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Brian Cober - Real Far Gone (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386146.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bobby Messano - That's Why I Don't Sing the Blues (2011) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_385946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385946.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Bobby Radcliff - Natural Ball (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_385886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385886.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Bob Dylan - The Best of The Bootleg Series (2020) [FLAC|Lossless|WEB-DL|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385376.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Janiva Magness - Janiva Magness Sings John Fogerty: Change in the Weather (2019)
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383389.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Calvin Owens Band - Keeping Big Band Blues Alive (2004) [FLAC|Lossless]<Modern E
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_381489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381489.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Stevie Ray Vaughan and Double Trouble - 16 Albums, 3 Box-Set (57 CD) (1983-2018)
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381238.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Terry Davidson & The Gears - Leave Here Runnin (2004) [APE|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380873.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Snowy White And The White Flames - Something On Me (2020) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378407.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Doyle Bramhall II - Rich Man (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378170.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Eric Clapton - Happy Xmas (2018) Surfdog Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377278.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Hot Monkey Love - Speakin' Evil (2007) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376628.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Samantha Fish - Kill Or Be Kind (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376617.jpg" />
 </div>
 
 
@@ -778,7 +778,7 @@ Savoy Brown - Witchy Feelin (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376462.jpg" />
 </div>
 
 

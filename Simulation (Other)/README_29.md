@@ -1,55 +1,3 @@
-###  Публикация: 1758782   (38311) от 04.11.2024
-
-Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждет большое приключение с Barbie™: Барби и Барби вместе пытаются спасти любимую достопримечательность Малибу - общественный центр Malibu Waves! Некогда процветающий центр теперь заброшен и находится на грани закрытия. Пришло время объединить усилия, чтобы вернуть любимому общественному центру былую славу.Тип издания: SceneРазработчик: Xaloc Studios, Casual Brothers Ltd.Жанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578E1F97B9E3CFFB0FE640F0D6C2F0C0AB4E30AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758762   (38293) от 04.11.2024
-
-Alchemist: The Potion Monger (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alchemist: The Potion Monger – это смесь причудливой головоломки и элементов ролевой игры! Скорее уйдите из собственной лаборатории, чтобы отправиться навстречу исследованиям обширного мира. Так чего же вы ждете? Превратитесь в ученика, которому предстоит освоить искусство алхимии в мире, где живут необычные антропоморфные существа. Причем все они максимально похожи (   Читать дальше...   )Тип издания: SceneРазработчик: Art Games Studio S.A.Жанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CE9A3ED05C76311D2FB6F3E6CA718A9FA06DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758914   (38232) от 05.11.2024
 
 Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack LetsPlay [Game of the Year Edition]
@@ -58,7 +6,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack LetsPlay [Game of the Year Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38232.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37962.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37958.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Techtonica (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37918.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37833.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (1.37.15252.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37811.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (build 16167669/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37753.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.0.5/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37717.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37710.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Bus Simulator 21 Next Stop (2021) [Ru/Multi] (2.34) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37707.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Dystopika (2024) [Ru/Multi] (1.1.3+504) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37697.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37490.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.2.1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37428.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37340.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Aquarist (2024) [Ru/Multi] (20241113/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37107.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36788.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ VIDEOVERSE (2023) [En] (1.2.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36705.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Ultimate Admiral: Dreadnoughts (2023) [Ru/Multi] (1.6.1.3) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36694.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36654.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36519.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36475.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36133.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36070.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35957.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ House Flipper – увлекательный и интересный в своё
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7465FD0EB8EA1E24EE7CBF7D32AD27428FD93591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715048   (35895) от 28.11.2024
+
+Pacific Drive (2024) [Ru/Multi] (1.8.2/dlc) Repack dixen18 [Deluxe Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pacific Drive - это атмосферное автомобильное приключение на выживание в зоне отчуждения. Здесь вы не найдете привычных гоночных трасс, но зато на вас будут поджидать сверхъестественные опасности, которые заставят вас сильно напрячься. Единственный шанс на спасение - ваша машина, которую придется укреплять и улучшать на протяжении всей игры. Придется искать ресурсы (   Читать дальше...   )Тип издания: RepackРазработчик: Ironwood StudiosЖанр: Экшены, Приключенческие игры, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3C23BEEAFA37B6973DB8F883A3BFF9FEC69D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763049   (35768) от 29.11.2024
+
+Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в увлекательное приключение на остров Лума, в одиночку или с вашими друзьями и близкими. Постройте ферму своей мечты, освойте профессии, соберите магических Лумов, найдите сокровища и разгадайте тайны острова. Начните удивительное путешествие в старом, уютном трейлере и постройте настоящее поместье, которое можете с гордостью назвать своим домом.Тип издания: RepackРазработчик: Feel Free GamesЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFD6829D0A124385CB0A41859853A7BA4E9841D
 ```
 
 https://mybot314.ru/tekegram_catalog/

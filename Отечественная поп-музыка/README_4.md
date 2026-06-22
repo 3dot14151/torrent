@@ -1,3 +1,90 @@
+###  Публикация: 1363674   (941011) от 29.02.2020
+
+СтеклоVата - Льдинкой по стеклу (2003) [MP3|320 Kbps] <Europop, Novelty, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стекловата [03:56]
+02. Просто Осень [04:28]
+03. Тает Снег [03:32]
+04. Прости [03:19](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BCFA3867A995210FC9767EF590B6F3627BDFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363625   (940933) от 29.02.2020
+
+Лика - Больше, чем любовь (1996) [MP3|320 Kbps] <Pop, Progressive House, Happy Hardcore>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокая луна (Молитва) (Original Version) (4:17)
+02. Вспоминай (Original Version) (4:58)
+03. Танцуй со мной, мой мальчик (4:59)
+04. Би-би такси (Remix) (4:34)(   Читать дальше...   )Жанр: Pop, Progressive House, Happy HardcoreПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC31A4BE5CC053E1BC2F85BA9E750AD667610E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363677   (940931) от 29.02.2020
+
+СтеклоVата - Острожно - хрупкое (2003) [MP3|320 Kbps] <Europop, Novelty, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Февральский снег [03:34]
+02. 31 и 13 [03:59]
+03. Дневник [04:50]
+04. Кошка-луна [05:19](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D940EC898A5DA425A1BA350168B8595D3CF250AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363610   (940930) от 29.02.2020
 
 Лариса Черникова - Солнечный город (1999) [MP3|320 Kbps] <Pop, Europop, Euro House>
@@ -6,7 +93,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940930.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940929.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940853.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940750.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940730.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932474.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932238.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932115.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927560.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ EMIN - LOVE IS (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927116.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926044.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923065.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921857.jpg" />
 </div>
 
 
@@ -377,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920556.jpg" />
 </div>
 
 
@@ -406,7 +493,7 @@ Iowa - Remixes (2016) EP [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919074.jpg" />
 </div>
 
 
@@ -435,7 +522,7 @@ VA - В десяточку! 1-15, 17 (16 CD) (1995-2004) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917210.jpg" />
 </div>
 
 
@@ -464,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911024.jpg" />
 </div>
 
 
@@ -493,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908951.jpg" />
 </div>
 
 
@@ -522,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907086.jpg" />
 </div>
 
 
@@ -551,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905854.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905654.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905652.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905650.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A8A0B5D0494A6A848186FC50BDF34F1DD6B24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369162   (905645) от 22.03.2020
-
-Турбомода - Улицы Центральные (2004) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улицы центральные (4:24)
-02. Не целуй её (4:05)
-03. Дождь (4:11)
-04. Не плачь (3:59)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F22C5E29D8A823E30DAEB93B3E25CFBD09F137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369144   (905640) от 22.03.2020
-
-Турбомода - Затурбись! (2001) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позови (4;15)
-02. Турболюбовь (ла-ла-ла) (4:32)
-03. Ты забудешь меня (4:16)
-04. Чонкин (3:37)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58AE2352B3D0D2F245258B10657ABCF0BCCC363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099572   (904765) от 01.02.2017
-
-Дмитрий Маликов - Как не думать о тебе (2017) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904765.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как не думать о тебе
-2. Удиви меня
-3. В мире одиночек
-4. Просто люби(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0B594D163DA0FF79F08AE73861D3BBACCC7BDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

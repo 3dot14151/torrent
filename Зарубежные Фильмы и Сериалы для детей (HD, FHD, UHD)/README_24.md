@@ -1,3 +1,82 @@
+###  Публикация: 1619126   (201285) от 14.03.2023
+
+Матильда / Roald Dahl's Matilda the Musical (2022) BDRip [H.264/1080p-LQ] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая Матильда Вормвуд умна не по годам и обладает выдающимися способностями. Она отправляется на учёбу в школу Кранчем, где правит деспотичная директриса Агата Транчбулл.Производство: Великобритания, США / Working Title Films, Netflix, TriStar PicturesЖанр: мюзикл, фэнтези, комедияРежиссер: Мэттью УорчасАктеры: Алиша Вейр, Эмма Томпсон, Лашана Линч, Стивен Грэм, Андреа Райзборо, Синду Ви, Карл Спенсер.Перевод: Многоголосый профессиональный (Jaskier)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F673FD3585FB2D2A9444808C85E02A61E19A1626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619024   (201265) от 14.03.2023
+
+Хроники Нарнии: Лев, колдунья и волшебный шкаф / The Chronicles of Narnia: The Lion, the Witch and the Wardrobe (2005) BDRip [H.265/1080p] [10-bit]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверых детей родители отправляют из Лондона в деревню, к старому профессору - другу семьи. В его доме дети обнаруживают таинственный платяной шкаф, посредством которого они попадают в сказочную страну Нарнию, где обитают фантастические люди, животные и существа.
+Оказывается, что эта мирная страна находится под властью злой Колдуньи, из-за которой там - вечная зима. (   Читать дальше...   )Производство: США, Великобритания / Walden Media, Walt Disney PicturesЖанр: Фэнтези, драма, приключения, семейный, экранизацияРежиссер: Эндрю АдамсонАктеры: Джорджи Хенли, Скандар Кейнс, Уильям Моусли, Анна Попплуэлл, Тильда Суинтон, Джеймс МакЭвой, Джим Бродбент, Киран Шах, Джеймс Космо, Джуди МакИнтошПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1F4204B206DC5051BDBC8EE078EF0FC690588F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619952   (201185) от 18.03.2023
+
+Эллиот и волшебный амулет / Wickensburg (2022) WEB-DL [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201185.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти отца Эллиот с матерью переезжают в мрачный городишко Викенсбург, где мальчик тут же знакомится с Уиллоу, считающей себя ведьмой. Она рассказывает о проклятье, которое было наложено на город более древними ведьмами, и о злом колдуне, который по возвращении уничтожит его. Распутывание загадки, связанной с этим проклятьем, приводит детей к новому предприятию (   Читать дальше...   )Производство: Канада, Wickensburg Film StudiosЖанр: приключения, семейныйРежиссер: Ричард БоддингтонАктеры: Дженсен Геринг, Кэтрин Уайт, Дениз Ричардс, Сэм Эш Арнольд, Пиппа, Джулиан Ричингс, Стив Байерс, Леа Пинсент, Морис Дин Винт, Натаниэл БэйконПеревод: дублированный (iTunes)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8677C1A48D4C0B8D2A9C51A0C1B196501AF9BF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623605   (200499) от 02.04.2023
 
 Одни на каникулах / Hotel Sinestra (2022) WEB-DL [H.264/1080p]
@@ -6,7 +85,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200499.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200143.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199663.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199625.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199572.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199270.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199174.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199104.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199060.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198986.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198976.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198904.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198783.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198714.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198691.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198572.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198501.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197279.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196928.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196335.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196181.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196151.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195711.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C1851A566FB0834F86CF9320E5291BC10732DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648860   (195281) от 25.07.2023
-
-Русалочка / The Little Mermaid (2023) WEB-DLRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русалочка Ариэль из любви к человеческому принцу идёт на сделку с ведьмой Урсулой. Та даёт ей ноги, но взамен забирает голос.Производство: США / Walt Disney Pictures, Lucamar Productions, Marc Platt ProductionsЖанр: фэнтези, мелодрама, мюзиклРежиссер: Роб МаршаллАктеры: Холли Бейли, Джона Хауэр-Кинг, Мелисса Маккарти, Хавьер Бардем, Нома Думезвени, Арт Малик, Давид Диггс, Джейкоб Тремблей, Аквафина, Джессика АлександрПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 02:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1056880515E51E3F1B078D0CCD3796D104FA6929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648857   (195257) от 25.07.2023
-
-Русалочка / The Little Mermaid (2023) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русалочка Ариэль из любви к человеческому принцу идёт на сделку с ведьмой Урсулой. Та даёт ей ноги, но взамен забирает голос.Производство: США / Walt Disney Pictures, Lucamar Productions, Marc Platt ProductionsЖанр: фэнтези, мелодрама, мюзиклРежиссер: Роб МаршаллАктеры: Холли Бейли, Джона Хауэр-Кинг, Мелисса Маккарти, Хавьер Бардем, Нома Думезвени, Арт Малик, Давид Диггс, Джейкоб Тремблей, Аквафина, Джессика АлександрПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 02:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDAC8B612A2F717559CE1AC3B8EFA31734F6249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649480   (195175) от 27.07.2023
-
-Русалочка / The Little Mermaid (2023) WEB-DLRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русалочка Ариэль из любви к человеческому принцу идёт на сделку с ведьмой Урсулой. Та даёт ей ноги, но взамен забирает голос.Производство: США / Walt Disney Pictures, Lucamar Productions, Marc Platt ProductionsЖанр: фэнтези, мелодрама, мюзиклРежиссер: Роб МаршаллАктеры: Холли Бейли, Джона Хауэр-Кинг, Мелисса Маккарти, Хавьер Бардем, Нома Думезвени, Арт Малик, Давид Диггс, Джейкоб Тремблей, Аквафина, Джессика АлександрПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FEE739A2F1D5C791B4B77DF129FE503008D2C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

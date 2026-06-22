@@ -1,3 +1,87 @@
+###  Публикация: 615513   (977095) от 08.02.2013
+
+Роберт Джордан | Цикл - «Колесо Времени» (15 книг + варианты перевода) [1998-2010] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977095.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Колесо Времени» - эпические борьба и превозмогание.
+ Тёмный - внемировая сущность, стремящаяся разрушить Узор Мира - был выпущен на свободу в результате поисков новых видов магии - и началась многолетняя война, едва не погубившая человечество (и не только). В конце-концов Льюис Терин Теламон, сопровождаемый горсткой сподвижников, прорвался к скважине, впускавшей Тёмного в мир, и запечатал её. Но прежде Тёмный успел наложить проклятие на всю мужскую половину магии людей, обрекая всех мужчин-магов на безумие. И безумцы разрушили мир, изменив очертания земель, заставив людей скитаться в поисках убежища и драться за скудные ресурсы. Следующая тысяча лет прошла в войнах - как междоусобных, так и против не до конца исчезнувшего наследия Тёмного, и силы оставшихся магов-женщин не всегда хватало, чтобы сохранить мир.
+ И вот, прошли годы. Всех мужчин, которые проявляют признаки владения магией, ловят и "усмиряют". Женщины-маги манипулируют королевствами из своей Белой Башни, чем снискали чрезвычайное недоверие (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D050926E706D4BC29D6A7FE0AA520C6277F4FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165800   (977015) от 14.01.2010
+
+Дэниел Киз | Цветы для Элджернона [1959] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сорок лет назад это считалось фантастикой.
+Сорок лет назад это читалось как фантастика. Исследующая и расширяющая границы жанра, жадно впитывающая всевозможные новейшие веяния, примеряющая общечеловеческое лицо, отважно игнорирующая каинову печать "жанрового гетто".
+Сейчас это воспринимается как одно из самых человечных произведений новейшего времени, как (   Читать дальше...   )Формат: FB2Качество: Хорошее
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356800   (976763) от 01.02.2020
+
+Ф. К. Каст, Кристин Каст | Любимая (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман подцикла «Другой мир» цикла «Обитель ночи».
+
+Приближается восемнадцатилетие Зои Редберд, а ее лучшие друзья, год назад окончившие Обитель Ночи, разбросаны по разным уголкам страны. Втайне от своей возлюбленной Старк собирает всю компанию на торжество в Обитель Ночи Талсы, где Зои занимает пост Верховной жрицы. Тем временем в городе начинают появляться (   Читать дальше...   )Жанр: Городское фэнтези, Зарубежное фэнтези, Книги про вампиров, Любовное фэнтези, Магические академииПеревод: Вероника МаксимоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EA75EFF1FA25464D11746B5CFF0C131E77AFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356797   (976572) от 01.02.2020
 
 Дэвид Кепп | Ниже нуля (2020) [FB2]
@@ -6,7 +90,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976572.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976498.jpg" />
 </div>
 
 
@@ -59,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976460.jpg" />
 </div>
 
 
@@ -85,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976459.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975799.jpg" />
 </div>
 
 
@@ -142,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975464.jpg" />
 </div>
 
 
@@ -168,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975463.jpg" />
 </div>
 
 
@@ -194,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975378.jpg" />
 </div>
 
 
@@ -221,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975375.jpg" />
 </div>
 
 
@@ -248,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975279.jpg" />
 </div>
 
 
@@ -277,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975096.jpg" />
 </div>
 
 
@@ -305,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974519.jpg" />
 </div>
 
 
@@ -333,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974406.jpg" />
 </div>
 
 
@@ -360,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974364.jpg" />
 </div>
 
 
@@ -389,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974276.jpg" />
 </div>
 
 
@@ -418,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974263.jpg" />
 </div>
 
 
@@ -444,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973746.jpg" />
 </div>
 
 
@@ -477,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973635.jpg" />
 </div>
 
 
@@ -504,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972968.jpg" />
 </div>
 
 
@@ -530,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972964.jpg" />
 </div>
 
 
@@ -556,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972815.jpg" />
 </div>
 
 
@@ -584,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972806.jpg" />
 </div>
 
 
@@ -612,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971929.jpg" />
 </div>
 
 
@@ -625,92 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AFCC72047D52359F9F61C8DB26D39AA62A5026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357848   (971898) от 05.02.2020
-
-Т. А. Баррон | Мерлин. Семь песен (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман подцикла «Потерянные годы Мерлина» из цикла «Мерлин».
-
-Вместе с Мерлином на Финкайру, заколдованный остров, который лежит между землей и небом, вернулась надежда. Но опасность пока не миновала. И первой жертвой зла, вновь поднимающего голову, становится мать Мерлина.
-Он сможет спасти ее, если сумеет постичь скрытый смысл Семи Песен Волшебства, одолеет (   Читать дальше...   )Жанр: Зарубежное фэнтези, Книги про волшебниковПеревод: Ольга РатниковаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064CA678550C5B1D58ADAB9CE5728B7F1769DF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357852   (971804) от 05.02.2020
-
-Кэсс Морган | Несколько световых лет (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Несколько световых лет».
-
-Давние секреты, приключения и запретная любовь – и всё это на борту межпланетной космической военной академии.
-Едва оправившись после нападения таинственного врага, космическая академия Кватра, в которую веками принимали лишь узкий круг элиты, наконец начинает набор студентов из самых разных концов Солнечной системы.(   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20A17E0F50478ADA3F45EF3A360027F244F7792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975619   (971772) от 15.01.2016
-
-Алексей Калугин | Кластер Войвод. Третье правило крови (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Мир Кластеров».
-
-Операция в Кластере Верда успешно завершена. Но проблем от этого у Валтора Прея не становится меньше. Нужно спасать двух рамонов, пропавших в Лунном Карантине. Нужно найти способ борьбы с чудовищами айвурами, которые становятся сущей напастью для всего Треугольника Кластеров. Ну, а самое главное, необходимо найти способ вернуть (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC11B0D321A0CF4764E80642E7651D9DFB2EB95
 ```
 
 https://mybot314.ru/tekegram_catalog/

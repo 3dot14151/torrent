@@ -1,3 +1,133 @@
+###  Публикация: 1356245   (980342) от 29.01.2020
+
+Толкин / Tolkien (2019) HDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина рассказывает о том, как молодой писатель, будучи изгоем во время обучения, находит дружбу, любовь и вдохновение. Фильм затронет участие Толкина в Первой мировой войне — он служил в британских войсках с 1916-го по 1920-й.Производство: США, Fox Searchlight Pictures, Chernin EntertainmentЖанр: Драма, военный, биографияРежиссер: Доме КарукоскиАктеры: Николас Холт, Al Bollands, Kallum Tolkien, Крэйг Робертс, Гарри Джилби, Колм Мини, Лаура Доннелли, Гильермо Бедуорд, Ниа Гвин, Пэм ФеррисПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5450F9CA7A4A5D8E8A57DBD31000E9AC93EA6208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973462   (980103) от 08.01.2016
+
+В ожидании настоящей любви / True Love Ways (2014) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980103.jpg" />
+</div>
+
+
+###  Подробнее
+
+После повторяющегося сна Северин решает, что она должна пару дней отдохнуть от своего бойфренда Тома. Том заключает сделку с человеком, которого он встречает в баре: Северин похищают.Производство: Германия, ARRI Film & TV Services, Grand Hotel Pictures, Klusfilm BerlinЖанр: Ужасы, ТриллерРежиссер: Матьё СейлерАктеры: Анна Хаусбург, Давид К. Буннерс, Кай Мюллер, Микаэль Грайлинг, Эксел Хартвиг, Бит Марти, Маргарита Руль, Марсель Шнайдер, Кристиан ВеберПеревод: Двуголосый закадровыйПродолжительность: 01:46:11Реклама: Имеются текстовые и голосовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354C0074AADAC26C3121F242BB1E8DA1B6629DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973399   (980041) от 08.01.2016
+
+Покидая Лас-Вегас / Leaving Las Vegas (1995) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вся жизнь кажется кошмаром. Если затяжной запой окончательно разрушил карьеру в серьезной фирме. Может быть, есть смысл уничтожить все, что связывало тебя с прошлой жизнью и начать новую? В блестящем и грешном Лас-Вегасе.Где среди блеска ночной жизни одинокая «ночная бабочка» может оказаться внимательнее и сердечнее любого психоаналитика. Потому что она захочет (   Читать дальше...   )Производство: СШАЖанр: Драма, мелодрамаРежиссер: Майк ФиггисАктеры: Николас Кейдж, Элизабет Шу, Джулиан Сэндс, Ричард Льюис, Стивен Уэбер, Валерия Голино, Эмили Проктер, Стюарт Реген, Ким Эдамс, Грэм Беккел, Аль Хендерсон, Шаши Бхатия, Кэри Лоуэлл, Энн Ланж, Томас Копаче, Винсент Уорд, Люсинда Дженни, Френч Стюарт, Эд Лотер, Вальдемар Калиновски, Майк Фиггис, Дэвид Кригел, Билл Томпсон, Марек Стабровски, Р. Ли Эрми, Маришка Харгитей, (   Читать дальше...   )Перевод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACFDE6DBD307281E01CDB743D1F4277057143C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973430   (979964) от 08.01.2016
+
+Докопаться до сути / Digging Up the Marrow (2014) HDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследования жанра фильмов, основанного на монстрах, принимает неожиданный оборот, когда кинематографисты связываются с человеком, который утверждает, что он может доказать, что монстры существуют.Производство: США / ArieScope PicturesЖанр: ужасы, фэнтези, триллер, драма, детектив, биографияРежиссер: Адам ГринАктеры: Рэй Уайз, Адам Грин, Уилл Бэррэтт, Джош Этье, Райли Вандербилт, Кэйн Ходдер, Сара Эльберт, Том Холланд, Мик Гэррис, Алекс ПардиПеревод: Любительский (одноголосый) (datynet)Продолжительность: 01:28:30Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFCB4D2181C23E5AA4C9F4B076EF107EDF7CAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973318   (979793) от 08.01.2016
+
+Голос улиц / Straight Outta Compton (2015) BDRip [H.264]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979793.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине восьмидесятых годов пятеро молодых ребят с улиц Комптона объединились в хим-хоп группу N.W.A, чтобы рассказать всему миру о насущных проблемах и опасностях, притаившихся на улицах. Агрессивный подход и затрагиваемые трепетные темы текстов помогли простым парням прямиком из Комптона подняться на вершину музыкальной иерархии жанра. Все они росли на улицах, (   Читать дальше...   )Производство: СШАЖанр: Боевик, музыкальный, драма, криминалРежиссер: Ф. Гэри ГрейАктеры: О’Ши Джексон мл., Кори Хоукинс, Джейсон Митчелл, Нил Браун мл., Элдис Ходж, Марлон Йэтс мл., Р. Маркус Тейлор, Карра Паттерсон, Александра Шипп, Пол ДжаматтиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7430DA612C9FA6E74B62B3F71DD4A898EED87718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356055   (979722) от 29.01.2020
 
 Перспектива / Prospect (2018) BDRip [H.265] [10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979722.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979719.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979717.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979713.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979711.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979652.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979630.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979629.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979626.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979613.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979549.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979486.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979482.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979427.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979415.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979403.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979389.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979374.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979204.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979057.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979056.jpg" />
 </div>
 
 
@@ -537,138 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13082EB8B328AE41933159E396A588A5E8ACFF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973644   (979050) от 09.01.2016
-
-Раскаяние / Apparition (2015) HDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979050.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как невеста Дуга Лори погибла в автокатастрофе, молодой человек уезжает в одинокую ферму в глуши, чтобы оправиться от утери. С Дугом начинают происходить сверхъестественные вещи, помогающие ему раскрыть тайну, которую Лори унесла с собой в могилу...Производство: США / Futurist Ape Productions, Thunder Smoke MediaЖанр: Ужасы, Фэнтези, ТриллерРежиссер: Куинн СаундерсАктеры: Катрина Ло, Джоди Квигли, Лили Бордан, Джаретт Армстронг, Ребека Чадхури, Пит Постильоне, Меган Роуз ВидерПеревод: Авторский (одноголосый, закадровый) Андрей ДольскийЯзык субтитров: ОтсутствуютПродолжительность: 01:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5843E8E7989BA13E1C52F9EDE1C38B8A8A8A444A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973585   (979047) от 09.01.2016
-
-Настройщик / L'accordeur (2010) SATRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адриан — молодой одаренный пианист. Он переживает психологическую травму после провала на конкурсе Бернштайна и решает стать настройщиком фортепиано. Вскоре Адриану приходит мысль притворяться слепым: теперь он может проникать в личное пространство своих клиентов. Эта тайна позволяет ему вновь почувствовать вкус к музыке. Адриан видит вещи, которые не должен видеть, (   Читать дальше...   )Производство: ФранцияЖанр: Короткометражка, триллер, драмаРежиссер: Оливье ТрейньеАктеры: Грегуар Лепренс-Ренге, Даниель Лебрюн, Грегори Гадебуа, Эмелин ГеПеревод: Профессиональный двухголосый (Позитив)Субтитры: ОтсутствуютПродолжительность: 00:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FC0D4E1A1FF54D28C38A574C0E67F6A5CAE691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973820   (978944) от 09.01.2016
-
-А вот и она / And So It Goes (2014) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь закоренелого эгоиста в одночасье меняется, когда он вдруг знакомится со своей внучкой, о существовании которой даже не подозревал.Производство: СШАЖанр: Комедия, драма, мелодрамаРежиссер: Роб РайнерАктеры: Майкл Дуглас, Дайан Китон, Стерлинг Джеринс, Энни Парисс, Остин Лайзи, Майкл Терра, Симпкинс Сойер, Максвелл Симкинс, Морис Джонс, Йайа ДаКостаПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C6E72DB4BC44970EBB227C3F66CDED4706C0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973760   (978935) от 09.01.2016
-
-Раскаяние / Apparition (2015) HDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978935.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как невеста Дуга погибла в результате автокатастрофы, он отправляется жить в одинокую ферму, расположенную в глуши, чтобы оправиться от потери. С героем начинают твориться сверхъестественные вещи, которые помогают ему раскрыть тайну, которую его возлюбленная унесла с собой в могилу.Производство: США, Futurist Ape Productions, Thunder Smoke MediaЖанр: Ужасы, Фэнтези, ТриллерРежиссер: Куинн СаундерсАктеры: Катрина Ло, Джоди Квигли, Лили Бордан, Джаретт Армстронг, Ребека Чадхури, Airen DeLaMater, Дэйв Дрокслер, Joseph Forsstrom, Пит Постильоне, Меган Роуз ВидерПеревод: Одноголосый закадровый авторский (А. Дольский)Продолжительность: 01:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA90D605949B86A266E75AE07957CD9F108E3B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437235   (978848) от 16.01.2012
-
-Заговор проказниц / Strike! / The Hairy Bird / All I Wanna Do (1998) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поначалу Оди Синклер школа для девушек, где она должна была учиться, показалась настоящей тюрьмой. Но, познакомившись с новыми подружками Вереной и Тинкой, она обнаруживает, что и здесь можно повеселиться, если нарушить правила.
-
-А в один прекрасный день всех облетела сенсационная весть о грядущем слиянии их школы с школой для мальчиков. И хотя молодые леди уже вовсю (   Читать дальше...   )Жанр: КомедияРежиссер: Сара КерночанАктеры: Кирстен Данст, Габи Хоффман, Линн Редгрейв, Рейчел Ли Кук, Том Гири, Винсент Картейзер, Моника Кина, Мэттью Лоуренс, Хитер Матараццо, Меррит Уэвер и др.Перевод: Одноголосый закадровыйПродолжительность: 01:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0DFC840D4838EEFA4C707C10921BCF83DCE1F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

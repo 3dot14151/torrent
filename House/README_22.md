@@ -1,3 +1,90 @@
+###  Публикация: 1204597   (784685) от 06.02.2018
+
+VA - Work That Body Vol.2 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andrey Exx feat. Diva Vocal & BSKF  -  Need To Feel Loved (Umid Remix)  7:54
+02.  BSKF  -  Up & Down (Original Mix)  5:01
+03.  DJ Wady & Yhago  -  Salvation (Simun Remix)  5:36
+04.  Masch + Yuko  -  My House (Original Mix)  6:49(   Читать дальше...   )Жанр: HouseПродолжительность: 02:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2217138359548BB5C42EFE6DAABD64BCE514F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204464   (784663) от 06.02.2018
+
+VA - Kontor Festival Sounds 2018 The Beginning (2018) 3CD [MP3|320 Kbps] <House, Trance Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784663.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Martin Garrix & Matisse & Sadko  -  Forever  3:38
+02.  Eastblock Bitches & Niels Van Gogh  -  Get Money  3:33
+03.  DubVision & Afrojack  -  New Memories  3:35(   Читать дальше...   )Жанр: House, Trance DanceПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405D09BA32D2B2479B108F8DE7012548CE9CDE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204732   (784412) от 07.02.2018
+
+VA - Futuresque - The Future House Collection Vol.7 (2018) [MP3|320 Kbps] <House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bobby Rock  -  Move On (Radio Edit)  3:28
+02.  Lunde Bros  -  Boomba (Radio Edit)  2:59
+03.  Richard Grey feat. Katty Q & Bodhi Jones  -  My Love (Future House Remix)  4:29
+04.  Joachim Garraud & Ridwello  -  Come On Let's Go (feat. Charlie Sputnik) (DBN Radio Edit)  2:19(   Читать дальше...   )Жанр: House, Future HouseПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19884D5492D396325D4A7E184D2D682B429A50B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204724   (784407) от 07.02.2018
 
 VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
@@ -6,7 +93,7 @@ VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784407.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783812.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783811.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783809.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783808.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783806.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783805.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783802.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783797.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Dance Party (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783793.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Beats For Life Vol.1 (20 Big Room Monsters) (2018) [MP3|320 Kbps] <House, B
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783549.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Deep House Architects Vol.8 (2018) [MP3|320 Kbps] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783545.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783539.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Nothing But... Progressive Selections Vol.01 (2018) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783533.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Don Diablo - Future (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783519.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783508.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - EDM (2018) [MP3|320 Kbps] <Progressive House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783434.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Carnaval House (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783251.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Ultra Tone Essentials Vol.2 (2018) [MP3|320 Kbps] <Deep House, Afro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783247.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Beatz 4 Freaks Vol.27 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783239.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Deep Booty House Vol.1 (2018) [MP3|320 Kbps] <Future House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782984.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782981.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Best Of Deep House Vol.01 (2018) [MP3|320 Kbps] <House, Deep House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782948.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Best Of Deep House Vol.01 (2018) [MP3|320 Kbps] <House, Deep House, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BDB4268AA723F72B1ACBD225DE6BCADDE049407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206400   (782572) от 13.02.2018
-
-VA - Clinique Mixed XV (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alfonso Muchacho  -  Wasteland (Original Mix)  7:56
-02.  Kai Van Crash  -  Cold Tea (Teil Remix)  8:32
-03.  Kade B  -  Shemyaza (Original Mix)  7:05
-04.  JohnnyV  -  Ray Gun (Original Mix)  7:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05034D52769A43BF995E0EAA825EC7B6AAA0195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206281   (782564) от 13.02.2018
-
-VA - Chillhouse Factory (Discover Deephouse Rhythms) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Natural Soul  -  Get Ready (Phisicall Lover Mix)  3:34
-02.  K Tonique  -  Give At To Me (Ibiza Night Mix)  3:33
-03.  Vibe Lovers  -  Reason For Leaving (Cool Rhythms Mix)  3:35
-04.  Deep Kings  -  Retroguard (The Fashion Mix)  3:30(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 01:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85391F5BD47DB0623EA3AB08C7348D1306E1331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206248   (782557) от 13.02.2018
-
-VA - Melodic Beats Vol.1 (2018) [MP3|320 Kbps] <House, Progressive House. Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stan Kolev  -  Unravel Me (Rick Pier O'Neil Remix)  7:11
-02.  Ramon Bedoya  -  El Poema (Original Mix)  7:15
-03.  Anis Hachemi  -  Taurus (Original Mix)  8:55
-04.  Dani Llamas & Chris Main  -  Maresman (Original Mix)  7:07(   Читать дальше...   )Жанр: House, Progressive House. Deep HouseПродолжительность: 03:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62B5608DAD069604B8BFED4C7F5D7716B91895A
 ```
 
 https://mybot314.ru/tekegram_catalog/

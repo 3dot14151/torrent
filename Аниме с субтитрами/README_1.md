@@ -1,3 +1,29 @@
+###  Публикация: 1863470   (1063457) от 04.04.2026
+
+Honzuki no Gekokujou: S4 | Ascendance of a Bookworm S4 | Власть книжного червя [ТВ-4] [2026, TV, 1 из 24] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая любительница книг, Урано Мотосу, погибает только-только получив известие о том, что она сможет работать библиотекарем, как она всегда и мечтала. Придя в себя, она обнаружила, что оказалась в теле маленькой девочки Майн, живущей в параллельном мире, где царят средневековые порядки, а самое страшное – нигде нет книг!Производство: Wit Studio / ウィットスタジオЖанр: комедия, повседневностьРежиссер: Ивасаки ЁсиакиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753AC60D7AEAEE74B9C3C2F9CCF224889D2DE7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862961   (1063432) от 04.04.2026
 
 Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii Desu yo? / Похоже, сильнейшая профессия это не герой или мудрец, а (временный) инспектор? [2026, TV, 2 из ?] WEBRip 720p raw
@@ -6,7 +32,7 @@ Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii Desu
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063432.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spri
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063419.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kami no Niwatsuki Kusunoki-tei | Kusunoki's Garden of Gods | «Сад богов
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063416.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kanan-sama wa Akumade Choroi / Mistress Kanan Is Devilishly Easy / Канан д
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063394.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Needy Girl Overdose / Needy Streamer Overload / Зависимая девушк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063391.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Yomi no Tsugai | Daemons of the Shadow Realm | Цугаи загробного �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063390.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Koori no Jouheki | The Ramparts of Ice | Ледяная стена [2026, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063345.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Dia no Ace: Act II Second Season | Ace of the Diamond: Act II Second Season | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063335.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Jishou Akuyaku Reijou na Konyakusha no Kansatsu Kiroku. | Дневник наб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063294.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Yomi no Tsugai | Daemons of the Shadow Realm | Цугаи загробного �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063293.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Maid-san wa Taberu Dake / The Food Diary of Miss Maid / Горничная, ко
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063260.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Ghost Concert: Missing Songs / Концерт-призрак: пропавшие
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063259.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Ingoku Danchi | Жилой комплекс извращенок [2026, TV, 1 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063181.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Ponkotsu Fuuki Iin to Skirt-take ga Futekisetsu na JK no Hanashi | Беспол�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063167.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Liar Game | Игра лжецов [2026, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063151.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Reincarnation no Kaben / Petals of Reincarnation / Лепестки реинка
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063148.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spri
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063143.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Tongari Boushi no Atelier | Witch Hat Atelier | Ателье колдовски�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063060.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Marriagetoxin / Marriage Toxin / Брачный токсин [2026, TV, 1 из ?
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063032.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Class de 2 Banme ni Kawaii Onnanoko to Tomodachi ni Natta / I Made Friends with 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063031.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Replica Datte, Koi o Suru. / Even a Replica Can Fall in Love / Даже копи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063027.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Tadaima, Ojama Saremasu! | Pardon the Intrusion, I'm Home! | Я вернулас
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063018.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de / Бо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063016.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Isekai Nonbiri Nouka 2 | Farming Life in Another World 2 | Фермерская 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063013.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062998.jpg" />
 </div>
 
 
@@ -654,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F06345FD14A98EFB9DD15B9922F82923CE30EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864102   (1062988) от 08.04.2026
-
-Nippon Sangoku | Троецарствие Японии [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062988.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ближайшем будущем Япония полностью развалилась из-за сочетания ядерной войны, стихийных бедствий и повсеместной коррупции, что привело к революции.
-Сейчас страна раздроблена на три враждующих сверхдержавы. В эту новую эпоху, напоминающую период «Трех царств», дипломатия исчезла, уступив место жестокой и безжалостной борьбе за власть. Каждая территория использует (   Читать дальше...   )Производство: Studio Kafka / スタジオカフカЖанр: приключенияРежиссер: Тэрасава КадзуакиПеревод: AniLibria (остальное официалы)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708AA226FC28E6882B139176683BABE68C77AC00
 ```
 
 https://mybot314.ru/tekegram_catalog/

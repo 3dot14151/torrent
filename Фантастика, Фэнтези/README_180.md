@@ -1,3 +1,109 @@
+###  Публикация: 951407   (360017) от 30.10.2015
+
+Сергей Лукьяненко | Глубина [сборник] (2014) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый цикл мастера отечественной фантастики Сергея Лукьяненко, получивший культовый статус благодаря динамичному сюжету, уникальной авторской манере повествования и пророческому посылу: величайшее чудо, созданное человечеством, может оказаться как даром, так и проклятием, если использовать его бездумно.
+
+Итак, добро пожаловать в виртуальный город Диптаун — столицу (   Читать дальше...   )Жанр: Боевая фантастика, Киберпанк, Научная фантастикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1D5B02A912D28832B444D803202B1F3E21FB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416974   (359981) от 19.10.2020
+
+Дин Кунц | Молния (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда родилась Лора Шейн, на Денвер из района Скалистых гор пришла жуткая буря. Били молнии, и это в январе, в самый разгар зимы. Такой природной аномалии люди еще не знали. И Лора не родилась бы, если бы таинственным образом в клинику не явился голубоглазый блондин, предотвративший ошибку доктора. Кто он? Ее ангел-хранитель? Откуда он? Из будущего? Из прошлого? (   Читать дальше...   )Жанр: Детективная фантастика, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF973B31329E0DED371158DBA7566ADED9DF7C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328668   (359263) от 02.10.2019
+
+Геннадий Гор | Волшебная дорога [сборник] (1978) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь человека подобна книге, но не каждому доводится не только прочесть эту книгу, но и путешествовать вместе с ней по странам и временам, по реальным событиям далёкого прошлого и страницам других книг. Ведь книга по имени Офелия, это ещё и женщина: загадочная, капризная и прекрасная, и перед ней открыты пути, недоступные другим людям.Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0B16CC6287CD4A2F4D1C45FD5CAE6E98E8C43F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328865   (359261) от 02.10.2019
+
+Коллектив авторов | Ошибка создателя [сборник] (1975) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 60-х ХХ века. Бывшее Бельгийское Конго. Провинция Катанга под руководством Моиза Чомбе. Белые наемники патрулируют джунгли и наталкиваются на неизвестное существо. Что это? Оборотень, неизвестное африканское животное или пришелец из космоса? И что с ним делать дальше?Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F09F76C582ECB8F6211AD290F7A2C395FD29CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328674   (359260) от 02.10.2019
 
 А. Кузнецов (сост.) | Звездная гавань [сборник] (1981) [FB2]
@@ -6,7 +112,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359260.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359257.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359256.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359175.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359151.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Aриадна Громова, Виктор Комаров | По следам н
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359149.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359147.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359103.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359063.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358994.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358907.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358566.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358517.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358150.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358126.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357938.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357927.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357767.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357750.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357738.jpg" />
 </div>
 
 
@@ -545,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357559.jpg" />
 </div>
 
 
@@ -573,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356711.jpg" />
 </div>
 
 
@@ -584,110 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE246AE1FC9E95415E9910955C7BDA9117304CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329065   (356634) от 03.10.2019
-
-Кирилл Андреев (сост.) | Новая сигнальная [Сборник] (1963) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биофизик Джордж Корин пять лет прожил в одиночестве на тихой уютной планете. Посетившие однажды планету космонавты обнаруживают Джорджа бесплотным. Что же случилось на планете, и куда исчез настоящий Джордж?Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BA10D18D05DC311606F37201D830485A3D8E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329063   (356629) от 03.10.2019
-
-Михаил Емцев, Еремей Парнов | Зеленая креветка [Сборник] (1966) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четырем африканцам и одному белому суд вынес смертный приговор. Но по слухам приговор не был приведен в исполнение, а заключенных отправили в специальную резервацию. Два друга решили освободить белого смертника и заодно разузнать, что же скрывается под маской резерваций-рудников…Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F16734B09DCC7DFA22DA68CE78EFC086857302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329072   (356521) от 03.10.2019
-
-Михаил Емцев, Еремей Парнов | Последнее путешествие полковника Фосетта [Сборник] (1965) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда все исследовательские работы на Анизателле были выполнены, люди неожиданно обнаружили необычное плато, которое не реагировало ни на какое внешнее воздействие...Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881DA172BB5DDB16577A674B30E44A3FB6CA8DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329185   (356520) от 03.10.2019
-
-Михаил Емцев, Еремей Парнов | Уравнение с Бледного Нептуна [Сборник] (1964) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земляне направили космический корабль в район Фомальгаута с целью экспериментальной проверки гравиконцентраторов. В ходе эксперимента один из приборов записал весьма странное сообщение в виде изображения нескольких листков бумаги с формулами, которые явно писал человек. Формулы несли новые знания неизвестные людям…Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C962648A2C31633B8441A83207027378C63A36F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

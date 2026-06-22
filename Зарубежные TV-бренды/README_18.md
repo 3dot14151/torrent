@@ -1,3 +1,81 @@
+###  Публикация: 110852   (852128) от 24.03.2014
+
+BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свет - основа жизни на нашей планете. Отвечая на вопросы "Почему небо голубое?" и "Почему трава зеленая?" можно давать однозначный ответ - "Благодаря свету". Эта неотъемлемая часть нашей жизни, но мы все еще стараемся понять феномен света. Многие известные ученые, начиная с Аристотеля, Галилео Галилея, Ньютона и Леонардо да Винчи, и (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровыйПродолжительность: 3:20:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001688   (851925) от 29.03.2016
+
+BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь с хищниками (Заповедник) / Living with PredatorsВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DC2D78836C48E55337888E9A34969774E05C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001747   (851869) от 29.03.2016
+
+BBC: Захватывающая история криминалистики / Catching History's Criminals: The Forensics Story (2015) HDTVRip (3 серий из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительный мир криминалистики оказывается под микроскопом доктора Габриэлы Вестон, которая решает изучить историю науки, стоящей за борьбой с преступностью. От использования ДНК для реконструкции лица убийцы до волосинки, рассказывающей о том, где жила жертва. Благодаря современным технологиям и историческим материалам, мы увидим полицейские дела и узнаем о культуре, (   Читать дальше...   )Производство: Великобритания, BBC Scotland, Open University PartnershipЖанр: Документальный, история, криминалистикаРежиссер: Грем РасселПеревод: Одноголосый закадровый, профессиональный (SDI Media)Продолжительность: 3x~00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7328CBA8BDF73D54EF02943184FB771BAEDDEA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363030   (850995) от 22.04.2020
 
 Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Big! (2020) HDTVRip [H.264/720p] [50fps] (сезон 1, серии 1-9 из 9)
@@ -6,7 +84,7 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850995.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Discovery: Смертельный улов / Deadliest Catch (2007) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849375.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849271.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848643.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848642.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848569.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848518.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848367.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ BBC. Смартфоны: темная сторона / Smartphones: The Dark Sid
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847938.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_847772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_847772.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Discovery: Будущее с Джеймсом Вудсом. Заменяя Бо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846773.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Tехнологии, которые нас меняют /  DSKNECTD: Is Technolo
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846505.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846389.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ History Channel. Америка. История Соединенных Штат�
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846331.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ NG: Затерянные сокровища Майя / Lost Treasures of the May
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846130.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ BBC. Европа изнутри: десять лет смятения (деся
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845801.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845646.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845456.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ BBC: Замерзшая планета (Застывшая планета) / Fro
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845094.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Tехнологии, которые нас меняют / DSKNECTD: Is Technolog
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844663.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844273.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843107.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843098.jpg" />
 </div>
 
 
@@ -590,85 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46186DD0A06BB1898E5F96F974E86BA444F829F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850273   (843019) от 03.04.2016
-
-NG. Бушующие миры: Смертоносная пыль / Storm Worlds: Deadly Dust (2010) HDTVRip [H.264/720p] [3-я серия из 3]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843019.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некоторых частях нашего мира погода бросается в крайности. Там бушуют дикие грозы и тайфуны, причиняющие огромные убытки и уносящие жизни около 12 тыс. человек каждый год. Но в нашей вселенной, существуют миры, где погода бушует в гораздо больших масштабах. Космические бури. Может быть они и кажутся знакомыми, но размеры и сила их не сравнятся ни с чем. И погодные (   Читать дальше...   )Жанр: Документальный, научно-познавательный, космосПеревод: Одноголосый закадровый (профессиональный, студия "АРК-ТВ")Субтитры: отсутствуютПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61F5CF566ACD79A347B67E92DC6B1D2D6F68918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378945   (842550) от 27.04.2020
-
-NG: Марс: Один день на красной планете / Mars: One Day on the Red Planet (2020) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Использование данных с орбитальных станций и марсоходов позволило воссоздать достаточно точное изображение поверхности Красной планеты и раскрыть некоторые ее секреты. За время совершения Марсом одного полного вращения вокруг своей оси вы увидите вулканы-монстры, древние озера, инопланетные ледяные миры и места крушения космических кораблей. Исследуйте перспективы (   Читать дальше...   )Производство: США / National GeographicЖанр: Документальный, космосРежиссер: Martin JohnsonПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1612B0DC7B2DC34C5E7B2E583A4F2E411FFBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716290   (842013) от 30.03.2014
-
-BBC: Исаак Ньютон: Последний чародей (Последний из магов) / Isaac Newton: The Last Magician (2013) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие считают Исаака Ньютона величайшим гением всех времён. При жизни его считали полубогом науки. Ньютон раскрыл саму природу света, что позволило нам изучить Вселенную. Благодаря нему мы можем рассчитывать движение и предсказывать изменения. Он объяснил силу, объясняющую всю Вселенную точной математической формулой - Закон всемирного тяготения.
-Ньютона почитают (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документально-постановочный, историяРежиссер: Ренни БартлетПеревод: Двуголосый закадровый (Видео-фильм ТВ)Продолжительность: ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC088A6BCFBF3F854E4BD3165A5F365E200B1A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

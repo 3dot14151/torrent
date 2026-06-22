@@ -6,7 +6,7 @@ Profileschool | Секреты современного искусства Ме�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912747.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Profileschool Дмитрий Шатров | Искусство ночной съ
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912745.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911059.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911057.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910965.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_910955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910955.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909959.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909280.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904223.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896831.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895069.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894958.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894947.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893551.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893154.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893149.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891865.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891835.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891833.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890677.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885532.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884030.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Profileschool | Коммерческая фотография. Рецепт ус
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875188.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VideoSmile, Андрей Аниканов | Супер Premiere Pro (2021) WEB-D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872459.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Profileschool | Готика великое искусство живого ср
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869398.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867216.jpg" />
 </div>
 
 

@@ -1,3 +1,134 @@
+###  Публикация: 1086653   (149821) от 25.12.2016
+
+Рождение нации / The Birth of a Nation  (2016) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историко-драматический байопик о чернокожем рабе-мятежнике Нэте Тёрнере. Веря в свою богоизбранность, Тёрнер воспринимает затмение как знак свыше: черная ладонь накрывает солнце. Под его предводительством вспыхивает восстание, потрясшее рабовладельческую Америку.Производство: СШАЖанр: драма, биография, историяРежиссер: Нэйт ПаркерАктеры: Нэйт Паркер, Арми Хаммер, Пенелопа Энн Миллер, Джеки Эрл Хейли, Марк Бун Джуниор, Колман Доминго, Онжаню Эллис, Дуайт Генри, Эйджа Наоми Кинг, Эстер Скотт, Роджер Гуэнвёр Смит, Гэбриэл ЮнионПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF42A7954911AD9A608C34F697C783A01FB8EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519085   (148932) от 23.12.2021
+
+Матрица: Воскрешение / The Matrix Resurrections (2021) WEBRip [H.265/2160p] [4K, HDR, 10-bit] [EN / RU, EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148932.jpg" />
+</div>
+
+
+###  Подробнее
+
+В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / Village Roadshow Pictures, NPV Entertainment, Silver PicturesЖанр: фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 02:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81E80A9F21293A88B0C45B03B726095CF4D2CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434837   (147126) от 26.12.2020
+
+Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DLRip [H.264/1080p-LQ] [EN / En, Ru Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DCЖанр: фэнтези, боевик, приключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль и другиеПеревод: ОтсутствуетСубтитры: английские (full), русские (full)Продолжительность: 02:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC6221FE741339B925C4BE2A038160655AA8D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969472   (146546) от 27.12.2015
+
+Тупик / Standoff (2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран войны Картер с дробовиком наперевес вынужден защищать двенадцатилетнюю девочку, ставшую свидетелем убийства.Производство: Goldrush Entertainment, First Point Entertainment, Maple Leaf FilmsЖанр: ТриллерРежиссер: Адам АллекаАктеры: Томас Джейн, Лоренс Фишбёрн, Элла Бэллентайн, Джим Уотсон,
+Джон Тенч, Лаура ДеКартере, Тед Атертон, Джоанна ДугласПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E7268B9143CDFC59F330B8084E114EC9137116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087375   (146390) от 27.12.2016
+
+Повесть о любви и тьме / A Tale of Love and Darkness (2015) WEB-DL [H.264/1080p-LQ] [HEB / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный дебют Натали Портман в качестве режиссёра. Фильм основан на одноимённом автобиографическом романе израильского писателя и журналиста Амоса Оза (род. 1939), опубликованном в 2002 году. Его воспоминания о детстве, прошедшем в Иерусалиме 1940-х годов в период становления Израильского государства.Производство: Израиль, США / Avi Chai fund, Gesher Fund, Handsomecharlie Films, Israel Film Council, Israel Fund for Film Production, Jerusalem Film and Television FundЖанр: Драма, БиографияРежиссер: Натали ПортманАктеры: Натали Портман, Шира Хаас, Томер Капон, Амир Тесслер, Макрам Хури, Охад Кноллер, Джилад Кахана, Мони Мошонов, Ротем Кейнан, Нета Рискин ...Перевод: ОтсутствуетЯзык озвучки: ИвритЯзык субтитров: АнглийскийПродолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB18FF1A9313EA113FF90ED67F110CF5450A2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271723   (146199) от 25.12.2018
 
 Братья Систерс / The Sisters Brothers (2018) WEB-DL [H.264/1080p-LQ] [EN / RU, EN Sub]
@@ -6,7 +137,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146199.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145341.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145244.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145083.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142548.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142430.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141929.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141813.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141449.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140493.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140257.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139159.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138987.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138606.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137978.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137890.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137367.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134469.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133704.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133685.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133294.jpg" />
 </div>
 
 
@@ -538,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82C8DDC927F572C0784611E34AC18A1F14A6E3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681074   (133278) от 01.12.2023
-
-Конфетный переулок / Candy Cane Lane (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семьянин Крис каждый год пытается выиграть конкурс на лучшее украшение дома к празднику, соревнуясь с соседями. Ради победы он заключает сделку с эльфийкой по имени Пеппер, чья магия становится причиной хаоса для всего города. Теперь Крису и его семье предстоит разрушить колдовство и спасти Рождество.Производство: США / Amazon Studios, Imagine EntertainmentЖанр: фэнтези, комедияРежиссер: Реджинальд ХадлинАктеры: Эдди Мерфи, Джиллиан Белл, Трэйси Эллис Росс, Дженнея Уолтон, Тадеус Дж. Миксон, Madison Thomas, Ник Офферман, Крис Редд, Робин Тиди, Дэвид Алан ГрирПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Украинские, Английские (Full, SDH), multisubsПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19105A8B66CF1340CA72CE572654B37D4D0D2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681163   (132862) от 02.12.2023
-
-Пастырь / The Shepherd (2023) WEB-DL [H.265/2160p] [4K, Dolby Vision, HDR10, 10-bit] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132862.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества пилот истребителя, возвращающийся домой, теряет управление в полете над водой, и ему нужно чудо, чтобы благополучно приземлиться.Производство: США / Argo Films, BKStudios, Corona PicturesЖанр: триллерРежиссер: Иэн СофтлиАктеры: Джон Траволта, Стивен Макинтош, Бен Рэдклифф, Millie Kent, Асан Н’Джи, Скарлет Грэйс, Саймон Леннон, Олатунжи Айофе, Mario TorellaПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH), multisubsПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC141F4F6FC158B2D0452B1D44F8625068BE008F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525854   (128972) от 22.01.2022
-
-Вальдо / Last Looks (2021) WEBRip [H.264/1080p] [RU / EN, Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив, расследуя убийство супруги эксцентричной звезды, обращается за помощью к бывшему полицейскому Чарли Вальдо, который после громкого скандала ушел со службы и поселился в лесу.Производство: США / Head Gear Films, MadRiver InternationalЖанр: триллер, боевик, детективРежиссер: Тим КиркбиАктеры: Клэнси Браун, Морена Баккарин, Мэл Гибсон, Чарли Ханнэм, Люси Фрай, Руперт Френд, Доминик Монахэн, Метод Мэн, Пол Бен-Виктор, Джош МакдермиттПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EDC7BEB33C3D0D42DF376669CC39D1541C6FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824541   (128855) от 15.10.2025
-
-Снова ярость / Furioza Again / Inside Furioza (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина-полицейский угрожает бывшему парню тюремным сроком, если тот не будет шпионить за бандой хулиганов.Производство: Польша / Netlix FilmЖанр: драмаРежиссер: Циприан Т. ОленцкиАктеры: Матеуш Даменцки, Дэвид МастерсонПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские (18+), Английские (forced, full, SDH)Продолжительность: 02:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F0D3A9E144C455772C9DFBED2E3DEC8E7F2CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684353   (127912) от 15.12.2023
-
-Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Морган очень разноплановый: преданный муж, любящий отец, успешный продавец автомобилей. А еще он бывший наемный убийца. Когда его настигает прошлое, он вынужден взять ничего не подозревающую семью в уникальное путешествие.Производство: США / Apple Original Films, Skydance MediaЖанр: боевик, комедияРежиссер: Саймон Селлан ДжонсАктеры: Мишель Монахэн, Марк Уолберг, Мэгги Кью, Киран Хайндс, Зои Маргарет Коллетти, Джонатан Койн, Фелиция Пирсон, Саид Тагмауи, Аниса Ниэлл Джонсон, Майлз ДолеакПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Украинские, Английские (Forced, Full, SDH), multisubsПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A83802AA81A0809081A0CD28CE6EBD8F6039B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

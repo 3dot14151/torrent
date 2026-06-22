@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375634.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374436.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373933.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373930.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Stand Up (2018.10.14) SATRip (сезон 6, выпуск 9)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372648.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Stand Up (2018.10.14) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 9)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370515.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369803.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Stand Up. Сезон 3. Выпуск №7 (2015.10.25) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369731.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369503.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367715.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Stand Up (2017.10.22) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 6)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367326.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366852.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363052.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Stand Up (28.09.2019) WEB-DLRip (сезон 7, выпуск 6)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362795.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362336.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361047.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360774.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360491.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Stand Up (18.10.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 8)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360248.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360096.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358587.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358525.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358167.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Stand Up (2018.10.21) SATRip (сезон 6, выпуск 10)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356434.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355643.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355502.jpg" />
 </div>
 
 

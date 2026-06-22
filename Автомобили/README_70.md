@@ -6,7 +6,7 @@
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57145.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54381.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51615.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47014.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47011.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MMCodingWriter 2.1 [Ru/En]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46210.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45053.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41686.jpg" />
 </div>
 
 
@@ -209,32 +209,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752852   (41528) от 04.10.2024
-
-Сергей Моряхин | Наука вождения (2024) [EPUB, PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Моряхин один из самых известных профессиональных автоинструкторов России, автор популярного канала «Автоинструктор-62» на YouTube (более миллиона подписчиков), основатель онлайн-школы «Наука вождения». Почему даже самые прилежные, пройдя курс, говорят, что усвоили теорию, но не могут воспользоваться ею в реальных условиях? Почему тратят много времени на чтение (   Читать дальше...   )Жанр: вождение автомобиля, учебное пособиеИздательство: СПб.: «Питер»Формат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5186CB9A0B171B37F1D66CD5DE96813B786A8245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755037   (40471) от 13.10.2024
 
 Журнал | 5 Колесо №9 (371) (сентябрь 2024) [PDF]
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40471.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40464.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38303.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ Mers Academy, Владислав Казмирук  | Работа с ручны�
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37824.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Mers Academy, Владислав Казмирук | Работа с электр
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37354.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34598.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ VAG dataflash / Файлы прошивок для автомобилей гру
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33924.jpg" />
 </div>
 
 
@@ -434,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33913.jpg" />
 </div>
 
 
@@ -463,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32705.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32630.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29252.jpg" />
 </div>
 
 
@@ -545,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28695.jpg" />
 </div>
 
 
@@ -571,7 +545,7 @@ Ford Etis 1.7565 (11.2015) [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26926.jpg" />
 </div>
 
 
@@ -600,7 +574,7 @@ ELSA 5.3 AUDI - 02.2016 5.3 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26918.jpg" />
 </div>
 
 
@@ -626,7 +600,7 @@ GM Service Manual 0.9 - 2008 [En]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26875.jpg" />
 </div>
 
 
@@ -652,7 +626,7 @@ Microcat Hyundai 2016/02- 2016/03 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26577.jpg" />
 </div>
 
 
@@ -679,7 +653,7 @@ ELSA 6.0 VW - 01.2017 6.0 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26401.jpg" />
 </div>
 
 
@@ -690,6 +664,32 @@ ELSA 6.0 VW - 01.2017 6.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B84885F395E9BDF1AA0068677241358FE412F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780902   (26397) от 26.02.2025
+
+ELSA 6.0 AUDI - 03.2017 6.0 [Multi/Ru]
+
+>>Автомобили
+>>Автомобильные программы и навигаторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационная база (руководство) по ремонту автомобилей концерна VW AG. Содержит описания технологии ремонта и обслуживания автомобиля, электрические схемы, кузовные работы, нормы времени на выполняемые работы и прочее.Язык интерфейса: Русский, английский, немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6563A6A76BEF1AA89AE23D037799F02D74E36CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

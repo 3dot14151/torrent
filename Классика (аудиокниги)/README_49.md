@@ -1,3 +1,55 @@
+###  Публикация: 422009   (160772) от 06.11.2023
+
+Александр Дюма (отец) | Тысяча и один призрак (2011) [MP3, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вампиры! Как в наш век электронных развлечений эти дракулы сумели стать хитом и моды и приколов молодежи? Как средневековые страшилки преобразили наших желторотых юнцов в мистических готов? Но есть вопрос и поинтереснее. Как мог предвидеть такой поворот событий самый популярный рассказчик планеты, да еще за полтора века до самого феномена? Поразительно современно. (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистика, новеллаИздательство: МедиаКнигаПродолжительность: 08:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085EE0CE853F7795060506C4C5F56BF854B1A798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421848   (160771) от 06.11.2023
+
+Александр Дюма (отец) | Верность до гроба (2011) [MP3, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Дюма (отец) – знаменитый французский писатель, завоевавший любовь читателей историческими приключенческими романами. Литературное наследие Дюма огромно: кроме романов им написаны пьесы, воспоминания, путевые очерки, детские сказки и другие произведения самых различных жанров. В книгу вошли авантюрные повести и рассказы известного писателя.Жанр: Зарубежная литература, классика, повесть, рассказИздательство: МедиаКнигаПродолжительность: 15:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BE064477C66C4F72670CCB460DB8EB14887171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 274990   (160767) от 06.11.2023
 
 Александр Дюма (отец) | Королева Марго. Радиоспектакль (2008) [MP3, Александр Овчинников, Наталья Тенякова и др.]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160767.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160765.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160744.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160732.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160725.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160649.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160525.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160459.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160362.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160361.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160359.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160355.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160354.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160353.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160352.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160351.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160340.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160337.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160332.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160256.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160247.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160174.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160080.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159937.jpg" />
 </div>
 
 
@@ -633,62 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0832FB6B2C255B18C90FD5A4C82FEEFE9B82AF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675775   (159934) от 10.11.2023
-
-Альфонс Доде | Короли в изгнании (2020) [MP3, Илья Прудовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альфонс Доде (1840–1897) – французский романист и драматург, автор ярких рассказов из жизни Прованса, создатель знакового образа романтика и хвастуна Тартарена из Тараскона.
-«Короли в изгнании» – роман о судьбах коронованных особ, потерпевших крушение у себя на родине и оказавшихся на чужбине.
-Начало событий, изображенных в романе, точно датировано 1872 годом. Не (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 15:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC5EBA7A0BBCCA665239B8119B31F4BF775E415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675762   (159916) от 10.11.2023
-
-Альфонс Доде | Тартарен из Тараскона (2015) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Зарубежная классика XIX век.
-Альфонс Доде (1840–1897) – французский романист и драматург, автор ярких рассказов из жизни Прованса, создатель знакового образа романтика и хвастуна Тартарена из Тараскона.
-Предлагаем вашему вниманию аудиокнигу «Тартарен из Тараскона», записанную на студии «АРДИС». Знаменитый «истребитель львов», «бесстрашный, великий, несравненный» (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедия, романИздательство: Студия «АРДИС»Продолжительность: 04:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E3D807DF2850012E0E1F20F414B3596A31D355
 ```
 
 https://mybot314.ru/tekegram_catalog/

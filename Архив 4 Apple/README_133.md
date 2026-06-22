@@ -6,7 +6,7 @@ Tipard Mac Video Converter Ultimate 9.2.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869082.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FoneDog Data Recovery 1.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868993.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bartender 3 v3.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868911.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ HoudahGeo 4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868650.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868606.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Balsamiq Mockups For Desktop 3.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868535.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Curio 10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868504.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Permute 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868345.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ File Cabinet Pro 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868336.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ UninstallPKG 1.0.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868333.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Permute 3 v3.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868265.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Viper FTP 5.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868264.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Downie 4 v4.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868263.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Disk Space Analyzer Pro 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868261.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Live Home 3D Pro Edition 4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868256.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ iToolab FixGo 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868255.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ TG Pro (Temperature Gauge Pro) 2.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868251.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Duplicate File Finder Pro 6.14.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868250.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868248.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ App Cleaner & Uninstaller Pro 7.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868147.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Carbon Copy Cloner 6 v6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868144.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Tidabie Tidal Music Converter 1.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868143.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ MacCleaner 2 PRO 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868138.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ IP Scanner Pro 3.56 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868130.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Pixelmator Pro 2.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868028.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ PDF Reader Pro Edition 2.8.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868013.jpg" />
 </div>
 
 

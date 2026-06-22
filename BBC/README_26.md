@@ -1,3 +1,29 @@
+###  Публикация: 1599571   (159543) от 24.12.2022
+
+BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.264/1080p] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159543.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой эпической серии из шести частей исследуется обширное волшебное царство и застывшие миры удивительного разнообразия природы. От замёрзшего океана Арктики - до снежных лесов и великих равнин Крайнего Севера, от высокогорных вершин наших гор - до юга Антарктиды. Это последние места дикой природы на Земле, в которых могут обитать только животные с уникальными (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, флора, фауна, исследованияРежиссер: Алекс Лэнчестер, Джейн Аткинс, Орла ДоэртиПеревод: одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:57:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F44D0E1014D9DE640195568063946DCEF85A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 363284   (158011) от 22.12.2015
 
 BBC. Horizon: Богу конец? Гид от Horizon по науке и религии / The End of God? - A Horizon Guide to Science and Religion (2010) HDTVRip [400p]
@@ -6,7 +32,7 @@ BBC. Horizon: Богу конец? Гид от Horizon по науке и рел
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158011.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158008.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157062.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156038.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155568.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC. Horizon: Конопля: вредная трава? / Canabis: The Evil Wee
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155416.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152360.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151059.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BBC. Настоящий доктор Живаго / The Real Doctor Zhivago (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146886.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145365.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145116.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144999.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144647.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141028.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141020.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138635.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134709.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132268.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131829.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131824.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131823.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131790.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131250.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130216.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130197.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C87AB38C1640C890ECBCCAE8460C435D665D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525160   (130174) от 19.01.2022
-
-Аттенборо и кладбище мамонтов / Attenborough and the Mammoth Graveyard (2021) HDTV [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэр Дэвид Аттенборо присоединяется к археологическим раскопкам, раскрывающим крупнейшую находку мамонта в Великобритании почти за 20 лет.Производство: ВеликобританияЖанр: ДокументальныйРежиссер: Jamie E. LochheadПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256A5C64BA4103D954D9D65DAB54FEA1CA1179B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

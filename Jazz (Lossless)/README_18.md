@@ -6,7 +6,7 @@ Harry James & His Orchestra (1991) LaserLight [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008591.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Harry James - The Hits Of Harry James (1989) Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008589.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Les Brown - The Les Brown Story (1959) 1989, Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008475.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bob Crosby And His Orchestra - 1938 (1990) Circle [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008335.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Billy May And His Orchestra - Sorta-May / Sorta-Dixie (1996) Creative World [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008039.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ P.J. Perry & Doug Riley - Come Sunday: Songs of Spirituality (2004) Justin Time 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007919.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dave Brubeck - In Berlin (1964) 1999, SME Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007788.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Dave Brubeck Quartet - Time Outtakes (1959) 2020, Brubeck Editions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007785.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Sai Ghose Trio - E-Motion (2004) [FLAC|Lossless|tracks + .cue] <Mainstream J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007633.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Swingrowers - Hybrid (2021) [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007623.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Frank Marocco Groups - Brazilian Waltz (1988) Discovery Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007620.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stephane Grappelli - Live In Warsaw '91 (1994) Jukebox Collection [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007316.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stephane Grappelli - 85 And Still Swinging (1993) Angel Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007315.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stephane Grappelli & Joe Venuti - Venupelli Blues (1969) 1986, Charly [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007272.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jack Sheldon - Quartet & Quintet featuring Zoot Sims And Joe Maini (1954, 1955) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007176.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Summer Lounge Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007162.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Scott Robinson - Tenormore (2019) [FLAC|Lossless|tracks + .cue] <Swing, Bop, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007033.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Woody Herman - Brand New (1971) 2000, Original Jazz Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007027.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chris Geith - Invisible Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007021.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dean Fraser - Flat Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007020.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gary Smith - My Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007019.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Brian Simpson - All That Matters (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006966.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ David Lahm - Jazz Takes On Joni Mitchell (1999) Arkadia Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006919.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Johnny Holiday - Sings (1954) 2004, Contemporary Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006670.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lena Horne - Love Songs (50-e - 60-e) 2005, Legacy [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006534.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Richard "Groove" Holmes - Groove's Groove (1977 - 1988) 1997, 32 Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005948.jpg" />
 </div>
 
 

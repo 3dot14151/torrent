@@ -1,3 +1,82 @@
+###  Публикация: 1617946   (201571) от 09.03.2023
+
+Спарринг-партнёр / Jing yi wui long / The Sparring Partner (2022) BDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная на сенсационном реальном деле 2013 года, запутанная история начинается с того, что молодой человек вместе со своим другом убивает и расчленяет своих родителей. Не признавая себя виновными, адвокаты защиты вскоре набрасываются друг на друга, поскольку подсудимые прикидываются идиотами. Тем временем в зале присяжных разгораются жаркие споры, где девять присяжных (   Читать дальше...   )Производство: Гонконг / Film Development Fund of Hong Kong, Mei Ah Films Production Co. Ltd.Жанр: драма, криминал, детективРежиссер: Хо Чук-ТиньАктеры: Алан Юн, Май Пэйдун, Ян Лам, Луиза Со, Чу Пак-Хим, Ксения Чун, Майкл Чоу, Глория Ип, Дэвид Сиу, Мэтт ЧоуПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A2265657A5CA1D8E2AACAF8ECFDF00AECAD027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617495   (201545) от 08.03.2023
+
+Спарринг-партнёр / Jing yi wui long / The Sparring Partner (2022) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная на сенсационном реальном деле 2013 года, запутанная история начинается с того, что молодой человек вместе со своим другом убивает и расчленяет своих родителей. Не признавая себя виновными, адвокаты защиты вскоре набрасываются друг на друга, поскольку подсудимые прикидываются идиотами. Тем временем в зале присяжных разгораются жаркие споры, где девять присяжных (   Читать дальше...   )Производство: Гонконг / Film Development Fund of Hong Kong, Mei Ah Films Production Co. Ltd.Жанр: драма, криминал, детективРежиссер: Хо Чук-ТиньАктеры: Алан Юн, Май Пэйдун, Ян Лам, Луиза Со, Чу Пак-Хим, Ксения Чун, Майкл Чоу, Глория Ип, Дэвид Сиу, Мэтт ЧоуПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 02:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315746AB51B29FEDA4F8834C49E1BDA944CBD2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612532   (201286) от 14.03.2023
+
+Из мальчишек в мужики / Ah Boys to Men (2012) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кен — маменькин сынок, облизанный и обласканный родней. Он живет себе припеваючи, но тут приходит пора отдать свой долг отечеству… Сам Кен, его мама и бабушка пытаются всеми силами отмазать его от армии, но это им не удается… Однако, они не оставляют своих попыток, выискивая все новые и новые средства.Производство: Сингапур / J Team Productions, MM2 Entertainment, Mediacorp Audio PostЖанр: КомедияРежиссер: Джек НеоАктеры: Джошуа Тань, Тош Чжан, Ван Вэйлян, Noah Yap, Charlie Goh, Daniel Ang, Вивек Арора, Fish Chaar, Елена Чу, Люк Ли, Вэнь ЛунгПеревод: Одноголосый любительский (озвучка den904 по переводу Skyworker)
+было замечено немного ненормативной лексикиСубтитры: Английские + Неустановленные азиатские (hardsub)Продолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F8B4D14DE048E1E7F1AA667876EA183EC7FB88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 294051   (200951) от 21.03.2023
 
 Жить / Ikiru / To Live (1952) DVDRip [H.264] [MVO]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200951.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200900.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199758.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199736.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199261.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198549.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198195.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197841.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197741.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197729.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197703.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197622.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197610.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197005.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196783.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196693.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195661.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195235.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194998.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194931.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194904.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194738.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194705.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C66E35614F67FC6ACC608CD7DA43CF06F931725F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654096   (194065) от 19.08.2023
-
-Наёмный убийца / Salsu (The Assassin) (2023) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194065.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нескольких войн Чосон находится в хаосе, законы перестали служить людям, а амбиции правителей зашкаливают. Они нанимают убийц, которые уничтожали тех, кто впал в немилость. Ли Нан был лучшим наёмным убийцей Чосона. Откуда он и на кого работает - никто не знает, но он всегда выполняет работу безукоризненно. Однажды Ли Нан вынужден обратиться к лекарю: его мучают (   Читать дальше...   )Производство: Корея Южная / JNC Media GroupJoy n CinemaЖанр: Боевик, приключения, историяРежиссер: Квак Чон-докАктеры: Щин Хён-джун, Ли Мун-щик, Ким Мин-гён, Хон Ын-ги, Ли Джон-мин, Пак Чэ-хун, Ли Ро-ун, Ким Бён-чхун, Чон Бом-джун, Ли Хён-гольПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D99CDCB60E99A70DB2888FB6BA6FDBEC4CB442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656760   (193440) от 31.08.2023
-
-Криминальный город: Разборки в Пусане / Beomjoe dosi 3 / The Roundup: No Way Out (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193440.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 год. Детектив Ма Сок-то перевёлся в инчхонский следственный отдел, работает с новой командой, и покой ему только снится. Втайне от главы клана ушлые якудза поставляют в город новый синтетический наркотик, который становится дико популярным в увеселительных заведениях. Используя собственное неотразимое обаяние, а также сокрушительные удары правой и левой, через (   Читать дальше...   )Производство: Южная Корея / ABO Entertainment, B.A. Entertainment, Big Punch PicturesЖанр: Криминал, боевик, триллер, детективРежиссер: Ли Сан-ёнАктеры: Ма Дон-сок, Ли Джун-хёк, Мунэтака Аоки, Ким Мин-джэ, Ли Джи-хун, Ко Гю-пхиль, Ан Сэ-хо, Чон Сок-хо, Ли Бом-су, Дзюн КунимураПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946159DA43FDF95FF98F3AF252B833278B9A35B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828580   (193417) от 24.10.2025
-
-Второй пропущенный звонок / Chakushin ari 2 (2005) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие в фильме разворачивается через год после событий первой части. Юми Накамура пропадает без вести, а убийства, связанные с загадочными звонками, не прекращаются. Но если раньше у убитых при странных обстоятельствах людей находили во рту красные конфетки, то теперь опознавательным знаком являются частички угля в желудках жертв. Один за другим погибают знакомые (   Читать дальше...   )Производство: Япония / Chakushin Ari 2 Seisaku Iinkai, Hakuhodo DY Media Partners, Japan Film Fund, Kadokawa PicturesЖанр: ужасыРежиссер: Ренпей ЦукамотоАктеры: Мимура, Ю Ёсидзава, Рэндзи Исибаси, Харуко Ванибути, Питер Хо, Асака Сето, Тисун, Нанна Койдзюми, Юджиро КомураПеревод: дублированный, профессиональный многоголосый (Первый канал)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7323B61A41E7A1248EA9373519A07CF735546509
 ```
 
 https://mybot314.ru/tekegram_catalog/

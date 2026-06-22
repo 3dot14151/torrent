@@ -1,3 +1,30 @@
+###  Публикация: 799034   (992311) от 17.01.2020
+
+Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь+ - очень удобное приложение, помогающее планировать, составлять расписание и распределять во времени самые разные события и мероприятия прямо с вашего устройства. Теперь это проще, чем когда-либо! Календарь+ автоматически синхронизируется с аккаунтами в Google и отображает всё многообразие ваших планов сквозь призму личных настроек.
+Также, функция быстрого (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 17.01.19Разработчик: Calendar+Поддерживаемая ОС: Android 4.4 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE1E753EBE302557F1B7B9F81C9098AF220A182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353357   (991812) от 18.01.2020
 
 Angry Birds Rio 2.6.13 [En]
@@ -6,7 +33,7 @@ Angry Birds Rio 2.6.13 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991812.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Angry Birds Space 2.2.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991809.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Angry Birds Seasons 6.6.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991806.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Angry Birds Star Wars 1.5.13 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991801.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Angry Birds Star Wars II 1.9.25 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991696.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Angry Birds Stella 1.1.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991685.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Angry Birds Classic 8.0.3 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991684.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Game Dev Tycoon 1.4.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990604.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990538.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989684.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ Free Audiobooks v1.14.7 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987823.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ Garmin: City Navigator Turkey NTU 2016.30 [Tr]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983094.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ The Rivers of Alice v1.61 [Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978934.jpg" />
 </div>
 
 
@@ -344,7 +371,7 @@ TurboScan Paid 1.5.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976473.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ Compass Pro 1.49 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976381.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975273.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974394.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ Garmin: City Navigator Southern Africa NT 2016.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973200.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972875.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ Garmin: City Navigator India NT 2015.40 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971924.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971526.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ Garmin: City Navigator Middle East & North Africa 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970657.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970484.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ Garmin: TOPO Norway Premium v2 [No]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969528.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Canva Premium 2.47.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969299.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ Canva Premium 2.47.0 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490C144B61C8837904017530C0B9C03E69819B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359673   (964057) от 12.02.2020
-
-Слова из Слова v12.8 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слова из Слова - одна из лучших головоломок со словами для Android в замечательном бумажном стиле. Для прохождения вам доступны 96 уровней, также имеется мультиплеер, где вы можете помериться силами с друзьями или случайным противником. Правила игры просты и многим знакомы с детства. Вам дается некоторое слово, необходимо составить все возможные комбинации из имеющихся (   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 04.02.2020Разработчик: RedboxSoftПоддерживаемая ОС: Android. Зависит от устройства.Жанр: Словесные игрыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F12FD3859CBA395014239C10930558D9A10638
 ```
 
 https://mybot314.ru/tekegram_catalog/

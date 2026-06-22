@@ -1,3 +1,57 @@
+###  Публикация: 1179684   (346825) от 01.11.2017
+
+Flume Pro 2.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flume - новое приложение для просмотра контента в Instagram, сочетающее в себе черты мобильных приложений и софта для десктопов.
+Программа представляет собой обособленный клиент для Instagram, реализующий концепцию плавающего окна. Пользователь мановением курсора переключается между тем типом отображения контента, которые ему подходит – сетка с эскизами, сжатый список, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: Rafif YaldaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D08E39525B8BEDE6A691FDFA2145BA6E0D5E3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179706   (346816) от 01.11.2017
+
+Sublime Text 3 (3153) Dev [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 ноября 2017Разработчик: Jon SkinnerПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BCA3141FE4F0F09DED824DE92EF284644A6088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418661   (346796) от 25.10.2020
 
 Movist Pro 2.4.4 [Multi/Ru]
@@ -6,7 +60,7 @@ Movist Pro 2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346796.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Tenorshare UltData 9.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346436.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ CleanMyMac 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346353.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ iTools Pro 1.7.7 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346316.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ IconFly 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345931.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ EtreCheck 5 v5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345927.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ FilePane 1.10.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345803.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ Twitterrific 5 for Twitter v5.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345801.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ Unclutter 2.1.12d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345797.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ Network Kit X 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345793.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ iFlicks 2 v2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345710.jpg" />
 </div>
 
 
@@ -309,7 +363,7 @@ Jettison 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345704.jpg" />
 </div>
 
 
@@ -338,7 +392,7 @@ FontLab VI v6.1.0 (6871) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345500.jpg" />
 </div>
 
 
@@ -366,7 +420,7 @@ Geekbench 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345397.jpg" />
 </div>
 
 
@@ -395,7 +449,7 @@ IP Scanner Pro 3.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345359.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ Beamer 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345357.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ Pixelmator Pro 1.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345336.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ DxO OpticsPro Elite 11.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345216.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ Algoriddim djay Pro 1.4.1 (Complete FX Pack) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345206.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345174.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345025.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344888.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ Yate 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344828.jpg" />
 </div>
 
 
@@ -638,7 +692,7 @@ Piezo 1.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344826.jpg" />
 </div>
 
 
@@ -652,61 +706,6 @@ Piezo не требует никаких настроек, достаточно 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53B249BBE5123BC49CA3E3ED14C59D31B8BD9830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419103   (344825) от 26.10.2020
-
-Iridient Developer 3.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью неразрушающи и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2020Разработчик: Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60380F55CE5432BF70CC645E8B939979EFAA0E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419142   (344710) от 26.10.2020
-
-Loopback 2.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудио между приложениями на вашем Mac.
-Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере!
-
-Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте приложений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2020Разработчик: Rogue Amoeba Software, Inc. AllПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397F09C756D04306BA970665A775413FE77BCCB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1862808   (1063912) от 01.04.2026
+
+Chez Kane - Reckless (2026) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reckless
+02. Personal Rock N' Roll
+03. Night Of Passion
+04. Strip Me Down(   Читать дальше...   )Жанр: AORПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2CD936CDE7DB6903AFC84A942687759AA0AEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862858   (1063883) от 01.04.2026
+
+Syrinx Call - Mirrorneuron 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Returning - 04:43
+02. Boandless Choices - 04:26
+03. Organic Embodiment - 06:47
+04. Are You My Image ? - 05:42(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213CDD9CE8217F61AE5E51C71E12CCE7EA7FB084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863056   (1063761) от 02.04.2026
+
+Amerikan Kaos - The Sheeple Swing (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть американской трилогии Джеффа Уотерса01. I Won) The Hottie Lottery  04:14
+02. Take Back  04:13
+03. (I Wish I Could) Talk To The Dead  05:43
+04. The Answer  04:15(   Читать дальше...   )Жанр: Hard 'n' RollПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D693910455B836A55AC3E4C07C15C1FBC50CC6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863427   (1063489) от 04.04.2026
+
+U2 - Easter Lily (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Song For Hal
+02 - In A Life
+03 - Scars
+04 - Resurrection Song(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CBB9E26C6B59F273DBD03083A06B2C2CB0CCB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863582   (1063035) от 07.04.2026
 
 Queen - Queen II (1974) 2XCD, Japanese Edition, SHM-CD, Remastered, MIX 2026, Universal Music [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +122,7 @@ Queen - Queen II (1974) 2XCD, Japanese Edition, SHM-CD, Remastered, MIX 2026, Un
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063035.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - This Is... 1977 (2008) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062809.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - This Is... 1972 (2008) [FLAC|Lossless|image + .cue] <Classic Rock, Glam, He
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062808.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Suzi Quatro - Freedom (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062744.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Rock Anthems (The Ultimate Collection) (2017) 5 x CD, Compilation [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061944.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - This Is... 1974 (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock, Alternativ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061908.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Aerosmith - Aerosmith (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061713.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Ron D Bowes - ooh la la. (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061612.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Rockin' 70s (2004) 3 x CD, Compilation [FLAC|Lossless|image + .cue] <Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061205.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061204.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - This Is... 1973 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock, Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060619.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Greatest Ever! 70s Rock (2016) 3 x CD Box Set [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060258.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sting - Mercury Falling (1996) 2026 Expanded Edition [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059932.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Proportions - Stories Untold (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059691.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Greatest Ever! Rock The Definitive Collection (2006) 3 x CD, Box Set [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059100.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Breakthrough (Underground Sounds Of 1971) (2021) 4 x CD, Box Set [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059096.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - So High I've Been (A European Rock Anthology 1967-1973) (2026) 3 x CD, Comp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058886.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Heavy Workout 2026 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058721.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Scorpions - Lonesome Crow (1972) 2026 Mix [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058692.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Radio Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058583.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - 30 legend rocka (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058314.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Just In - Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058313.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Just In - Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B0EF395D4CF690A38CFF88A036998C520A5928F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854609   (1057536) от 19.02.2026
-
-VA - Classic Rock 1968: Blowin' Your Mind (1991) [FLAC|Lossless|tracks + .cue] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crazy World Of Arthur Brown - Fire (2:53)
-02. Archie Bell & The Drells - I Can't Stop Dancing (2:23)
-03. Jerry Butler - Hey, Western Union Man (2:38)
-04. Marvin Gaye & Tammi Terrell - If I Could Build My Whole World Around You (2:21)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2603D8C0210C0E3A8584B632C852F103CF70E0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854652   (1057524) от 19.02.2026
-
-Abraham, Baker, Lyndon - Where Do We Go From Here (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After The Storm (01:48)
-02. Blind (06:00)
-03. Hero Ways (05:17)
-04. Alone (08:56)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0349F6BC353BD21113EC361CDB3599C87A7F9486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854428   (1057293) от 18.02.2026
-
-Downtown Brown - Moist & Ridiculous (2002) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Rock [0:04:48.03]
-02. Mission Statement [0:04:19.01]
-03. Mullet Millennium [0:04:54.56]
-04. Drinkin' Song [0:03:55.58](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356811E5F564B246D7CA141116DBC7496D8339D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854427   (1057292) от 18.02.2026
-
-Gomez - Bring It On (1998) [FLAC|Lossless] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Miles [0:05:16.30]
-02. Whippin’ Piccadilly [0:03:12.17]
-03. Make No Sound [0:03:26.03]
-04. 78 Stone Wobble [0:04:22.02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BCD72206B848A76584C6401BB7AE62C26F2DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

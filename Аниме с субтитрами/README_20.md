@@ -1,3 +1,29 @@
+###  Публикация: 970646   (988403) от 01.01.2016
+
+Slayers OVA / Рубаки ОВА [1996-1999, OVA, 6] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средневековье, век меча и магии. И магии не хилой. Главная героиня - нахальная, всеядная, алчная, языкастая и весьма жестокая Лина Инверс. Так и хочется сказать: злодейка. Она бы несомненно предпочла грабить мир, а не спасать его. Что за немыслимые причины останавливают её - тайна за семью печатями, однако спасатель из неё не плохой. Все "очень добрые и справедливые" (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык субтитров: Русский (отключаемый)Продолжительность: 6 ОВА по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204474A0F605E93EEE71C3A96C81CE05F77EDA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970580   (988315) от 01.01.2016
 
 Slayers Movie / Рубаки Фильмы [1995-2001, Movie, 5] BDRip 1080p raw
@@ -6,7 +32,7 @@ Slayers Movie / Рубаки Фильмы [1995-2001, Movie, 5] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988315.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Arete Hime | Arite Hime | The Adventure of Princess Arete | Принцесса �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986990.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Roujin Z | Old Person Z | Старик Зет [1991, Movie] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986044.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Rifle is Beautiful | Винтовка прекрасна [2019, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985871.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Kannagi: Crazy Shrine Maidens / Хранительницы: веселые де�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985539.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Bishoujo Senshi Sailor Moon Super S: Sailor 9 Senshi Shuuketsu! Black Dream Hole
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984862.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito | Pretty Soldier Sailor Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984857.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Bishoujo Senshi Sailor Moon Gaiden: Ami-chan no Hatsukoi | Pretty Soldier Sailor
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984856.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Bishoujo Senshi Sailor Moon Super S Special | Pretty Soldier Sailor Moon Super S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984831.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Bishoujo Senshi Sailor Moon S | Pretty Soldier Sailor Moon S | Красавиц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984825.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Bishoujo Senshi Sailor Moon Super S | Pretty Soldier Sailor Moon Super S | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984821.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Bishoujo Senshi Sailor Moon R | Pretty Soldier Sailor Moon R | Красавиц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984818.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Bishoujo Senshi Sailor Moon Sailor Stars | Pretty Soldier Sailor Moon Sailor Sta
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984763.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Bishoujo Senshi Sailor Moon Crystal Season III | Pretty Soldier Sailor Moon Crys
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984759.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984487.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Big Order / Приказ свыше [2015, OVA, 1] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984357.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Chaos;Head / Хаос;Вершина [2008, TV, 12] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983897.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Zetsumetsu Kigu Shoujo: Amazing Twins | Разрушительные опасн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983202.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Gingitsune: Messenger Fox of the Gods | Серебряный Лис [2013, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983098.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Hibike! Euphonium | Sound! Euphonium | Играй, Эуфониум! [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983087.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Dance with Devils / Танец с дьяволами [2015, TV, 12 из 12] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982801.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай Грисайи [2015, TV, 10 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982799.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Dragon Ball Z Movies / Драгонболл Z Фильмы [1989 - 2015, Movie, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982711.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Upotte!! / Шмальнём!! [2012, ONA, 10] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981399.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Dragon Ball Movie / Драгонболл: фильмы [1986-1996, MV] DVDrip 72
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980624.jpg" />
 </div>
 
 
@@ -654,34 +680,6 @@ Dragon Ball Movie / Драгонболл: фильмы [1986-1996, MV] DVDrip 72
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EAB25BE43764E859E5F2BF73F7326FE7EEB73B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742707   (977930) от 06.01.2014
-
-Saint Seiya(Jashin Eris|Kamigami no Atsuki Tatakai|Shinku no Shounen Densets|Saishuu Seisen no Senshi-tachi|Overtur) / Рыцари Зодиака [1986,MV,5из6] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда боги правили землей. Тогда существовала группа молодых людей, защищавших богиню Афину и звавшихся Бронзовыми Рыцарями. Их задача — борьба с воплощением зла. Так было раньше; теперь же, много столетий спустя, история повторяется. Афина возродилась в теле японки Саори Кидо, и снова ее защищают рыцари в святых доспехах. Но зло тоже не дремлет…
-
-Однажды (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Морисита Кодзо;Субтитры: •Продолжительность: 45 мин. + 46 мин. + 75 мин. + 45 мин. + 83 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135C982B5DAAC5810AA914D4F0136F51D9CFB186
 ```
 
 https://mybot314.ru/tekegram_catalog/

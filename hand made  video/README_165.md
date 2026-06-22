@@ -1,3 +1,29 @@
+###  Публикация: 1787917   (23225) от 28.03.2025
+
+Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американское правительство долго скрывало тайну первой высадки человека на Луну. Оказывается, 20 июля 1969 года совершив посадку на Луне, американские астронавты обнаружили разбившийся корабль автоботов и останки роботов. Программу засекретили, но спустя сорок лет она вновь всплыла, как камень преткновения в отношениях людей и автоботов. Сем Уитвики и его новая подружка (   Читать дальше...   )Производство: США / Paramount Pictures,Hasbro,Di Bonaventura PicturesЖанр: Фантастика, Приключения, БоевикРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Джош Дюамель, Джон Туртурро, Тайриз Гибсон, Роузи Хантингтон-Уайтли, Патрик Демпси, Кевин Данн, Джули Уайт, Хьюго Уивинг, Джон Малкович, Кен ЖонгПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: 02:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6F2A1BA333BCEDBB5ACA9464AA4640C4715C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787852   (23224) от 28.03.2025
 
 Пес Барбос и необычный кросс (1961) BDRip [H.265/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23224.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23222.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23219.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23218.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23217.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23135.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23082.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22933.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22917.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22913.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22912.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22911.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22907.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22905.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22902.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22888.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22882.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22881.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22877.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22862.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22835.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22823.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22815.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22808.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22805.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A942CCDE2811E7C0EB707EEB6ACA14A20213B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788987   (22801) от 01.04.2025
-
-Интуиция / Serendipity (2001) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества в одном из нью-йоркских магазинов американец Джонатан встречает англичанку Сару. Они проводят вместе всего несколько часов, гуляя по заснеженному городу. Саре нужно улетать на родину, и она предлагает проверить судьбу: Джонатан пишет свой телефон на банкноте, а она — в книге. Купюру разменивают, книгу сдают букинисту, после чего Сара и Джонатан (   Читать дальше...   )Производство: США / Miramax Films, Simon Fields Productions, Tapestry FilmsЖанр: мелодрама, комедияРежиссер: Питер ЧелсомАктеры: Джон Кьюсак, Кейт Бекинсейл, Джереми Пивен, Бриджет Мойнэхэн, Джон Корбетт, Юджин Леви, Кейт Блумберг, Лилли Лавинь, Майкл Джуарино мл., Абдул АльшавишПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9037D06904739F3D5E5D5DC60EF7B47F4896E1C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

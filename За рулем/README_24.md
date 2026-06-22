@@ -1,3 +1,110 @@
+###  Публикация: 953527   (348556) от 04.11.2015
+
+Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2015) HDTV [H.264/720p] [Сезон 12, серия 15]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Майк покупает машину, передаёт её механику Эду на починку и потом продаёт её новому владельцу, а как это у них получится, смотрите сами...Жанр: Документальный, научно-познавательный, автомобилестроениеРежиссер: Ричард Хили, Уоррен Грин, Мартин ХиксПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2748C3502A31D94952CC0E3F9FF467B9182D472B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418641   (346801) от 25.10.2020
+
+Первая передача на НТВ. Автомобильная передача (25.10.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казалось бы, вы купили автомобиль в автосалоне. Ну что же мешает вам стать его обладателем? Оказывается, такое бывает и первая передача выяснит почему так случается. А также мы выясним как же правильно парковаться в частном секторе в его джунглях. Ведь там так мало места и с этим бывает много проблем.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECB6D732FFD3B98FC997A046BAAAC93ED942A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839115   (344460) от 08.11.2014
+
+Discovery. Махинаторы (Автодилеры) / Wheeler Dealers. Ford Thunderbird (2014) HDTVRip [XviD/720i-LQ] (Сезон 11, серия 8) [PR]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суть передачи такова: ведущий покупает старенькую машину-автоклассику за небольшие деньги и передает ее механику-профессионалу, чтобы тот, в свою очередь, восстановил ее до приличного состояния, уложившись при этом в определенный бюджет. Далее ведущий попытается продать авто, за сумму перекрывающую расходы на ее покупку и ремонт, и постарается остаться даже в небольшой (   Читать дальше...   )Производство: Великобритания, Attaboy TV LTD for Discovery ChannelЖанр: Документальный, научно-познавательный, автомобилестроениеРежиссер: Уоррен ГринПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6B8068DEF50361D39EA845CF907270352F1DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578730   (343532) от 24.09.2022
+
+Минтранс (24.09.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лимузин президента. Как устроен автомобиль первого лица страны?
+ Тест-драйв «корейца» с пробегом. Насколько надежна 10-летняя Daewoo Nexia? Стоит ли покупать такую машину?
+ Охлаждаемся правильно. Можно ли смешивать антифриз разных цветов? Чем это опасно?
+ Авария и ответственность. Что делать, если вам разбили  машину во дворе дома?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2D5FE3899CFF4FD5173403AF5C3E2AFE0B14D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578737   (343513) от 24.09.2022
 
 Главная дорога (24.09.2022) SATRip  [H.264]
@@ -6,7 +113,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343513.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342310.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341869.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341092.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339954.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339889.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337649.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337614.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336594.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Discovery: Махинаторы / Wheeler Dealers (2018) HDTVRip [H.264/1080i-LQ
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336318.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336233.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335670.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335667.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335569.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335450.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335444.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335337.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers. Jaguar
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335143.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334994.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333834.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332554.jpg" />
 </div>
 
 
@@ -559,7 +666,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers. Audi T
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332299.jpg" />
 </div>
 
 
@@ -570,113 +677,6 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers. Audi T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AACDD01533C58272D58BAD7FDF3A9C16FD439FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955663   (332218) от 12.11.2015
-
-Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2015) HDTV [H.264/720p] [Сезон 12, серия 16]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Майк покупает машину, передаёт её механику Эду на починку и потом продаёт её новому владельцу, а как это у них получится, смотрите сами...Citroen HY VanЖанр: Документальный, научно-познавательный, автомобилестроениеРежиссер: Ричард Хили, Уоррен Грин, Мартин ХиксПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C123336A86E484CDB0CD788604D2438B63420B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840513   (332185) от 14.11.2014
-
-Discovery. Махинаторы (Автодилеры) / Wheeler Dealers.  Volkswagen Type 2 (2014) HDTVRip [XviD/720i-LQ] (Сезон 11, серия 11) [PR]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суть передачи такова: ведущий покупает старенькую машину-автоклассику за небольшие деньги и передает ее механику-профессионалу, чтобы тот, в свою очередь, восстановил ее до приличного состояния, уложившись при этом в определенный бюджет. Далее ведущий попытается продать авто, за сумму перекрывающую расходы на ее покупку и ремонт, и постарается остаться даже в небольшой (   Читать дальше...   )Производство: Великобритания, Attaboy TV LTD for Discovery ChannelЖанр: Документальный, научно-познавательный, автомобилестроениеРежиссер: Уоррен ГринПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931BB29F13D4C2C69B4607BEC28E6A6464FE9C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840521   (332178) от 14.11.2014
-
-Discovery. Махинаторы (Автодилеры) / Wheeler Dealers. BMW Z1 (2014) HDTVRip [XviD/720i-LQ] (Сезон 11, серия 12) [PR]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суть передачи такова: ведущий покупает старенькую машину-автоклассику за небольшие деньги и передает ее механику-профессионалу, чтобы тот, в свою очередь, восстановил ее до приличного состояния, уложившись при этом в определенный бюджет. Далее ведущий попытается продать авто, за сумму перекрывающую расходы на ее покупку и ремонт, и постарается остаться даже в небольшой (   Читать дальше...   )Жанр: Документальный, научно-познавательный, автомобилестроениеРежиссер: Уоррен ГринПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D9E505C07B1E62D5233463323F54E4CB5AA828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580411   (330886) от 01.10.2022
-
-Минтранс (01.10.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тест-драйв Geely Coolray - 2022.  Что в этой китайской машине удивляет?
-Что в ней - от европейца, а что осталось от азиата?
- Переделываем авто. Нужно ли регистрировать в ГИБДД дополнительное оборудование, установленное на машину?
- Масло выше уровня: чем это грозит, и что делать?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972ABFB1219615CB39DBF925A262E702283A5D69
 ```
 
 https://mybot314.ru/tekegram_catalog/

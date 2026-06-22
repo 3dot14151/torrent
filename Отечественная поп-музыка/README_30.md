@@ -1,3 +1,147 @@
+###  Публикация: 1705205   (114000) от 07.03.2024
+
+Обними Кита - Концерт (2024) [MP3|320 Kbps] <Pop, Indie>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ко мне
+2. Пополам
+3. Одеяло
+4. Мир недостроенных иллюзий(   Читать дальше...   )Жанр: Pop, IndieПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931FDF975AE38A8F6460AA81E4019C2FA51F2FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707755   (113292) от 17.03.2024
+
+Сергей Бобунец, DJ Nejtrino, Chester Young - Розовые очки (2024) Single [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113292.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Розовые Очки (Radio Mix)
+2. Розовые Очки (Extended Mix)
+3. Розовые Очки (Instrumental Mix)Жанр: Dance, PopПродолжительность: 00:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9E97576EF1DD7D0FFC06748571432EC934F448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822999   (112415) от 09.10.2025
+
+Аркадиас - Звёздный май. Песни Николая Кокшарова (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Звёздный май [00:03:59]
+02 - Наташа [00:04:01]
+03 - Диско-лето [00:03:26]
+04 - Розовый вечер смотрит в окно [00:03:58](   Читать дальше...   )Жанр: PopПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F3B2A47DB6FF0FCBBE980099E08A5FC7154361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713148   (111985) от 05.04.2024
+
+DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111985.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мелодия из к/ф «Перестройка»
+2. Пионерка
+3. Под красною звездой
+4. Снег растаял на плечах(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3ED82FF353878AE4BAE82D26FC8B6DABC13D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718736   (110883) от 26.04.2024
+
+Полина Гагарина - Шоу "НАВСЕГДА" (Live at ДС "Мегаспорт", Москва 2023) (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110883.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Навсегда (Live at Мегаспорт, Москва, 2023)
+2. Вчера (Live at Мегаспорт, Москва, 2023)
+3. Смотри (Live at Мегаспорт, Москва, 2023)
+4. Тени (Live at Мегаспорт, Москва, 2023)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D358F84E0CE253352BA8CE3EF4C7050BFEFB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719053   (110772) от 27.04.2024
 
 VA - Она (2024) сборник в поддержку благотворительного центра «Сёстры» [MP3|320 Kbps] <Pop>
@@ -6,7 +150,7 @@ VA - Она (2024) сборник в поддержку благотворите
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110772.jpg" />
 </div>
 
 
@@ -35,7 +179,7 @@ MONOKINI - Дотянуться до солнца (2001) Deluxe Edition, 2024, M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110771.jpg" />
 </div>
 
 
@@ -64,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110768.jpg" />
 </div>
 
 
@@ -93,7 +237,7 @@ FIZICA - Что, если…? – Часть 1 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109404.jpg" />
 </div>
 
 
@@ -122,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108309.jpg" />
 </div>
 
 
@@ -151,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107362.jpg" />
 </div>
 
 
@@ -180,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107351.jpg" />
 </div>
 
 
@@ -209,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106749.jpg" />
 </div>
 
 
@@ -238,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106528.jpg" />
 </div>
 
 
@@ -267,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106415.jpg" />
 </div>
 
 
@@ -296,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106407.jpg" />
 </div>
 
 
@@ -325,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106370.jpg" />
 </div>
 
 
@@ -354,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105171.jpg" />
 </div>
 
 
@@ -383,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105023.jpg" />
 </div>
 
 
@@ -412,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104893.jpg" />
 </div>
 
 
@@ -441,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104870.jpg" />
 </div>
 
 
@@ -470,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103374.jpg" />
 </div>
 
 
@@ -499,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103361.jpg" />
 </div>
 
 
@@ -528,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103360.jpg" />
 </div>
 
 
@@ -557,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103357.jpg" />
 </div>
 
 
@@ -586,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103093.jpg" />
 </div>
 
 
@@ -600,163 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBA27CD5329AE916D53663AB2DEC70BAC80A5D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489070   (101824) от 28.04.2012
-
-Анне Вески - Звездная коллекция (2000) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позади крутой поворот (4:33)
-02. Пора домой (4:26)
-03. Продлись, счастье (4:16)
-04. Привет, мой старый дом (4:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33671E7DEF2FBD78BBE1B9C9970FD9691F865D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483955   (89262) от 18.04.2012
-
-5sta Family - Зачем ?(2012) [MP3|320 kbps]<Pop | RnB>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89262.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spring Summer (В.Косинский, В.Ефремов)
-2. Зачем (О.Засульская, В.Косинский, В.Ефремов)
-3. Покажи мне смысл (В.Косинский, В.Ефремов)
-4. Мы здесь2012Жанр: Pop | RnBПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823A11CFF34D4D96BEDC76D767E78B4C365B9648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481470   (88032) от 12.04.2012
-
-Юрий Шатунов - 3 альбома (2002-2004) [MP3|192 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88032.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002-2004Жанр: PopПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FB5CDF7AF1D207BAC2E795488E599FBF897826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475588   (85340) от 30.03.2012
-
-Анна Герман - Z archiwum Polskiego Radia (2008) [MP3|320 kbps]<Ретро, эстрада>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85340.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: (01:17:35)
-01. A kiedy wszystko zgaśnie (4:08)
-02. Stanęliśmy nad jeziorem (4:09)
-03. Ożeń się, Johny (3:18)
-04. Skończył się czas pełen ciebie (3:37)
-05. Zaryzykujmy choć raz (3:43)
-06. Jesienna rozłąka (3:56)
-07. Jak ty nic nie rozumiesz (3:31)
-08. Znów odpływają okręty (4:23)
-09. Don't Make Me Over (2:37)(   Читать дальше...   )2008Жанр: Ретро, эстрадаПродолжительность: 01:18:04
-
-01. Człowieczy los (2:38)
-02. Kupiłabym Ci me kochanie (3:29)
-03. Weź mnie jak kota w worku (3:35)
-04. Jedna chwila wystarczyła (3:02)
-05. Uśmiech Mony Lisy (3:39)
-06. Sanna (Gwiazdka z nieba) (2:49)
-07. Chcę tańczyć w majową noc (4:09)
-08. Coś mi się wydaje (3:05)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E976CF41E150E035823D074028F574E0A5B4EA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472527   (84627) от 26.03.2012
-
-ВИА «Земляне» - 33 Альбома (Полная дискография)(1979 - 2009) [MP3|137 - 320 kbps]<Retro, Rock, Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аттракцион
- 02. Бокс
- 03. Я еду к тебе
- 04. Дельтaплан1979 - 2009Жанр: Retro, Rock, РорПродолжительность: 00:12:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

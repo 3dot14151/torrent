@@ -1,3 +1,56 @@
+###  Публикация: 1817506   (2701) от 15.09.2025
+
+Антон Могучий | Упражнения для мозга. 5 минут в день по методикам спецслужб (2025) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рабочая тетрадь с упражнениями для мозга по методикам спецслужб поможет всем, кто хочет улучшить память, повысить концентрацию внимания, развить аналитическое мышление, а также устойчивость к стрессу. Методика интеллектуальной подготовки и мнемонические техники, которые используют сотрудники спецслужб, засекречены, но отдельные приемы все же доступны для широкой (   Читать дальше...   )Жанр: СаморазвитиеИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28864CFB209DF07360A0955EDFD7126E89682EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818424   (2549) от 16.09.2025
+
+Антон Могучий | Советский тренажер для мозга. Система занятий для укрепления памяти и внимания. Курс на 3 недели (2025) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Регулярное потребление готовой информации из интернета делает наш мозг "ленивым". Рассеянность внимания, ухудшение памяти, неумение работать с информацией — примета нашего времени. Как заставить свой мозг трудиться?
+Занятия по тренажеру А. Могучего, созданному на основе методик обучения в советской школе, вернут тонус вашему мозгу. Обучающие и развивающие (   Читать дальше...   )Жанр: СаморазвитиеИздательство: АСТФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4699F9AA7F6F998C8FD7F1169DD178041D49D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818619   (2197) от 18.09.2025
 
 Александр Асмолов | Психология достоинства: Искусство быть человеком (2025) [FB2]
@@ -6,7 +59,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2197.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1701.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1338.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_860.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_825.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84.jpg" />
 </div>
 
 

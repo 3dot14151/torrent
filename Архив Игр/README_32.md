@@ -6,7 +6,7 @@ Air Conflicts: Secret Wars / Air Conflicts: Secret Wars. Асы двух вой�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622972.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hunted: The Demon's Forge / Hunted: Кузня демонов [Ru/En] (RePack) 2
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_622891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_622891.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622642.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Hard Reset: Extended Edition + 2 DLC (Repack/1.51.0.0) [Ru] 2011 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622538.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Hard Reset + 2 DLC (Repack/1.51.0.0) [Ru] 2011 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622409.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dear Esther / Дорогая Эстер (Steam-Rip) [Ru/En/Multi14] 2012 l R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622394.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Elder Scrolls V: Skyrim Ultimate HD Edition 2013 [Ru/En] (Repack/1.6.89.0.6)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622093.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Endless Space (Repack/1.0.5) [En/Multi2] 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618177.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Deponia (RePack/1.1) [En] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616730.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Shank (RePack/1.0u3) [Ru] 2010 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616609.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Hard Reset. Extended Edition [Ru/En] (L/Steam-Rip/1.51.0.0) 2011 | R.G. Игро
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616332.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Memento Mori / Memento Mori: Помни о смерти [Ru] (L) 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616306.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616190.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.312843) Repack R.G. Catalyst [Episode 1-3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615531.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Deponia (Repack) [En] 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615097.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ASTRONEER (2019) [Ru/Multi] (1.0.15) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614716.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Krater. Shadows over Solside - Collector's Edition (Lossless RePack/1.09f/DLC) [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614377.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Endless Space [En] (Repack/1.09) 2012 | SxSxL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614375.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Kerbal Space Program (2015) [Ru] (1.7.0.2483/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611355.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Deponia (RePack/1.1) [En] 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610942.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Alan Wake's American Nightmare [Multi10/+] (Steam-Rip/1.03.17.1781) 2012 | R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610936.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Hyper Fighters [Wii] [NTSC] [ENG] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610187.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dreamfall Chapters (2014) [En] (3.0) Unofficial FairLight [Book One: Reborn, Boo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610160.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.4.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609786.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.3.11950/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609785.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609042.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1650692   (174395) от 11.10.2023
+
+Ao no Orchestra | Blue Orchestra | Синий оркестр [2023, TV, 24] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хадзимэ Аоно был вундеркиндом-скрипачом, пока не бросил это занятие из-за проблем в семье. Сейчас, на третьем году средней школы, он изо всех сил пытается определиться, куда идти дальше. Однажды в школе он встречает Рицуко Акину, вспыльчивую начинающую скрипачку, которая хочет участвовать в школьном оркестре, когда перейдёт в старшую школу. Постепенно Хадзимэ сближается (   Читать дальше...   )Производство: Студия Nippon Animation / 日本アニメーションЖанр: комедия, повседневностьРежиссер: Киси СэйдзиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D47CD486188DC7A86D4129DC7618E2BFD5669C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172014   (173813) от 23.12.2017
 
 Urahara | Урахара | Вопреки [2017, TV, 12 эп.] WEB-DL 720p raw
@@ -6,7 +32,7 @@ Urahara | Урахара | Вопреки [2017, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173813.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173529.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Grand Blue / Grand Blue Dreaming / Необъятный океан [2018, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170398.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Obsolete | Устаревший [2019, ONA, 6 эп.] WEB-DL 2160p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170061.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Ganbare Douki-chan | Доки, ты справишься! [2021, Web, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169840.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Urara Meirochou / Город предсказательниц [2017, TV, 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169515.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Jashin-chan Dropkick Dash | Dropkick on My Devil!! Dash | Дропкик зло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169174.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169055.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169015.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Pluto | Плутон [2023, Web, 8 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168705.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | I`m the Villainess, So I`m 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168589.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166103.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Psycho-Pass 3 | Психопаспорт [ТВ-3][2019, TV, 8 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166052.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165849.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165302.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165277.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165144.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165116.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165007.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164775.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164362.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164092.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Jaja-uma Quartet | Wild Cardz | Crown Knights | Дикие карты [1997, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164074.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Ie Naki Ko Remi | Remi, Nobody's Girl | Бездомная девочка Рем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164066.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163822.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14D5B890DAA0710048CFB6B3E782EE69A152528E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432615   (162984) от 18.12.2020
-
-Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком Западе [1972, Movie] BDRip 804p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеми любимый Кот в Сапогах попадает на Дикий Запад. В этих неизведанных краях романтика освоения новых земель уживается с неисчислимыми опасностями, а смелость и благородство настоящих героев противостоят коварству подлых бандитов. Конечно, справедливость и порядок восторжествуют в затерянном среди прерий городке - но только после череды увлекательных перестрелок (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: приключения, комедия, фэнтезиРежиссер: Кацумата ТомохаруПеревод: неизвестно (предположительно по озвучке MC Ent.)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADB48C9EBC339E11EAE5611352E36DB31812D98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 478768   (86630) от 05.04.2012
+
+Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шервуда [Ru] (RePack) 2002 | Pilotus
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86630.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Робин Гуд: Легенда Шервуда" - это тактическая стратегия, жанр которой фактически оформился с выходом знаменитой игры "Commandos" и получил развитие в "Desperados". Теперь создатели Desperados обратились к классическому английскому сюжету о братстве лесных стрелков, злом шерифе, короле Ричарде и его брате Джоне по прозванию "Безземельный". Руками Робина Гуда игрок спасет Англию от жестокого гнета самозваного правителя, собрав выкуп за томящегося в плену Ричарда Львиное Сердце.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time / Tactical) / Arcade / IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478294   (86473) от 04.04.2012
+
+Star Wolves / Звездные волки [Ru] (RePack) 2004 | Pilotus
+
+>>След.
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86473.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Звездные Волки" - трехмерная космическая стратегия в реальном времени с элементами RPG. Действие игры происходит в далеком будущем. Чтобы хоть как-то бороться с пиратством на трансгалактических линиях, человечеством был легализован институт "охотников за головами" - наемников, владеющих скоростными космическими истребителями и призванных бороться с разного рода преступниками. Именно в роли такого наемника игрок и вступает в игру, имея вначале лишь небольшую сумму денег, пару кораблей и массу амбиций. По ходу дела главному персонажу предстоит сражаться с пиратами, охранять торговые суда, участвовать в охоте за знаменитым Красным Корсаром, наживаться на страстях урановой лихорадки, выполнять секретные задания, и даже служить агентом императора. В команде игрока может быть до шести уникальных персонажей, каждый из которых обладает своей внешностью, голосом, способностями и историей. В ходе игры характеристики персонажей растут, добавляются новые уникальные навыки.Тип издания: RePackЖанр: Трехмерная космическая тактическая стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462509   (81482) от 11.03.2012
+
+1944: Battle of the Bulge / Арденны 1944 [Ru] (L) 2005
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военно-историческая стратегия 1944: Battle of the Bulge, разрабатываемая венгерской компанией Digital Reality, продолжает рассказ о Второй мировой войне, начатый в проектах Desert Rats vs. Afrika Korps и D-Day. 20 миссий для одиночного прохождения можно будет выполнить за каждую сторону, а затем проявить своё полководческое мастерство в многопользовательском режиме. На этот раз, после песков Африки и берегов Нормандии, вам придется воевать в условиях европейской зимы, накладывающей дополнительные ограничения на возможности солдат и техники.Тип издания: ЛицензияЖанр: СтратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803705   (65800) от 25.06.2025
 
 Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
@@ -6,7 +84,7 @@ Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65800.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Ground Control Антология (1999-2004) [Ru] (1.05/1.0.0.8/dlc) Repack Pil
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58504.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38027.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25876.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25858.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22832.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20041.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19408.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14347.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13614.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13410.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Incubation: The Wilderness Missions / Incubation: Второй десант [Ru]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7605.jpg" />
 </div>
 
 

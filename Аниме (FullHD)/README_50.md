@@ -6,7 +6,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165116.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164362.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164092.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162984.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162877.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162819.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162186.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161953.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161176.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161096.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161085.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161074.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160950.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157051.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157024.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Mahou Sensou | Magical Warfare | Война магов [2014, TV, 12] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150320.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149873.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Magic Kaito 1412 / Волшебник Кайто 1412 [2014, TV, 24 из 24] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149831.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвраще�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149189.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146901.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146813.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146648.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146640.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146000.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145516.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145222.jpg" />
 </div>
 
 

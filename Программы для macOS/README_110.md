@@ -1,3 +1,113 @@
+###  Публикация: 1075174   (323570) от 21.11.2016
+
+Graphics 2.4.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graphics  - набор иллюстраций, подходящих для любого iWork документа, который требует цвет, текстуру и пр. Вы обязательно найдете подходящую иллюстрацию среди 2000 изображений высокого качества.
+
+Категория Клипарт представляет собой набор из 100 красивых, детальных изображений в двух различных разрешениях. Их содержание колеблется от автомобилей и автобусов для бассейнов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF995088977823CD621FBCB56781C96885AAC76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259142   (323535) от 02.11.2018
+
+TextLab 1.4.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323535.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextLab - текстовый инструмент преобразования, который позволяет Вам быстро управлять и экспортировать свой текст и данные в удобочитаемый и понятный формат. Например, если Вы копируете и вставляете JSON в примере, он предлагает утвердить и отформатировать это JSON. TextLab мудр, так как он предлагает, какие операции могли быть выполнены основанные на Вашем вводе. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: Ondrej KvasnovskyПоддерживаемая ОС: macOS 10.7.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E96AB2A7124B4EA60549D85F0530FE369D16B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075167   (323432) от 21.11.2016
+
+Resume Templates 1.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resume Templates представляет собой коллекцию высокого качества из 104 оригинальных шаблонов Pages, предназначенных, чтобы дать перспективе карьерного роста мощный импульс. Представьте свои образовательные предпосылки, опыт и навыки, которые будет привлекать внимание любого менеджера по подбору персонала.
+
+Каждый объект в шаблоне резюме может быть легко перекрашен, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 сентября 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0EDC83D2D1ABFB97C1459504AE1A46EBFFAD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075168   (323313) от 21.11.2016
+
+Brochures Templates for Pages 2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brochures Templates - представляет собой коллекцию высшего качества из 250 оригинальных шаблонов для приложения Pages Apple. Если вы начинаете новый бизнес, организацию мероприятия, или пытается дать вашим продажи толчок, Brochures Templates вам в этом помогут.
+
+Каждый объект может быть легко перекрашен, видоизменен, перемещен или удален. Введите или вставьте свой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64911704BCE86B366317B83F58DCB78652161DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075166   (323307) от 21.11.2016
 
 Posters Templates for Pages 1.2 [En]
@@ -6,7 +116,7 @@ Posters Templates for Pages 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323307.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Aktuell - RSS news reader 3.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323304.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323196.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ Toast 11 Titanium (11.1) [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319526.jpg" />
 </div>
 
 
@@ -116,7 +226,7 @@ DxO OpticsPro for Photos 1.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319209.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ zCommander 3.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319199.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ ColorSnapper 2 v1.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317663.jpg" />
 </div>
 
 
@@ -199,7 +309,7 @@ TurnTable 3.2.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317656.jpg" />
 </div>
 
 
@@ -228,7 +338,7 @@ ToothFairy 2.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317652.jpg" />
 </div>
 
 
@@ -255,7 +365,7 @@ Network Utility X 4.2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317079.jpg" />
 </div>
 
 
@@ -282,7 +392,7 @@ Clear 1.1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317069.jpg" />
 </div>
 
 
@@ -310,7 +420,7 @@ JixiPix Photo Formation Pro 1.0.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316507.jpg" />
 </div>
 
 
@@ -336,7 +446,7 @@ BitPerfect 3.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316298.jpg" />
 </div>
 
 
@@ -362,7 +472,7 @@ Sketches Pro 2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315771.jpg" />
 </div>
 
 
@@ -391,7 +501,7 @@ Adobe After Effects CC 2019 v16.1.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315610.jpg" />
 </div>
 
 
@@ -417,7 +527,7 @@ Invisible 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315101.jpg" />
 </div>
 
 
@@ -445,7 +555,7 @@ Coda 2 v2.7.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315068.jpg" />
 </div>
 
 
@@ -472,7 +582,7 @@ Web2App 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314995.jpg" />
 </div>
 
 
@@ -501,7 +611,7 @@ Coda 2.0.6 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_314986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314986.jpg" />
 </div>
 
 
@@ -531,7 +641,7 @@ EyeTV 3.6.9 (7521) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314624.jpg" />
 </div>
 
 
@@ -559,7 +669,7 @@ PrimoMusic Pro 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314455.jpg" />
 </div>
 
 
@@ -585,7 +695,7 @@ Sync Checker 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314446.jpg" />
 </div>
 
 
@@ -596,117 +706,6 @@ Sync Checker - диагностическое приложение, которо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:216165081D52C042262DCD3A0DE3ED8F26DFE97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332574   (314346) от 20.10.2019
-
-Trash X 1.9.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trash X - это полностью функциональная корзина для Mac OS X. Чрезвычайно простая в использовании, она работает так же, как классическая корзина для Mac OS - файлы и папки, помещенные на нее, перемещаются в корзину, а сброшенные на нее диски удаляются. Кроме того, он также имеет множество функций для опытного пользователя. Вы можете использовать его для мгновенного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Northern SoftworksПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C6D4B06F28BF843D8F8BB9D7464A1576F513B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332418   (314329) от 20.10.2019
-
-Fenetre 0.7.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Держите окно открытым, всегда поверх всего остального.
-Картинка в картинке теперь доступно на вашем Mac.
-Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D896F83BA4396B66F721403A4FD48D5A3D9DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260072   (314298) от 06.11.2018
-
-Fantastical 2.5.6 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.
-
-Основным отличием от аналогичных программ такого типа, является возможность добавления события на естественном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2018Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F431F00030F0B32FBBDBA7B9671DE4FC4FDC2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182574   (314242) от 11.11.2017
-
-Mirror for Smart TV apps by AirBeamTV v2.1.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314242.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложениями Mirror for Smart TV вы можете смотреть ваши любимые шоу вместе на большом экране.  Загрузите и установите приложение Mac для Samsung, Sony, Panasonic, Philips и LG Smart TV сегодня, чтобы начать! У нас также есть приложения для Roku, Amazon Fire TV, Chromecast и Android TV!
-
-При использовании приложения, будет возникать задержка в несколько секунд (обычно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 ноября 2017Разработчик: AirBeamTV BVПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF55404D46E94A9B7CB3A2D5A0AD4A2DDD67677
 ```
 
 https://mybot314.ru/tekegram_catalog/

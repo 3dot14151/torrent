@@ -1,3 +1,29 @@
+###  Публикация: 452840   (76380) от 15.02.2012
+
+[Турецкий] Rosetta Stone - Turkish уровни 1-3 (ver. 3) [2007, ISO]
+
+>>Мультимедийные материалы
+>>Иностранные языки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rosetta Stone® - это проверенное, эффективное и простое решение для изучения иностранного языка. Новая технология распознавания речи, интуитивно-понятный процесс обучения, и имитация жизненных ситуаций способствует простому и результативному изучению турецкого языка.2007Жанр: Иностранные языкиФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6624F53A017DE26EBF12DA793D7F936184C656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449547   (75146) от 09.02.2012
 
 Дмитрий Крусев | Zulu Trader - видеокурс по автоматической торговле на Forex (обновленная версия) + 3 видео [2012] [unpacked]
@@ -6,7 +32,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75146.jpg" />
 </div>
 
 
@@ -38,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63531.jpg" />
 </div>
 
 
@@ -66,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60699.jpg" />
 </div>
 
 
@@ -95,7 +121,7 @@ Venator Browser | Закладки, каталог и статьи из OSINT б
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57649.jpg" />
 </div>
 
 
@@ -124,7 +150,7 @@ Stepik, Илья Перминов | Django 5 для начинающих & Пр�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57383.jpg" />
 </div>
 
 
@@ -150,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57114.jpg" />
 </div>
 
 
@@ -178,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56530.jpg" />
 </div>
 
 
@@ -204,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_54644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_54644.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ Stepik, Артем Егоров | Продвинутый python: заряди с
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53070.jpg" />
 </div>
 
 
@@ -260,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44586.jpg" />
 </div>
 
 
@@ -288,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44582.jpg" />
 </div>
 
 
@@ -316,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44581.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ NMG | Автомобильная энциклопедия Кирилла и Ме
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44483.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44474.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44381.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44369.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44232.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44208.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44205.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43597.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ HTML Academy | HTML и CSS. Профессиональная вёрстка са
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37347.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ HTML Academy | Курс «введение в react» [Demo] (2024) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34555.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32897.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31436.jpg" />
 </div>
 
 
@@ -666,7 +692,7 @@ HTML Academy | Профессия «Javascript-разработчик». Тар�
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30295.jpg" />
 </div>
 
 
@@ -680,32 +706,6 @@ HTML Academy | Профессия «Javascript-разработчик». Тар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB1D93F0D7B9F291158708F3F8EAEFF6677DBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777347   (28609) от 05.02.2025
-
-Oxford Educational | Журнал по изучению английского языка Easy English №1-112 + аудиокурс (2003-2005) [unpacked, PDF, MP3] [EN, RU]
-
->>Мультимедийные материалы
->>Иностранные языки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых прогрессивных методик, по изучению английского языка. Разработанная специалистами крупнейшего международного издательства Oxford Educational. Этот курс английского языка получил во многих странах одобрение Министерства образования. Он подойдет, как для новичков, которые хотят изучать язык, но не знают с чего начать, так и для людей, которые хотят улучшить (   Читать дальше...   )Жанр: Журнал, аудиокурсЯзык: английский, русскийФормат: unpacked, PDF, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B71A16FD8CD248F85FC2DF9AB3628319B6E6B4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

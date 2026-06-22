@@ -6,7 +6,7 @@ Markus K - LIVE with LOOPER No.3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64988.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jessie Lee & The Alchemists - Legacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64986.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thats not a Human featuring Netanel Elbaz - Blackout Parade (2025) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64985.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Matt Cahill Combo - The Midnight Show (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64984.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64982.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lonnie Brooks - 12 Albums (1975 - 1999) 14 CD [FLAC|Lossless|image + .cue|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62694.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Country Blues & Whiskey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Countr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62229.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Coco Montoya - 12 Albums (1994 - 2023) 13 CD [FLAC|Lossless|image + .cue|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61627.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jimmy Thackery - 25 Albums (1992 - 2016) 28 CD [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60509.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ John Haydock - Straight Line On A Curved Road (2024) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59613.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Billy Butcher - Penny Dreadful (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56567.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gary Clark Jr. - 9 Albums (2005 - 2024) 10 CD[FLAC|Lossless|tracks + .cue|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54620.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lucky Peterson - 29 Albums, 1 Box Set (1984 - 2020) 33 CD [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54433.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Guitar Pete - 7 Albums (1998 - 2021) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53644.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Toronzo Cannon - Shut Up & Play! (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53615.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mike Franano - Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52681.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Joe Bonamassa - If Heartaches Were Nickels (Live At The Hollywood Bowl With Orch
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52571.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Pedro - Tales from Starting Over (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51832.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Damon Fowler - Barnyard Smile (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51814.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dickey Betts - Live From The Lone Star Roadhouse New York City 1988 (2018) Reiss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48984.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ John Mayall & The Bluesbreakers - Up Close And Personal (Live In Texas) (2024) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46116.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Groovy Ride, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46077.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Slippin’ Away (Melancholic Mix for Long Lonely Nights) (2024) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46071.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Best of Whiskey Blues (Smooth, Relaxing Tunes) (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44605.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - The Blues Won’t Leave Me Alone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44190.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Steve Cropper and the Midnight Hour - Friendlytown (2024) [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43976.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1743197   (46754) от 15.08.2024
+
+Майор Гром: Игра (2024) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майор полиции Игорь Гром известен всему Санкт-Петербургу пробивным характером и непримиримой позицией по отношению к преступникам всех мастей. Неимоверная сила, аналитический склад ума и неподкупность — всё это делает майора Грома самым настоящим супергероем. Его жизнь идеальна: днём он ловит преступников вместе с напарником Димой Дубиным, а вечера проводит в компании (   Читать дальше...   )Производство: Россия | Bubble Studios, Плюс СтудияЖанр: Боевик, приключенияРежиссер: Олег ТрофимАктеры: Тихон Жизневский, Александр Сетейкин, Алексей Маклаков, Любовь Аксёнова, Сергей Горошко, Дмитрий Чеботарёв, Константин Хабенский, Матвей Лыков, Ольга Сутулова, Андрей ТрушинСубтитры: Русские (Forced, Full, SDH), английскиеПродолжительность: 02:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988002A40E7910A8DAFF9431F4B4034473BC792B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743195   (46564) от 17.08.2024
+
+Майор Гром: Игра (2024) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майор полиции Игорь Гром известен всему Санкт-Петербургу пробивным характером и непримиримой позицией по отношению к преступникам всех мастей. Неимоверная сила, аналитический склад ума и неподкупность — всё это делает майора Грома самым настоящим супергероем. Его жизнь идеальна: днём он ловит преступников вместе с напарником Димой Дубиным, а вечера проводит в компании (   Читать дальше...   )Производство: Россия | Bubble Studios, Плюс СтудияЖанр: Боевик, приключенияРежиссер: Олег ТрофимАктеры: Тихон Жизневский, Александр Сетейкин, Алексей Маклаков, Любовь Аксёнова, Сергей Горошко, Дмитрий Чеботарёв, Константин Хабенский, Матвей Лыков, Ольга Сутулова, Андрей ТрушинСубтитры: Русские (Forced, Full, SDH), английскиеПродолжительность: 02:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E01E00CCEEEAE2CA6E713883C106C450A4E41E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743687   (46535) от 17.08.2024
+
+Сквозь время (2022) BDRip [H.264/720p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46535.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе испытаний сверхскоростного самолета на новом источнике энергии изобретатель и бизнесмен Итан Блэйк и его брат Джейкоб оказываются на острове, не отмеченном на картах. Там они сталкиваются с таинственным туманом, в котором существует одновременно и прошлое, и будущее. Итану предстоит встретить своего отца, найти настоящую любовь и разгадать загадку острова, (   Читать дальше...   )Производство: Россия / KD StudiosЖанр: фантастика, триллер, приключенияРежиссер: Александр БогуславскийАктеры: Виктор Добронравов, Егор Корешков, Валерия Шкирандо, Никита Тарасов, Софья Присс, Дэниел Барнс, Егор Бероев, Платон Алексеев, Мирослав Аксёнов, Севастьян БугаевПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038C3EC591F92A963A1597E6E79458E3A8DAC789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743721   (46485) от 17.08.2024
+
+Южные ночи (2012) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красавица Юлия целиком сосредоточена на карьере. Ради очередного повышения она берется разрешить сложную задачу - выкупить виноградник. Помогает Юле ее жених Кирилл, однако владелец виноградника Виктор вовсе не намерен его продавать. И вот в один далеко не прекрасный день Юлия оказывается посреди южной приморской глуши, на шпильках и в деловом костюме. Но и это еще (   Читать дальше...   )Производство: Россия | Sputnik Vostok ProductionЖанр: Мелодрама, комедияРежиссер: Валентина ВласоваАктеры: Ксения Роменкова, Артём Ткаченко, Алексей Колубков, Екатерина Сахарова, Артем Артемьев, Александр Костелов, Александр Порываев, Алексей Крицкий, Виктор Куклин, Сергей СанаевСубтитры: РусскиеПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481ADC0DDC3267A6670DF591E0940EB0FFCE7416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743878   (46379) от 18.08.2024
 
 Неошибка (2022) WEBRip [H.265/2160p] [4K, SDR]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46379.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46339.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46251.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45990.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45935.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45924.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45896.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45839.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45736.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45655.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45382.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45218.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45114.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45048.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45041.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44997.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44371.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43921.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43890.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43748.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43531.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43216.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B74BED6B275251FE9B90720A4545DAAD437DC7D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750328   (43060) от 19.09.2024
-
-Хитровка. Знак четырех (2023) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва, 1902 год. Знаменитый режиссер Константин Станиславский в поисках вдохновения для постановки новой пьесы решает познакомиться с жизнью городского «дна». Он обращается за помощью к признанному знатоку московских трущоб Владимиру Гиляровскому. Вместе они отправляются на легендарную бандитскую Хитровку и оказываются втянуты в расследование убийства загадочного (   Читать дальше...   )Производство: Россия / Курьер, МосфильмЖанр: детектив, комедияРежиссер: Карен ШахназаровАктеры: Константин Крюков, Михаил Пореченков, Алексей Вертков, Александр Олешко, Анфиса Черных, Евгений Стычкин, Борис Каморзин, Аюб Цингиев, Юлия Витрук, Денис СладковСубтитры: русские (full, sdh), английскиеПродолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6E68F4F4053C74280F9010DE74481632A4CDAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750289   (43001) от 20.09.2024
-
-Выпусти меня (2024) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец с сыном отправляются в поход, чтобы насладиться первозданной природой и провести время вместе. Мальчик начинает слышать странные голоса, а после ночлега в лесу, бесследно исчезает. В ходе попыток долгих и отчаянных отыскать сына, отец встречает отшельника, живущего в лесной хижине. От него мужчина узнаёт, что лес полон древних знаков и живет по собственным законам, (   Читать дальше...   )Производство: Россия | «Fresh Film»Жанр: Мистика, триллерРежиссер: Михаил КонстантиновАктеры: Владимир Верёвочкин, Леонид Басов, Павел Басов, Никита Еллинский, Роман Штых, Ника Иванова, Сергей Юдаков, Сергей ЕринСубтитры: ОтсутствуютПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F7F793473DB89D8EBE5B51F008D8812CA8E13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750533   (42949) от 20.09.2024
-
-Хитровка. Знак четырех (2023) BDRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва, 1902 год. Знаменитый режиссер Константин Станиславский в поисках вдохновения для постановки новой пьесы решает познакомиться с жизнью городского «дна». Он обращается за помощью к признанному знатоку московских трущоб Владимиру Гиляровскому. Вместе они отправляются на легендарную бандитскую Хитровку и оказываются втянуты в расследование убийства загадочного (   Читать дальше...   )Производство: Россия / Курьер, МосфильмЖанр: детектив, комедияРежиссер: Карен ШахназаровАктеры: Константин Крюков, Михаил Пореченков, Алексей Вертков, Александр Олешко, Анфиса Черных, Евгений Стычкин, Борис Каморзин, Аюб Цингиев, Юлия Витрук, Денис СладковСубтитры: Русские (Full, SDH)Продолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C655FFFC697CDD2FA2BD56710666BF7DDC4CE378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750505   (42688) от 23.09.2024
-
-Заклятье. Шёпот ведьм (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сломленный и отчаявшийся детектив расследует убийства подростков в глухой деревне — и сталкивается с жуткой потусторонней сущностью, чей шепот грозит кошмарной смертью.Производство: Россия / KD StudiosЖанр: ужасы, триллерРежиссер: Серик БейсеуАктеры: Артур Бесчастный, Марьяна Спивак, Софья Шидловская, Игорь Грабузов, Сергей Сафронов, Валерия Кот, Кирилл Русин, Илья Виногорский, Артём Фадеев, Марина ГришаковаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6952F5478020268FBDE77813757A0F3D93F926A
 ```
 
 https://mybot314.ru/tekegram_catalog/

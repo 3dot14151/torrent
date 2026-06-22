@@ -1,3 +1,109 @@
+###  Публикация: 1427624   (182108) от 29.11.2020
+
+Native Instruments Kontakt 6 v6.4.2 STANDALONE, VSTi, AU [Multi]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2020Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB5353517FB099F26EF7192DE62FFDA14958A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428031   (181660) от 30.11.2020
+
+DoublePane 1.8 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь тратили время зря, перемещая окна приложений, чтобы вы могли видеть два окна одновременно? Вам сложно перемещать и изменять размер окон, чтобы они не перекрывались?
+DoublePane легко меняет положение окон приложений, чтобы максимизировать пространство на экране для удобного просмотра бок о бок.
+Одним щелчком мыши DoublePane поместит текущее окно в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: 5am Code, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876564E4CDABCEF2CEC4FBC5D7F03C21D0E84249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428047   (181647) от 30.11.2020
+
+PDF Protector 1.5.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181647.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Protector является простая в использовании утилита для шифрования и дешифрования ваших документов в формате PDF.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: Daniel DienerПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90C27C47C08FB748FF27527717966F7F45ABF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428061   (181533) от 30.11.2020
+
+QuartzCode 1.66.5 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181533.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuartzCode — это быстрый, легкий и мощный инструмент, который превращает векторную графику и анимации в код Objective C и Swift. Создание анимаций для вашего iOS или OS X проекта теперь проще некуда. Просто изменяйте любые параметры и смотрите на изменения в реальном времени. Используя QuartzCode вы можете создать любую анимацию за считанные секунды и тут же посмотреть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2020Разработчик: WAN LUTFI WAN MD HATTAПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96008426E76B6209EEBE25804A58321148DF8516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428053   (181383) от 30.11.2020
 
 Premium Fonts 7.0 [Multi]
@@ -6,7 +112,7 @@ Premium Fonts 7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181383.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Templates for Pages – DesiGN 6.0.5  [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180826.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Big Sur Cache Cleaner 16.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180766.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ CLO - 3D Fashion Design Software 6.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180346.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ Duplicate Files Sweeper 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180221.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ NeoFinder Business 7.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180153.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ Aimersoft DVD Creator 6.4.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180136.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ Alpha Blender PRO for Mac 1.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180015.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Aimersoft Video Converter Ultimate for Mac 11.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179981.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ Movavi Academic 2021 v21.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179971.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ Smart Zipper - RAR&7Zip Tool 1.90 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179711.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ Marvelous Designer 10 Personal 6.0.351.32317 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179622.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ DesiGN for Numbers - Templates 5.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179297.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ Chronicle Pro 9.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178551.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ OverPicture for Safari 1.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178445.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ Skynet 2020.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178434.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ Faronics Power Save Enterprise for Mac 3.70.2200.0455 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177747.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ Dropshare 5.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177426.jpg" />
 </div>
 
 
@@ -486,7 +592,7 @@ Text Workflow 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177424.jpg" />
 </div>
 
 
@@ -513,7 +619,7 @@ Image Exif Editor 5.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177302.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ Multitouch 1.27.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176852.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ CADintosh X 8.8.3 Beta [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176768.jpg" />
 </div>
 
 
@@ -578,112 +684,6 @@ CADintosh позволяет ускорить проектные работы и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51220F9923CC2E6D1E9267A97ADC9BB7A195221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594927   (176672) от 03.12.2022
-
-AirMail Pro 5 v.5.5.81 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2.11.2022Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2904697691AE15AA8108CEF38B34AD8677494B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594936   (176654) от 03.12.2022
-
-Tower Pro 9 v.9.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower - мощный и элегантный Git клиент для Mac
-Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2022Разработчик: © 2010-2022 TowerПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FA0270B1EB6B01D21767FB3730BC3192EA8D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594953   (176615) от 03.12.2022
-
-Luminar Neo 1.5.1 ARM [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031BA6FEA439315C7D09A9D98E4CBA64437B7A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429368   (176241) от 06.12.2020
-
-Aseprite 1.2.25 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aseprite - это инструмент для создания пиксельной графики, позволяющий создавать 2D-анимацию для видеоигр.Тип издания: macOS SoftwareРелиз состоялся: 18.08.2020Разработчик: David CapelloПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB38C98E5B8187C820695B177FB19E5860C1E5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

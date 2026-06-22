@@ -1,3 +1,167 @@
+###  Публикация: 597049   (130588) от 31.12.2012
+
+Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний, как сама Тьма, демон пробудился от вечного забвения и обратил горящие дикой ненавистью глаза на земли, где царит светлая магия.
+Он стремительно зашагал в направлении своего взгляда, чтобы захватить неиссякаемый источник силы.
+Только один белый маг смог остановить врага, разбив пропасть под его ногами.
+Эта пропасть изолировала цивилизованный анклав от безжалостного внешнего мира.
+С тех пор прошло много тысяч лет.
+Сегодня провал затянулся и начинается война Света против Мрака.
+На чьей вы стороне?
+
+(   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82C7CA81B17AE1AD9C6BFDCD1ECA0BAFAE25462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491300   (130361) от 03.05.2012
+
+Silent Hill: Homecoming [Ru] (RePack) 2009 | Naitro
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные, тревожащие сны начали мучить Алекса Шепарда еще вдали от дома. А когда профессиональный военный, наконец, вернулся в родной городок Шепардс Глен, то обнаружил, что кошмар обернулся явью. В подворотнях сгустился мрак, улицы опустели, а дом самого Алекса превратился в обитель страха и отчаяния. Младший брат пропал, отправившийся на его поиски отец не вернулся, а мама замкнулась в себе и отрешилась от окружающего мира… Silent Hill: Homecoming — это достойное продолжение знаменитой серии, каждый эпизод которой натягивает нервы и леденит кровь не хуже первоклассных психологических триллеров и фильмов ужасов. В роли Алекса Шепарда вам вновь предстоит посетить утопающий в вязком тумане городок Сайлент Хилл, где за белесой пеленой скрываются порождения худших ночных кошмаров. Что произошло, пока Алекс отсутствовал и как его брат, еще подросток, связан с царящим вокруг безумием? Найти ответы на эти вопросы можете только вы…Тип издания: RePacкЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский , Английский (на выбор)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9420AF470C0471CD1436D1F8A09581DFDC3B868D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525385   (129893) от 20.01.2022
+
+Blackwind (2022) [Multi] (1.0.1.0) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blackwind - это фантастический экшен с видом сверху, в котором вы ощутите себя подростком, сражающимся с пришельцами в экспериментальном бронекостюме. Врывайтесь в ряды захватчиков и используйте последний шанс остановить межпланетное вторжение!Тип издания: LicenseРазработчик: Drakkar DevЖанр: Экшн, Аркада, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D9646900CCE7656C53F7663B213AE47C676606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686090   (126843) от 21.12.2023
+
+Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack Decepticon
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126843.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Hellblade: Senua's Sacrifice мы отправляемся в загробный мир, чтобы спасти своего возлюбленного - честного викинга, - а нашим оружием станут классические клинки, секиры и немного магии, которой в игре достаточно. Сенуя - воительница с явными сдвигами в сознание. Накануне всего путешествия, она теряет своего возлюбленного, который жил по чести в бренном мире, но (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Экшены, ПриключениеЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2208AB2FDC982E0CEB858D07F66314158F315D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823701   (125909) от 12.10.2025
+
+Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [20 Year Celebration]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрыв древнюю тайну, Лара должна исследовать самые отдаленные и опасные уголки Сибири, чтобы найти секрет бессмертия раньше беспощадной организации "Троица". Ларе предстоит использовать всю свою смекалку и навыки выживания, заключить новые союзы и принять свою судьбу расхитительницы гробниц! В этой игре на выживание нового поколения вас ждут динамичные (   Читать дальше...   )Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79282748DC0B1585053A801B1F9DCCF7BC22305C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691622   (123231) от 13.01.2024
+
+Remnant II (2) (2023) [Ru/Multi] (402.015/dlc) Scene Rune [Ultimate Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remnant 2 - это атмосферная и брутальная комбинация динамичного экшена и мрачных ужасов выживания. Сиквел развивает и дополняет традиции и игровые механики оригинала. Вы отправитесь в совершенно новое приключение, которое охватит множество захватывающих миров, каждый из которых кишит уникальными врагами, грозными боссами и сложными задачами. Независимо от того, решите (   Читать дальше...   )Тип издания: SceneРазработчик: Gunfire GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0349D2CD652AC9671DF0010ED199627CF7AB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693670   (121811) от 21.01.2024
 
 A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
@@ -6,7 +170,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121811.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119902.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119052.jpg" />
 </div>
 
 
@@ -84,7 +248,7 @@ Succubus With Guns (2021) [Ru/Multi] (13403147/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118073.jpg" />
 </div>
 
 
@@ -110,7 +274,7 @@ SIFU (2022) [Ru/Multi] (1.26.6.660/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117748.jpg" />
 </div>
 
 
@@ -136,7 +300,7 @@ HAYDEE II (2020) [Ru/Multi] (1.0.18.11/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117518.jpg" />
 </div>
 
 
@@ -162,7 +326,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (1.0) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117127.jpg" />
 </div>
 
 
@@ -188,7 +352,7 @@ Mafia Anthology / Мафия - Антология (2002-2010) [Ru/En] Repack R.G
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115438.jpg" />
 </div>
 
 
@@ -216,7 +380,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Scene SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115116.jpg" />
 </div>
 
 
@@ -242,7 +406,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114928.jpg" />
 </div>
 
 
@@ -268,7 +432,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104412.jpg" />
 </div>
 
 
@@ -294,7 +458,7 @@ Max Payne Дилогия [Ru] (RePack) 2001-2006 | irvins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102120.jpg" />
 </div>
 
 
@@ -321,7 +485,7 @@ Stubbs the Zombie in Rebel Without a Pulse [Ru] (RePack/1.0.2) 2006 | MOP030B
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89955.jpg" />
 </div>
 
 
@@ -347,7 +511,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89925.jpg" />
 </div>
 
 
@@ -373,7 +537,7 @@ Resident Evil Director's Cut [Ru] (P/Emul) 1997 | MarkusEVO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89337.jpg" />
 </div>
 
 
@@ -399,7 +563,7 @@ American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88507.jpg" />
 </div>
 
 
@@ -425,7 +589,7 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. Shift
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_87913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_87913.jpg" />
 </div>
 
 
@@ -457,7 +621,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87472.jpg" />
 </div>
 
 
@@ -485,7 +649,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87094.jpg" />
 </div>
 
 
@@ -511,7 +675,7 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86971.jpg" />
 </div>
 
 
@@ -522,170 +686,6 @@ Rocko's Quest / Grouch [Ru] (RePack) 2001 | Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478762   (86869) от 06.04.2012
-
-Manhunt Дилогия (P) [Ru] 2004-2009
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86869.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе секретных лабораторных испытаний произошла роковая ошибка, приведшая к катастрофическим последствиям. Из всех участников неудачного эксперимента уцелели двое пациентов — Даниель Лэм и Лео Каспер. Теперь «Проект Пикмана» не остановится ни перед чем, чтобы уничтожить свидетелей и скрыть правду о случившемся.
-Последние шесть лет ты находился в психиатрической клинике. Открыв глаза, ты видишь человека в белом халате. Его тело медленно оседает на пол. Из твоих дрожащих рук падает окровавленный шприц. Что происходит ? Как ты здесь очутился ? Кто ты такой ?
-Двери открыты. Это твой единственный шанс на спасение. Когда-то тебя лишили права на жизнь. Пришло время его вернуть.Тип издания: ПираткаЖанр: Stealth action, Survival horrorЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD576220CFD04FED20F30B817683EB99D6AFFC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478756   (86616) от 05.04.2012
-
-Tomb Raider 4: The Last Revelation [En] (L) 1999
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве многие мечтали стать археологами, но не все ими стали. Чтобы осуществить свою мечту юная Лара Крофт помогла известному знатоку древностей профессору фон Крою организовать экспедицию в Египет, с условием, что он возьмет ее с собой. Начинающая расхитительница гробниц отправилась на поиски древнего амулета, с помощью которого можно одолеть могущественное египетское божество.
-По сравнению с третьей частью значительно улучшился движок игры, добавились новые спецэффекты, полностью изменился дизайн всех меню и настроек, отважная Лара научилась новым движения, а арсенал ее оружия заметно расширился.Тип издания: ЛицензияЖанр: трехмерный экшен от третьего лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2239B751F10048814017A3684477A00CBCDBE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478173   (86398) от 04.04.2012
-
-Darkened Skye [Ru] (RePack) 2002 | Pilotus
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злобный чародей Некрос правит миром с помощью украденной магии. Наша героиня — потерявшая родителей девушка Скайя — должна пройти пять миров, разыскать в них призмы и с помощью маминого амулета и магических конфет Skittles вернуть миру волшебство радуги фруктовых ароматов.Тип издания: RePackЖанр: Экшен от третьего лицаЯзык озвучки: РусскийЯзык интерфейса: Русский (8bit)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477520   (86265) от 03.04.2012
-
-Front Mission Evolved + 6 DLC [Ru] (RePack/1.0.0.1u2) 2010 | Fenixx
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86265.jpg" />
-</div>
-
-
-###  Подробнее
-
-История учит, что без войны невозможно достичь мира. Что без совершенного оружия нельзя одержать победу. Но историки никогда не были на поле боя. Оставьте мысли на потом. А сейчас – есть приказ, есть цель, есть враг, которого надо уничтожить. И есть огромный, современный боевой робот. Проведите свой Wanzer навстречу огненному шквалу и разрывам снарядов. Докажите, что в ваших силах изменить ход истории!
-
-Грандиозный экшен от третьего лица выглядит, как настоящий голливудский блокбастер. Вам предстоит действовать в фантастическом мире будущего. Идет 2171 год, человечество устремилось в космос. Но на Земле продолжаются жестокие сражения. Вы не только сможете принять в них участие – от ваших действий зависит практически все. При этом улучшить вашего робота не только можно, но и нужно! Выберите подходящий для вас стиль. Снимите тяжелую броню и поразите противника небывалой скоростью движения. Прикрепите дополнительные орудия и станьте настоящим дредноутом – смертельной угрозой для любого, кто посмеет открыть огонь. (   Читать дальше...   )Тип издания: RePackРазработчик: Double Helix GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EA4E4F188BBAC35D9D22A5529FE81414FBAB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470826   (83395) от 20.03.2012
-
-Mafia II Digital Deluxe HD Edition / Mafia 2: Город грехов + 8 DLC + Best Mods [Ru] (Repack/1.0.0.1/u5) 2010 | Naitro
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83395.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мафия» бессмертна: долгожданное продолжение знаменитой гангстерской саги от создателей оригинальной игры — новое погружение в беспощадный и интригующий мир, сулящий множество острых ощущений.
-Mafia II создана на специально разработанном графическом движке, что позволило авторам проекта воплотить все самые смелые замыслы и сказать новое слово в жанре, каноны которого определила первая «Мафия». Классические элементы — перестрелки, драки, перемещение по городу на различных видах транспорта — приобрели небывалый размах, а игровой мир стал поистине безграничным.Главный герой новой истории — Вито, сын итальянского иммигранта, выросший в нищете и бесправии. С детских лет он усвоил, что мафия — единственный путь к богатству и уважению для человека его положения, и, не желая влачить жалкое, полное лишений, как у отца, существование, решил стать гангстером.Преступная карьера Вито и его закадычного друга Джо начинается с мелких краж и угона автомобилей, однако же довольно быстро они поднимутся на более высокие ступени криминальной (   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453210FEB045FFC71BDD0A56366F046DCF1FB2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462252   (82965) от 18.03.2012
-
-Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Catalyst
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозный фантастический экшен от третьего лица Deep Black: Reloaded предоставит вам уникальную возможность проникнуть в мистические глубины черной бездны, вооружившись мощнейшим sci-fi снаряжением, джет-паком, уникальным подводным оружием и другими высокотехнологичными изобретениями будущего. В игре Deep Black впервые проработана невероятная динамика сражений – как в мрачных пучинах океанских вод, так и на суше. Это стало возможным благодаря использованию современных реалистичных физических эффектов в подводном окружении. Игра покажет вам всю глубину страха перед океанской бездной и непредсказуемостью битвы за правое дело. Умопомрачительный интригующий сюжет перенесет вас в недалекое будущее – в мир нестабильности, хаоса, шпионажа, терроризма, ожесточенной борьбы за мировое господство и обладание новейшим биологическим оружием.
-
-(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский, французкий, итальянский, немецкий, испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01895B5B496BB4C126A2281FF2D713A8C3622F69
 ```
 
 https://mybot314.ru/tekegram_catalog/

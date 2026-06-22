@@ -1,3 +1,29 @@
+###  Публикация: 358097   (585143) от 03.07.2011
+
+Дикая Австралия. Какого пола? / Wild Australia. Which Sex? (1993) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна Болейн, вторая жена Генриха VIII была обезглавлена из-за того, что не смогла родить ему сына. Теперь мы знаем то, чего не знал Генрих. Женщина ничего не может сделать для того, чтобы родить ребенка определенного пола. Пол ребенка зависит только от сперматозоида отца. В порции спермы 300 000 000 сперматозоидов, но только несколько тысяч из них достигнут яйцеклетки матери, и только один из них сможет дать жизнь новому человеку. Так что пол каждого из нас - это биологическая игра случая. Но некоторые из живых существ могут сами задавать пол своего потомства...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79DD8C35322F732508D9D8249FABD5F5BDC0711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040676   (584572) от 07.08.2016
 
 Футбол. Товарищеский матч. Боруссия (Дортмунд, Германия) - Сандерленд (Англия) (05.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [RU/EN]
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584572.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584571.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584570.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584569.jpg" />
 </div>
 
 
@@ -121,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584568.jpg" />
 </div>
 
 
@@ -150,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584567.jpg" />
 </div>
 
 
@@ -179,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584566.jpg" />
 </div>
 
 
@@ -208,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584564.jpg" />
 </div>
 
 
@@ -237,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584562.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584558.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584556.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584535.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584534.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584531.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584528.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584521.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584421.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584388.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584291.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584190.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ BBC. Horizon: Создатели бриллиантов / The Diamond Makers (20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584046.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584042.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583990.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583981.jpg" />
 </div>
 
 
@@ -691,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583498.jpg" />
 </div>
 
 
@@ -705,35 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F44B64B1E8D6268C2A7DB48EBEE701E6B28ECC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041190   (583497) от 08.08.2016
-
-Футбол. Чемпионат России 2016-2017. 2-й тур. Оренбург - ЦСКА (07.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583497.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 августа 2016, воскресенье. 16:00 МСК
-2-й тур
-
-Стадион: Газовик (Оренбург, Россия) , 5 600 зрителей (117 % при вместимости 4 800)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Михаил Моссаковский)Продолжительность: 02:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAEFE7C73DC23AAAAD9AB0D620D21788EFB09A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1160141   (477988) от 23.08.2017
+
+Михаил Парфёнов (сост.) | Самая страшная книга. Лучшее [сборник] (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами – антология антологий. Переиздание лучших рассказов из ставших бестселлерами сборников «Самая страшная книга 2014», «Самая страшная книга 2015», «Самая страшная книга 2016», «Самая страшная книга 2017», сдобренная ранее не публиковавшимися в этой серии произведениями. Не просто лучшие рассказы ужасов на русском языке, но – лучшие из лучших. Своеобразные (   Читать дальше...   )Жанр: Мистика, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581FC5D839E32759E127EF2B4710CA9636375CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244792   (477971) от 03.09.2018
+
+Уильям Моррис | Воды Дивных Островов [сборник] (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Моррис (1834-1896) – английский поэт, писатель, переводчик, художник, дизайнер, издатель, изобретатель и общественный деятель, поистине выдающийся ум и культовая личность Викторианской эпохи. Моррис одним из первых начал работать в жанре фэнтези – на стыке рыцарского романа и волшебной сказки, а знамя писателя позже подхватили Дж. Р.Р. Толкин, К.С. Льюис и (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Классика фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E67C89D91EC8E75C6F32C6BF86E8FDEBCEB9C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938978   (477423) от 20.09.2015
+
+Тед Чан | История твоей жизни [сборник] (2014) [FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тед Чан – уникальное явление в современной фантастике, та самая звезда НФ, которую обожают в равной степени и читатели и критики. Он собрал самые престижные премии, включая ЧЕТЫРЕ «Небьюлы», ПЯТЬ «Хьюго» и ЧЕТЫРЕ «Локуса», – причем число созданных им произведений не превышает количества заслуженных им призов. В эту книгу вошло практически все, написанное Чаном, – (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB18E2E6BFDB3E602BB7294E7BC26CF22F5B4F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406229   (476680) от 02.09.2020
+
+Джон Маррс | Пассажиры (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный хакер взломал системы управления восьми самоуправляемых машин, с недавних пор ставших нормой для всех жителей Великобритании. Теперь он угрожает их пассажирам смертью. Среди его заложников — угасающая телезвезда; нелегальный иммигрант; молодая беременная женщина; муж и жена, едущие раздельно; ветеран военного конфликта; желающий покончить с собой мужчина; (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Зарубежные детективы, ТриллерыПеревод: Александр ФилоновФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771C6E1C7F842A19A60D0BA68FEB62DA6EE8B384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547020   (476362) от 14.09.2012
 
 Вячеслав Шалыгин |Проект New Reality| Взгляд сквозь солнце [2010] [FB2][TXT][JAVA (jar+jad)] [EPUB]
@@ -6,7 +110,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476362.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476049.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475782.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475641.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475486.jpg" />
 </div>
 
 
@@ -145,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475275.jpg" />
 </div>
 
 
@@ -171,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475178.jpg" />
 </div>
 
 
@@ -199,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475049.jpg" />
 </div>
 
 
@@ -225,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474946.jpg" />
 </div>
 
 
@@ -254,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474880.jpg" />
 </div>
 
 
@@ -281,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474836.jpg" />
 </div>
 
 
@@ -309,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474702.jpg" />
 </div>
 
 
@@ -337,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474262.jpg" />
 </div>
 
 
@@ -367,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474233.jpg" />
 </div>
 
 
@@ -393,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474009.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474000.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473999.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473995.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473901.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473894.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473888.jpg" />
 </div>
 
 
@@ -584,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473885.jpg" />
 </div>
 
 
@@ -598,115 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C6D3540EB951FA2D8C1C5B6944A737876854B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245315   (473867) от 05.09.2018
-
-Генри Каттнер | Ярость [Авторский сборник] (1992) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генри Каттнер (1915 - 1958) - известный американский писатель-фантаст, одно из самых ярких имен 40 - 50-х годов - начала "золотого века" научно-фантастической литературы США. За время своей недолгой (около двадцати лет) писательской карьеры Каттнер зарекомендовал себя как мастер различных направлений НФ. Его произведения оказали заметное влияние на последующее (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0893A65E9CEC673944C31BA688EAD4F175EF8DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245195   (473865) от 05.09.2018
-
-Абдул аль-Хазред | Некрономикон. Аль-Азиф, или Шепот ночных демонов (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля, оказавшаяся в силу своего происхождения уникальным миром, хранящим великую мудрость бытия в наиболее полном виде, неудержимо влечет к себе познающих со всех концов Вселенной. Накопленная за бесконечные времена и записанная энергетическим кодом, эта мудрость заключена во всем, но особенно в «венце развития» – разумных существах. Она являет собой бесценное сокровище, (   Читать дальше...   )Жанр: Героическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEB71067BAABBCCDED718B099BE1857988DF326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160643   (473763) от 25.08.2017
-
-Йон Колфер | Ученик убийцы (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «ПАУКС».
-
-Райли четырнадцать, он живет в Лондоне конца XIX века. Он сирота, и вырастил его наемный убийца, решивший передать ученику все секреты своего мрачного ремесла… Но Райли не хочет идти по стопам учителя! Мальчик мечтает сбежать, и однажды ему предоставляется возможность ускользнуть… в XXI век.
-Шеврон Савано семнадцать, и она – самый юный, (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Историческая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E47CEF095311FA96D76ED5F19F4C5E8C1D6864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245203   (473754) от 05.09.2018
-
-Джозеф Дилейни | Месть Ведьмака (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцатый роман цикла «Ученик Ведьмака».
-
-В этот раз ученику Ведьмака Тому Уорду предстоит вновь столкнуться со своим давним врагом – Дьяволом. Чтобы победить его, Том должен в Хэллоуин совершить страшный обряд – используя три особых клинка, принести в жертву того, кого любит больше всех на свете. Роль жертвы уготована ведьме Алисе. Но Том и его учитель Джон Грегори (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD69E7629BB83CECEFD13244B69FFE64702FA57
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1495639   (878714) от 13.09.2021
+
+Долгий поцелуй на ночь / The Long Kiss Goodnight (1996) BDRip [H.264/1080p] [handmade AI remastered]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878714.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 лет назад школьная учительница Саманта Кейн перенесла полную потерю памяти. Она живет с 8-летней дочкой счастливой семейной жизнью и не подозревает о своем кровавом прошлом, ведь когда-то эта красивая женщина была агентом Чарли Бэлтимор, выполнявшим секретные заказы ЦРУ.
+Шокированная неожиданным возвращением некоторых навыков и психологической подготовки профессионального (   Читать дальше...   )Производство: США / Forge, New Line CinemaЖанр: Боевик, Триллер, Драма, Криминал, ДетективРежиссер: Ренни ХарлинАктеры: Джина Дэвис, Сэмюэл Л. Джексон, Патрик Малахайд, Крэйг Бирко, Брайан Кокс, Дэвид Морс, Дж. Д. Спрэдлин, Том Амандес, Ивонн Зима, Мелина Канакаредес, Алан НортПеревод: Авторский, многоголосый профессиональный, одноголосый профессиональныйПродолжительность: 02:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7641BB59CE99A173CBAAFBAFC67D08FBFA563A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373359   (878417) от 07.04.2020
 
 Алла Пугачева - Война - 2 Unofficial Fan. Music Videos/1 Live Video (2015) WEBRip [H.264/1080p/720p-LQ] <Pop>
@@ -6,7 +33,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878417.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876369.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876367.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876110.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874936.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874881.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Big Love Show 2017. Грандиозный концерт ко Дню всех �
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874877.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Queen - Greatest Flix II (Laserdisc Transfer) (1991) BDRip [H.264/720p] [handmad
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874820.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874814.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874610.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874500.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874079.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873472.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869651.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869509.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866337.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861703.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860908.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860441.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ Army Of Lovers - The Day The Gods Help Us All (Life After People) (2020) [H.264/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860158.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860058.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859848.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859432.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857721.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857464.jpg" />
 </div>
 
 
@@ -654,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD935E56AFBB8B73696ABBF2B753C7070220598B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873812   (856238) от 07.03.2015
-
-Король в Нью-Йорке / A King in New York (1957) DVDRip [H.264] [hand made colored]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта комедия подвергает осмеянию рыцарей холодной войны и циничного бизнеса.
-Некий король несуществующей страны Эстровии, которого зовут Шедав, бежал в Нью-Йорк, потому что его проект использования атомной энергии в мирных целях не устраивает правящие круги его страны. Чарли Чаплин сыграл в этой ленте главную роль — Шадова, беглого короля маленькой страны. Убегая (   Читать дальше...   )Производство: Великобритания, Charles Chaplin Productions, Attica Film CompanyЖанр: Комедия, ДрамаРежиссер: Чарлз ЧаплинАктеры: Чарли Чаплин, Максин Одли, Джерри Десмонд, Оливер Джонстон, Дон Аддамс, Джоан Ингрэм, Джон МакЛарен, Фил Браун, Роберт Арден, Алан Гиффорд, Роберт Коудрон, Джордж Вудбридж, Клиффорд Бактон, Шэйни Уоллис, Сид Джеймс, Гарри Грин, Майкл Чаплин, Пенелопа Хорнер, Хью МакДермотт, Фрейзер Хайнс, Ивонн РомейнПеревод: Двуголосый закадровыйПродолжительность: 01:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DA68A98163FBDB527FA3A66A83D1F095137F7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

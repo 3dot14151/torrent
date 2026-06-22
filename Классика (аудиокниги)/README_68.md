@@ -1,3 +1,57 @@
+###  Публикация: 420802   (117501) от 15.02.2024
+
+Иван Гончаров | Обломов (2007) [MP3, Леонид Броневой]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика в пересказе.
+Это совсем не «школьная» книга о человеке, который, не прельщаясь ни фортуной, ни карьерой, «залег в берлогу». Чем больше вчитываешься в «Обломова» сегодня, тем меньше раздражает и возмущает его любовь к дивану и к халату. Этот эгоизм - особой породы. А кто сказал, что вопрос о жизни решается через игры в любовь, светские «тусовки», (   Читать дальше...   )Жанр: Русская литература, классика, романПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2C2A145A077ED4379817CFEE341E5C9B6F4E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 420896   (117497) от 15.02.2024
+
+Иван Гончаров | Обломов (2004) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская проза XIX век.
+Роман «Обломов» (1859), завоевав огромный успех, спровоцировал бурные споры. Сторонники одного мнения трактовали обломовщину как символ косности России с «совершенно инертным» и «апатичным» главным героем романа. Другие видели в романе философское осмысление русского национального характера, особого нравственного пути, противостоящего (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 23:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24013FE61255D96C4CA7885D204EC112C3647C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 305538   (117491) от 15.02.2024
 
 Иван Гончаров | Обыкновенная история (Радиоспектакль) (2005) [MP3, Олег Табаков, Михаил Козаков и др.]
@@ -6,7 +60,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117491.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117490.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117479.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117469.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117467.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117464.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117389.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117374.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117135.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117099.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117056.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117020.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116761.jpg" />
 </div>
 
 
@@ -363,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116669.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116454.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116448.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116447.jpg" />
 </div>
 
 
@@ -471,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116430.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116423.jpg" />
 </div>
 
 
@@ -525,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116274.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116263.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116260.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116258.jpg" />
 </div>
 
 
@@ -633,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116189.jpg" />
 </div>
 
 
@@ -645,63 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1D05953C31BF1D6E15701B4420C67964DD9956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701829   (116187) от 22.02.2024
-
-Виктор Мари Гюго | Девяносто третий год (2015) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Мари Гюго (1802–1885) французский поэт, прозаик, эссеист, драматург и драматург романтического направления.
-Роман «Девяносто третий год». Блестящая хроника излома Великой Французской революции – и одновременно увлекательный исторический роман, полный приключений и неожиданных сюжетных поворотов.
-Итак, в Париже «правит бал» Директория…
-А на глухом побережье (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторический романИздательство: Нигде не купишьПродолжительность: 17:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE198AF3724856A362BE9D1C7201EE8069AA32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702819   (115555) от 26.02.2024
-
-Фёдор Достоевский | Преступление и наказание (2020) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Список школьной литературы 10-11 класс. Библиотека школьника (Союз).
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-«Преступление и наказание» – роман об одном преступлении. Двойное убийство, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 20:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C758AC601D90E5FE7A3375AA6436B7555962AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

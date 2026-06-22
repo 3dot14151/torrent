@@ -7,7 +7,7 @@ MotoGP. Этап 08 из 22. Гран-при Венгрии. Гонка (07.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072496.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MotoGP. Этап 08 из 22. Гран-при Венгрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072422.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MotoGP. Этап 08 из 22. Гран-при Венгрии. Спринт (06.06
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072420.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MotoGP. Этап 07 из 22. Гран-при Италии. Гонка (31.05.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071825.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MotoGP. Этап 07 из 22. Гран-при Италии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071547.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MotoGP. Этап 07 из 22. Гран-при Италии. Спринт (30.05.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071546.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MotoGP. Этап 06 из 22. Гран-при Каталонии. Гонка (17.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069975.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MotoGP. Этап 06 из 22. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069779.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MotoGP. Этап 06 из 22. Гран-при Каталонии. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069778.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MotoGP. Этап 05 из 22. Гран-при Франции. Спринт (09.05
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069180.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ MotoGP. Этап 05 из 22. Гран-при Франции. Гонка (10.05.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069124.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ MotoGP. Этап 05 из 22. Гран-при Франции. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068665.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ MotoGP. Этап 04 из 22. Гран-при Испании. Спринт (25.04
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067280.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ MotoGP. Этап 04 из 22. Гран-при Испании. Гонка (26.04.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067125.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MotoGP. Этап 04 из 22. Гран-при Испании. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066884.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064056.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Спринт (28.03.2026) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064055.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Гонка (29.03.2026) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064054.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ MotoGP. Этап 02 из 22. Гран-при Бразилии. Гонка (22.03
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062246.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ MotoGP. Этап 02 из 22. Гран-при Бразилии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062022.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ MotoGP. Этап 02 из 22. Гран-при Бразилии. Спринт (21.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062021.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Гонка (01.03
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059007.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058802.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Спринт (28.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058801.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043083.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043077.jpg" />
 </div>
 
 

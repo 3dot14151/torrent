@@ -1,3 +1,81 @@
+###  Публикация: 826153   (814797) от 13.05.2020
+
+Выход через сувенирную лавку / Exit Through the Gift Shop (2010) HDTVRip [H.264/1080p-LQ] [VO]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм об уличном искусстве, с участием Бэнкси, Шеппарда Фейри и многих других именитых художников.Жанр: ДокументальныйПеревод: Одноголосый профессиональный (Прыг-Скок)Субтитры: ОтсутствуютПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206035BE3A64965AC3D1C10B0B7B2AC9DF0C9532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382854   (814675) от 13.05.2020
+
+BBC. Полиамория: Любовь без границы / Louis Theroux's Altered States: Love Without Limits (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серия 1 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814675.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение сотен лет романтические отношения в западном обществе основывались на идее моногамии: два человека вместе навсегда. Но почти половина американских браков заканчивается разводом, возможно, традиционная модель больше не подходит для этой цели. В фильме «Любовь без границ» Луис отправляется в Портленд, штат Орегон, в сердце движения, стремящегося переписать (   Читать дальше...   )Производство: Великобритания, BBC Studios Documentary Unit, British Broadcasting Corporation (BBC)Жанр: ДокументальныйРежиссер: Аррон ФеллоузПеревод: Двуголосый профессиональный (BBC News - Русская служба)Субтитры: ОтсутствуютПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDFB9DB382CD5DFC1CE755CB8C366FC3CADB2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504293   (813844) от 22.10.2021
+
+Discovery. Аполлон: найденные видео / Apollo: The Forgotten Films (2019) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцатого июля 1969 года миллионы людей смотрели, как Нил Армстронг творил историю, совершая «гигантский скачок для всего человечества» по поверхности Луны. Но за этой известной съемкой стоит неизвестная история, которую теперь можно услышать со слов восьми выживших космонавтов «Аполлона»: пилота командного модуля «Аполлона-11» Майка Коллинза и сотрудников, работавших (   Читать дальше...   )Производство: США, Великобритания, Arrow International Post Production, Arrow Media, Clean Cut Productions, Science ChannelЖанр: Документальный, история, космосРежиссер: Дункан КоппПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170BA0619D48CC59068C7983D20E8339058AD47D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197845   (813517) от 08.01.2018
 
 Исчезнувший город гладиаторов / Lost city of gladiators (2015) HDTVRip [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813517.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813457.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813451.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813311.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813102.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811699.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811639.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811534.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811462.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811399.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811184.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810963.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810274.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809988.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809986.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809921.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ BBC: Как это работает. Таинственный Мир Матер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809918.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809842.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ BBC. Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809779.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809736.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Discovery. Динозавры: Возвращение к жизни? / Dinosaurs
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809725.jpg" />
 </div>
 
 
@@ -555,6 +633,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742843   (809553) от 21.04.2016
+
+Discovery. Беар Гриллс: Как остаться в живых / Bear Grylls: How To Stay Alive (2012) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_809553.jpg" />
+</div>
+
+
+###  Подробнее
+
+От пурги до страшной жары, от гор до пустынь — Беар Гриллс прошел через самые негостеприимные места в мире. В чем секрет его умения выжить?Жанр: Документальный, выживание, экстримПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A575850A2359671E39C6A7B6106264594ECCBB71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741252   (809222) от 21.04.2016
 
 PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264/720p-LQ] [Сезон 35: 14 серия из 16]
@@ -563,7 +667,7 @@ PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809222.jpg" />
 </div>
 
 
@@ -574,112 +678,6 @@ PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45919DDD591B825E354F19B4BDA2C1F30BB8D998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 649459   (809194) от 18.05.2013
-
-History Channel. Вселенная (2 сезон: 1-18 серии из 18) / The Universe (4-Disk Edition) (2007-2008) Blu-Ray [1080p]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809194.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сериале с помощью современной компьютерной графики и, основываясь на передовых исследованиях в области космоса, создатели фильма смогли воссоздать то, что происходит на других планетах, в других галактиках, вообразить какие формы жизни могли бы развиться в других атмосферах. Вы сможете увидеть космические бедствия, параллельные вселенные, скорость света и узнать многое другое о тайнах космоса.Жанр: Документальный, ВидовойПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: Русские, английскиеПродолжительность: 18 серий по 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B46E8D95107F29FF99E0A7FC2555B0BEFA26A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119207   (809012) от 27.03.2017
-
-Discovery. Техногеника. Вертолеты-гиганты (2017) HDTVRip [H.264/720p-LQ] (Сезон 2)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вертолет В-12 конструкции Михаила Миля до сих пор вызывает восхищение. Во-первых, он остается самым большим по размерам и самым грузоподъемным в мире и по сей день, спустя почти 50 лет после первого полета. Рекорд грузоподъёмности в 45 тонн, зафиксированный в книге рекордов Гиннеса, не побит до сих пор. Американская ассоциация строителей геликоптеров присудила КБ (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E9EFE753668BB11FBA23159D3D560DF4FFEF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504852   (807946) от 25.10.2021
-
-BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый документальный фильм Би-би-си на стыке антропологии, технологий и истории расскажет о том, как понимание теории сетей может помочь нам лучше разобраться в устройстве современного мира.
-
-Сегодняшние техногиганты утверждают, что интернет – это сила добра. Мол это инструмент, доступный каждому и разрушающий старые иерархии – теперь, как никогда раньше, любой из (   Читать дальше...   )Производство: США / BBC Studios, WNET/13Жанр: ДокументальныйРежиссер: Адриан ПеннинкПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149B21ED7F41A6ED0B6CC38CA5AD1318FBF016FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119402   (807219) от 28.03.2017
-
-Гений Джорджа Буля / The genius of George Boole (2016) WEBRip [H.264]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труды Джорджа Буля оказали огромное влияние на современные технологии. Лидеры отрасли и ученые со всего мира отдают должное одному из величайших героев планеты.Телекомпания: Великобритания / IndiGenius FilmsЖанр: ДокументальныйРежиссер: Стивен МизеласПеревод: Одноголосый закадровый, профессиональный (студии "Кириллица")Продолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8A22A78E430BCC4D41DDCF3A35544B8E95D6FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

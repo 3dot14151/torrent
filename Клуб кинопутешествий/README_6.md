@@ -1,3 +1,29 @@
+###  Публикация: 523447   (950302) от 04.01.2017
+
+Запах странствий: Западная Япония / Flavors Of West Japan (2006-2010) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествуя по всему миру, мы узнаем историю древних городов, культурные особенности разных стран. Мы сможем побывать на пестрых рынках Турции, посетим уютные площади и улочки Сицилии, увидим необыкновенные вулканы, водопады и храмы западной Японии.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C364A4F9D4AC8108C8912AD5747576A1104ED913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546100   (948831) от 05.01.2017
 
 Запах странствий. Португалия / Flavors of Portugal (2006 - 2010) HDTVRip
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948831.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947434.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947345.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947336.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947316.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947313.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945413.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944854.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944724.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944426.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941375.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941312.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940128.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938770.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937233.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937134.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935641.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934033.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932582.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930544.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930285.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928552.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923879.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922670.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922585.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB38DA94BD3A15494F007ECE94C6FB1B755441A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288813   (920335) от 30.01.2011
-
-Cатояма: Таинственный Водный Сад Японии / Satoyama: Japan's Secret Watergarden (2004) BDRip [1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы посетим место, где ритм жизни диктует смена сезонов, а люди веками занимались земледелием и рыболовством, существуя в гармонии с природой. Это деревни и рисовые поля вокруг озера Бива. Нам расскажут, какие животные и растения населяют систему каналов, как они уживаются между собой и с местным населением.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C65C349B3FB44F701F4F6E9287D9D7B2D63A9CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

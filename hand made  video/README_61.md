@@ -1,3 +1,29 @@
+###  Публикация: 941169   (451028) от 02.10.2015
+
+Контрабанда / Contraband (2011) BDRip [H.264/720p] [hand made 48fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир контрабандистов — это большие ставки и огромный риск. Cтоит оступиться лишь раз, и тебя ждет смерть. В этом мире Крис был лучшим, его называли Гудини, но он вышел из игры, женился и начал новую жизнь…Производство: США, Великобритания, Франция / Relativity Media, Universal Pictures, Studio CanalЖанр: Боевик, триллер, драма, криминалРежиссер: Бальтасар КормакурАктеры: Марк Уолберг, Кейт Бекинсейл, Бен Фостер, Калеб Лэндри Джонс, Джованни Рибизи, Дж.К. Симмонс, Лукас Хаас, Лаки Джонсон, Диего Луна, Роберт УолбергПеревод: Дублированный (Лицензия)Субтитры: Русский, Английский (вшитые отключаемые)Продолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0D06F294A81DD5AFB6D7E5B5A3070508E68C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408035   (450963) от 14.09.2020
 
 Хищник / The Predator (2018) HybridRip [H.264] [IMAX] [Локализованная версия] [PR]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450963.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450849.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450459.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450375.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450373.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448648.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448633.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448624.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447759.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447128.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446513.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446292.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446277.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446029.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445995.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444060.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443620.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443408.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442534.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442186.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441599.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441582.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441204.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439556.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439220.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D86F99FED9D76C4B284BCBA0D9BA02D835311E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410353   (437918) от 20.09.2020
-
-Хищники / Predators (2010) HybridRip [H.264] [Open Matte] [Extended Fan Cut]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наемник Ройс невольно вынужден возглавить группу профессионалов, выполняющих загадочную миссию на неизвестной планете. За исключением опального доктора все они — хладнокровные убийцы: наемники, гангстеры, осужденные и участники отрядов смерти — людские «хищники». Но когда их начинает систематически преследовать и истреблять невообразимое чудовище, становится очевидно, (   Читать дальше...   )Производство: США / Twentieth Century Fox Film Corporation, Troublemaker Studios, Davis EntertainmentЖанр: фантастика, боевик, триллер, приключенияРежиссер: Нимрод АнталАктеры: Эдриан Броуди, Олег Тактаров, Лоренс Фишбёрн, Дэнни Трехо, Тофер Грейс, Алиси Брага, Уолтон Гоггинс, Луис Одзава Чжанцзянь, Махершала Али, Кэри ДжонсПеревод: ДублированныйСубтитры: русские (форс, полные), английскиеПродолжительность: 01:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5724A3E06CBD6C94BF19552C5F4E02F7B089E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

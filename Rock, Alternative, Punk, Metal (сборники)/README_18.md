@@ -1,3 +1,61 @@
+###  Публикация: 1126461   (765370) от 18.04.2017
+
+VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crowbar - Plasmic And Pure 5:38
+002. Heavenwood - The Juggler 6:43
+003. Bathsheba - At the End Of Everything 8:26
+004. Beelzefuzz - The Righteous Bloom 6:55(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 15:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126573   (765369) от 18.04.2017
+
+VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Pill Morning - Escape 3:59
+002. AFI - She Speaks The Language 4:01
+003. Acceptance - 73 5:00
+004. Acronycal - Lost Without A Name 4:23(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 06:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE6F34A554FAB9F90987D5DEEECF537464AD1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126578   (765366) от 18.04.2017
 
 VA - I Love Music! - Nu Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
@@ -6,7 +64,7 @@ VA - I Love Music! - Nu Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765366.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - I Love Music! - Indie amp Soft Rock Edition Vol.33 (2017) [MP3|320 Kbps] <R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765365.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Samantha Fish - Compilation (2019) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765216.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - I Love Music! - Hard Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Hard Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765197.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Imelda May - Compilation (2019) [MP3|320 Kbps] <Alternative rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765159.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Roads of old Ballads (2018) [MP3|320 Kbps] <Rock , Pop-Rock , Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763942.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Rock & Metal Collection от ALEXnROCK часть 5 (2018) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763941.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Rock & Metal Collection от ALEXnROCK часть 1 (2017) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763889.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Love You to Death (2020) [MP3|320 Kbps] <Rock, Hard Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763732.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Music for You vol.11 (2020) [MP3|320 Kbps] <Rock, Progressive Metal, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763713.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762987.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Rock Indie NME Station (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762218.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Opus - Compilation (2019) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761780.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Наше Радио: Чартова дюжина Top13  Март (2018) [MP
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761146.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Chasing Sunrise: Heroes Of Modern Rock Vol.02 (2020) [MP3|320 Kbps] <Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760514.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Heavy Metal Collections Vol. 7 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760427.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Rock & Metal Collection от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759609.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Перфоратор: Сборник Русского Рока (2018) [MP3|
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759463.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Heavy Metal Collections Vol. 8 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758721.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Heavy Metal Collections Vol. 9 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758647.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Heavy Metal Collections vol. 6 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758644.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Heavy Metal Collections Vol. 11 (3CD + 1CD LIVE) (2019) [MP3|320 Kbps] <Hea
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758631.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Heavy Metal Collections Vol. 10 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758626.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Heavy Metal Collections Vol. 12 (3CD) (2019) [MP3|320 Kbps] <Heavy - Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758605.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F2D8FE4A338C8D9CBB822F3263DF9C0AABF397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522573   (758384) от 07.01.2022
-
-Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels Like Forever
-02. Every Time it Rains
-03. Too Cool
-04. Soul Time(   Читать дальше...   )Жанр: RockПродолжительность: 06:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1D77AA282AB3D570D0ABD1FFB20C2FC0CCEF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215527   (757851) от 26.03.2018
-
-Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Александр Маршал - Дай мне руку
-02 Александр Маршал - Обещай мне
-03 Александр Маршал - Погоди, постой
-04 Александр Маршал - Как тебя найти(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 03:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
 ```
 
 https://mybot314.ru/tekegram_catalog/

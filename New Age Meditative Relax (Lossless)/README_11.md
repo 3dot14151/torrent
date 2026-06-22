@@ -1,3 +1,32 @@
+###  Публикация: 663023   (754996) от 31.05.2013
+
+Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manschoud (6:31)
+02. Timeless (3:46)
+03. Safi (5:46)
+04. People (7:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018812   (752259) от 22.05.2016
 
 Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
@@ -6,7 +35,7 @@ Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752259.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Deuter - Eternity (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751547.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750010.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746900.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Thierry David - Yoma (1996) [FLAC|Lossless|tracks + .cue] <Tribal, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744147.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Thierry David - Ocean Rhapsody (2007) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744133.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Thierry David - The Veil of Whispers (2011) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744132.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Thierry David - Hypnosis (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744083.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Dr. Jeffrey Thompson - Journey of the Spirit (2016) [FLAC|Lossless] <New Age, Me
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742128.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Dr. Jeffrey Thompson - Theta Meditation System (2001) 2CD [FLAC|Lossless] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742040.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Jean-Michel Jarre - Original Album Classics Vol 2 (2018) 5CD Box Set [FLAC|Lossl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741785.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ VA - Smooth Piano for Romantic Lovers (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741333.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Siavash - Hamsayeh Haa (1994) [FLAC|Lossless|tracks + .cue] <World Music>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741159.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Ernesto Cortazar - Infinite Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738776.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732471.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Viol
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729765.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728905.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Piano Pianissimo - Breathe In, Breathe Out and Relax (2022) [FLAC|Lossless|WEB-D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726652.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Rajendra Teredesai - Moksha - The Path to Inner Peace (2016) [FLAC|Lossless|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726554.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ VA - Simply Chillout (2013) Box Set, 10CD [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726385.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726104.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725526.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724218.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ VA - Enigma & D-Emotion Project (2001) Bootleg [FLAC|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722262.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditat
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722245.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ Sayama - Yoga Meditations (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA7BF0691AC5DEC894892B89C98D94531D303040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128936   (720714) от 29.04.2017
-
-Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Celt (Introduction) (1:01)
-02. Oroshay (3:00)
-03. The Primal Gods (2:27)
-04. Celtic Trance (3:55)(   Читать дальше...   )Жанр: Tribal, Ambient, CelticПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
 ```
 
 https://mybot314.ru/tekegram_catalog/

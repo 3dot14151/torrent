@@ -1,3 +1,55 @@
+###  Публикация: 1640153   (236531) от 16.06.2023
+
+Keep It 2.2.8 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 2004 - 2023 Reinvented SoftwareПоддерживаемая ОС: macOS 11.3+Язык интерфейса: Английский, Арабский и Иврит
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53AE4D0C409DFA2F813D64A48DA8645AAE158B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457146   (236423) от 25.03.2021
+
+Client Folder Maker 5.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Client Folder Maker - это простой и легкий в использовании инструмент общего назначения для создания папок и управления ими для занятого настольного издателя, оператора допечатной подготовки или веб-дизайнера. Он позволяет вам настроить иерархию папок один раз, а затем быстро воссоздать эту иерархию в любом месте файловой системы всего несколькими щелчками мыши из (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2019Разработчик: GeekSuit, LLCПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92138379D27E7EC35BF8DC69AA217C0259ED5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457248   (236412) от 25.03.2021
 
 PDF Checkpoint 1.9.13 [En]
@@ -6,7 +58,7 @@ PDF Checkpoint 1.9.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236412.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ NCH Express Accounts Plus 11.01 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236316.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Statistics Pro 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236286.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Valentina Studio Pro 13.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236273.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ ExpressionsinBar 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236189.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ TimeTable 3 v3.4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236146.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ UctoX 2 v2.8.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235926.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Solis 1.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235765.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ BluePlum Home Inventory 4 v4.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235400.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Transfer 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235074.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Workspaces 2 v.2.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234616.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Memoires 5 v.5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234602.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Texifier 1.9.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234356.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ UctoX 2.9.8 U2B [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234094.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ Website Watchman 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234076.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ AutoSwitchInput Pro 2.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232634.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ BusyCal 2023.1.2 U2B [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232549.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Exhibeo 2 v.2.0.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232301.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ NCH Crescendo Masters Pro 9.59 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232060.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ Focus Professional 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230991.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ Task Office 8.15 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230741.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ Export Calendars Pro 1.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229865.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Exporter for Contacts 1.13 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229814.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ Banktivity 7 v7.5.3 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229337.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ Banktivity (прежнее название iBank) - это серьезное �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D56504809789A16A1A36709A63B20E3B0FA313C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341707   (229274) от 29.11.2019
-
-Scudo 1.0 beta 10 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scudo - это гибридный брандмауэр для macOS, который сочетает в себе фильтр входящих пакетов сетевого уровня с исходящим брандмауэром прикладного уровня. Scudo помогает защитить сетевые службы вашего Mac от нежелательных подключений с удаленных компьютеров и повышает вашу конфиденциальность и безопасность, контролируя сетевую активность всех приложений, позволяя вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: murus.itПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F6AF0E4695660CBFA18E01857F9D079B022C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424363   (228970) от 16.11.2020
-
-Family Tree Maker 2019 v24.0.1.252 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228970.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Family Tree Maker стало проще, чем когда-либо, открыть для себя историю вашей семьи, сохранить ваше наследие и поделиться своим уникальным наследием. Если вы новичок в семейной истории, вы оцените, как эта интуитивно понятное приложение позволяет легко «вырастить» семейное древо с помощью простой навигации, инструментов для построения деревьев и встроенного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: The Software MacKiev CompanyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BF39EF9E8B93F1D52C41E59CE3DE2DCB5D6B44
 ```
 
 https://mybot314.ru/tekegram_catalog/

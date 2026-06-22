@@ -1,3 +1,56 @@
+###  Публикация: 1691852   (122943) от 14.01.2024
+
+Ableton Live Suite 11 v.11.3.20 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2023Разработчик: © 2022 AbletonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEF5976596C93B0BBF5F334158E388281379B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691964   (122914) от 14.01.2024
+
+Bookends 14.2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
+Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8679DC7D3594D895C4329D92E94A72176D9C7C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691971   (122902) от 14.01.2024
 
 Ghost Buster Pro 2.5.0 [Multi/Ru]
@@ -6,7 +59,7 @@ Ghost Buster Pro 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122902.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Navicat Data Modeler Essentials for Mac 3.3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122900.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Find Any File (FAF) 2.4.2b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122895.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Navicat for Oracle on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122880.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Text Workflow 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122879.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122878.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Navicat for Redis on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122877.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ DaisyDisk 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122770.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ KCNcrew Pack 01-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122752.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ HitPaw Watermark Remover for Mac 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122750.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ Magic Disk Cleaner 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122747.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122714.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Serial Box & SerialSeeker 01-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122713.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ iShowU Studio 2 v.2.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122712.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ EasyGantt Classic  4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122711.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Dropshare 5 v.5.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122710.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Soulver 3 v.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122709.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122708.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ Mimestream 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122702.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ Adobe InDesign 2024 v.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122651.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Rhinoceros 8 v.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122552.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ VueScan Pro for Mac 9.8.25 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122539.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ DxO PhotoLab 7 ELITE Edition 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122532.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Adobe InCopy 2024 v.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122531.jpg" />
 </div>
 
 
@@ -632,60 +685,6 @@ Adobe InCopy  входит в состав Creative Cloud. Поэтому (   �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF9627FE124E1C1AE87B6D882CD0DA8B993D68AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692511   (122515) от 16.01.2024
-
-DxO PhotoLab 6 ELITE Edition 6.13.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2024Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325790D61200F80ED21A037AF09B996F082E5479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692528   (122511) от 16.01.2024
-
-DxO ViewPoint 4 for Mac v.4.13.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122511.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO ViewPoint — окончательная победа над геометрическими искажениями.
-DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 2024 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский , Французский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7198C2B73CF66B1C46DC01C1AB15B06CAB44E205
 ```
 
 https://mybot314.ru/tekegram_catalog/

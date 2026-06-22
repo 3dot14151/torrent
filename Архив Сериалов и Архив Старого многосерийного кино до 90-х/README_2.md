@@ -1,3 +1,30 @@
+###  Публикация: 605416   (995729) от 19.01.2013
+
+Жизнь и судьба (2012) DVDRip [H.264] (серии 1-12 из 12)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995729.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Василия Гроссмана "Жизнь и судьба".
+Сюжет разворачивается в 1942–1943 годы, в период обороны Сталинграда. Еврей Виктор Штрум – талантливый физик-ядерщик, работающий в одном из институтов страны над созданием атомной бомбы. В это время близкие Штрума погибают в гитлеровских лагерях и застенках НКВД, на него самого начинаются гонения. Изобретателя (   Читать дальше...   )Жанр: драма, военный, экранизацияРежиссер: Сергей УрсулякАктеры: Сергей Маковецкий, Александр Балуев, Сергей Пускепалис, Лика Нифонтова, Анна Михалкова, Евгений Дятлов, Полина Агуреева, Виктор Яковлев, Никита Тезин, Нина Антюхова и др.Субтитры: нетПродолжительность: 6 х ~ 01:10:00 (по две серии в файле)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603962   (995718) от 19.01.2013
 
 Марьина роща (1-16 серии из 16) (2012) DVB
@@ -6,7 +33,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995718.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995572.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994512.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994505.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994451.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994362.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993984.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993493.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993382.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992749.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992438.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991976.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991742.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991734.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991678.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991338.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991066.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990888.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990817.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990606.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989918.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989846.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989787.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989779.jpg" />
 </div>
 
 
@@ -637,39 +664,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989039.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Находящиеся на борту шаттла «Одиссея» участники рядовой миссии на околоземной орбите становятся свидетелями того, как Земля обратилась в прах. От планеты остаётся только пять её представителей. Но таинственная сила переносит их на пять лет назад во времени. Дабы дать им возможность предотвратить катастрофу. Остаётся лишь найти то, того или тех, кто привёл к ней…Производство: Жанр: Фантастика, Драма, МистикаПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: «Петербург — Пятый канал»Субтитры: Продолжительность: 18 x ~00:45 + 1я и 2я серии (пилот) в одном файле продолжительностью 1:32:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400317   (988768) от 08.01.2012
-
-Приключения Сары Джейн / The Sarah Jane Adventures (2009) HDTVRip (Сезон 3, серии 1-12 из 12) [ВГТРК]
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давний друг и компаньон Доктора Кто Сара Джейн вместе с ним путешествовала когда-то по вселенной и боролась с монстрами и пришельцами. Эти путешествия остались в прошлом, но Сара Джейн продолжает расследовать неземные происшествия и спасать Землю уже в качестве любознательной журналистки. В борьбе с инопланетными врагами ей помогают юные друзья — Мария, Люк и Клайд, (   Читать дальше...   )Жанр: Фантастика, Драма, СемейныйРежиссер: Джосс Эгнью, Элис Тротон, Грем Харпер, Чарльз Мартин, Майкл Керриган, Эшли ВэйАктеры: Элизабет Слэйден, Дэниэл Энтони, Александр Армстронг, Томми Найт, Анжи Махиндра, Эйс Бхатти, Ясмин Пейдж, Пол Каси, Мина Анвар, Джозеф Миллсон и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка: ВГТРКФормат: aviПродолжительность: 12 x ~00:27:00
 
 ## Скачать торент
 ```bash

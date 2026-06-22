@@ -6,7 +6,7 @@ ESA (Electronic Substance Abuse) - Discography 16 Releases (2006-2021) [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015388.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Syntech | Greyhound - Discography (2006-2019) Hands Productions  [FLAC|Lossless|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011238.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dominick Fernow (Vatican Shadow, Rainforest Spiritual Enslavement, etc.) - Disco
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010716.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Evitceles - Discography 23 Releases (2014-2021) Opal Tapes, Display [FLAC|Lossle
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010591.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ LPF12 (LPF 12, LPF12__) - Discography 46 Releases (2010-2021) [FLAC|Lossless|WEB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009887.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Liebknecht (Daniel Myer & Rinaldo Bite) - Discography 8 Releases (2017-2021) Har
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009428.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Ben Frost - Discography 33 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008383.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ This Morn' Omina - Discography 23 Releases (1997-2021) Ant-Zen [FLAC|Lossless|tr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007212.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Na-Hag - Discography 7 Releases (2011-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003921.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Tangent - Discography 8 Releases (2012-2021) Mindtrick Records, Tympanik Audio, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003222.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ TeHÔM (TeHOM) - Discography 6 Releases (1996-2021) Twilight Command, Cyclic Law
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002270.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Köhnen Pandi Duo (Kohnen Pandi Duo) - Darkness Comes In Two's (2017) Svart Lava
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001090.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Love Theme - Love Theme (2017) Alter [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001056.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Aidan Baker & Gareth Davis - Invisible Cities (2018) [FLAC|Lossless|Web-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001051.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Maryam Sirvan - Songs of an Empty Room (2019) Past Inside the Present [FLAC|Loss
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978000.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Iszoloscope - Discography 18 Releases (2001-2019) Ant-Zen [FLAC|Lossless|tracks+
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968505.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Aidan Baker & Gareth Davis - Invisible Cities II (2020) [FLAC|Lossless|Web-DL|tr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966281.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Sopor Aeternus & The Ensemble of Shadows - Island of the Dead (2020) [FLAC|Lossl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939375.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Vladislav Delay - Rakka (2020) Cosmo Rhythmatic [FLAC|Lossless|WEB-DL|tracks] <E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936389.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Lemna - Storytelling #1 - Reminiscences Of Inner Scenery (2020) Horo [FLAC|Lossl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932236.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Xabec - Collection 6 Releases (2001-2020) Hands Productions [FLAC|Lossless|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931812.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Sufjan Stevens and Lowell Brams - Aporia (2020) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900338.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Johnny Jewel - Digital Rain (2018) [FLAC|Lossless|tracks + .cue] <Dark Ambient, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898476.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Johnny Jewel - Themes for Television (2018) [FLAC|Lossless|WEB-DL|tracks] <Dark 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896913.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Igorrr - Spirituality and Distortion (2020) Metal Blade Records [FLAC|Lossless|W
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896740.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888584.jpg" />
 </div>
 
 

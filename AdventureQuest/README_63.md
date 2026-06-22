@@ -1,3 +1,133 @@
+###  Публикация: 1590697   (188350) от 15.11.2022
+
+The Shore (2021) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188350.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Shore - приключенческий хоррор от первого лица, вдохновленный романами Говарда Филлипса Лавкрафта. Путешествуйте мистическим берегом, сталкиваясь с таинственными существами. Постарайтесь разгадать все секреты, которые скрывают в себе эти края. Вас ждет неописуемый ужас и саспенс. Боритесь за выживание и исследуйте таинственный мир. Это приключение заставит вас (   Читать дальше...   )Тип издания: LicenseРазработчик: Ares DragonisЖанр: Экшны, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542727FA9D1B7C8AA27F29F4190829879364EFCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590711   (188328) от 15.11.2022
+
+The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоррор-приключение от третьего лица для одного игрока. Вас пригласили на семинар по духовному росту на идиллическом острове, вдали от цивилизации, но мирные выходные быстро превращаются в череду кошмаров, когда групповой ритуал открывает ворота во Мрак – психоделическое пространство ужасов, которое питается негативной энергией. Вам придется отгадывать запутанную (   Читать дальше...   )Тип издания: RepackРазработчик: Brass TokenЖанр: Adventure (Horror), Action, 3rd Person, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A3510AE58D2D8A96A07E6D5DCB8E1852136F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613655   (188144) от 16.09.2023
+
+台北大空襲 Raid on Taihoku (2023) [Multi] (11269286) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Raid on Taihoku использует сеттинг Второй мировой войны. Показанные в игре события разворачиваются в 1945 году на территории острова Тайвань. Действие происходит в городе Тайхоку, известном также под измененным названием Тайбей. 31 мая во время противостояния между США и Японией в Тайваньском проливе американские самолеты B-24 Liberators устроили бомбардировку островной (   Читать дальше...   )Тип издания: SceneРазработчик: Mizoriot Creative Company LTD., fun2studioЖанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Китайский (традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091BB88CA2B78325496A0870362961162D33F919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661965   (188138) от 16.09.2023
+
+Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда реальность становится кошмаром, кошмары становятся реальностью. В этом психологическом хорроре вам предстоит сразиться с чудовищами, которые поселились в вашем сознании. Сможете ли вы сохранить рассудок? Вы оказались заперты в стенах собственного дома и лабиринте траншей Первой мировой войны. Теперь вы пытаетесь собрать воедино обрывки собственного прошлого (   Читать дальше...   )Тип издания: SceneРазработчик: HekateЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662283   (187983) от 17.09.2023
+
+Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Our Life: Beginnings & Always - визуальная новелла с ноткой ностальгической грусти и безграничными возможностями. Проживите уникальный и неповторимый опыт, который с легкостью можно сравнить с настоящей жизнью. Создайте собственного главного героя этой истории и проследите за пятнадцатью годами его жизни и взаимоотношением с соседскими ребятами. Разработчики (   Читать дальше...   )Тип издания: LicenseРазработчик: GB Patch GamesЖанр: Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90793EEE8413A35F541FA33897F4FD8BD413131D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129395   (187842) от 17.09.2023
 
 Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
@@ -6,7 +136,7 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187842.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187836.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187654.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187337.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Heart of the Woods (2019) [Multi] (2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185849.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185634.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185043.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184832.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184233.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183850.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183333.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182868.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182713.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182043.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Dark Pictures Anthology: Little Hope (2020) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181746.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181211.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181208.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Tails Noir (2021) [Ru/Multi] (11857296/dlc) Scene Tenoke [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181113.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181033.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181032.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A5C553CFF9D424AB1CAA51E612DC0C05F2F394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227626   (181017) от 01.10.2023
-
-Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествуйте по неведомым мирам, простирающимся за гранью вашего воображения, и открывайте тайны потерянной цивилизации Д'ни. Это она создала книги-порталы – «ворота» в другие измерения, названные «Мирами». Следуйте за Йишей, дочерью Атруса, чтобы найти утерянные секреты, решить загадки и исследовать многочисленные миры.Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292716   (180618) от 26.11.2022
-
-Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Games
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная Труба существует. На самом деле. До последнего времени попасть туда было делом непростым, но теперь это стало доступно каждому. Все, кто побывал в Полной Трубе, описывают её по-разному: кто-то говорит, что там всё как у нас, другие утверждают, что это не так, а совсем наоборот. Но на самом деле всё гораздо, гораздо запутаннее...Тип издания: РепакРазработчик: PIPE StudioЖанр: Adventure / Arcade / Logic (Puzzle)Язык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665784   (180507) от 02.10.2023
-
-ZED (2019) [En] (1.3) License GOG [VR]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180507.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZED – это история стареющего художника, потерянного в сожалениях и дымке деменции. В разлагающемся пейзаже грёз этого творческого разума игроки собирают фрагментированные воспоминания художника в окончательное нерушимое наследие – последний подарок любимой внучке. Пронзительный, трогательный и эффектный, ZED останется в вашем сердце даже после завершения рассказа.Тип издания: LicenseРазработчик: Eagre Games, Skymap GamesЖанр: Adventure, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666034   (179834) от 03.10.2023
-
-Noch (2023) [Ru/Multi] (1.0.0.12532) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179834.jpg" />
-</div>
-
-
-###  Подробнее
-
-NOCH — зловещее сюрреалистическое приключение, полное опасных чудовищ и тайн погибшего мира. Представьте: ночь. Вы едете в машине по затерянному среди бескрайних лесов шоссе. Возможно, вы в отчаянии решили попытаться сбежать… Или же, ещё не потеряв надежду, вы куда-то очень спешите. Но это уже не имеет значения. Ведь Лиза уже уничтожила мир и вся наша реальность (   Читать дальше...   )Тип издания: RepackРазработчик: Fair Games Studio, NoostycheЖанр: Adventure, Action, Puzzle, Co-Operative, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Польский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3183A7B79636D2EE8CFFD70A075B251683EAFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666142   (179794) от 03.10.2023
-
-Demonologist (2023) [Ru/Multi] (1.0.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_179794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Demonologist — это кооперативная игра ужасов, в которую могут играть как минимум 1 и до 4 игроков. Ваша цель - определить вид злого духа в проклятых местах и изгнать его, используя свое оборудование, в одиночку или вместе с командой.Тип издания: RepackРазработчик: Clock Wizard GamesЖанр: Action (Horror), Co-op, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3601B015B51810F957D5D30D1457698E650A0D92
 ```
 
 https://mybot314.ru/tekegram_catalog/

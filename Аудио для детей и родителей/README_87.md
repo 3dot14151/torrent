@@ -1,3 +1,86 @@
+###  Публикация: 1681973   (132143) от 05.12.2023
+
+Лидия Чарская | Золотая коллекция сказок. Король с раскрашенной картины. Три слезинки королевны (2007) [MP3, Галина Лебедева, Вячеслав Ковалёв]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Золотая коллекция сказок.
+Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
+Эти сказки о добре, любви к ближнему, сострадании, бескорыстии. В её героях есть нечто светлое, благородное, чистое, воспитывающее самые высокие понятия о дружбе, верности и чести.Жанр: Русская литература, классика, сказкаИздательство: ТВИК-ЛИРЕКПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4C7975781AC16AEA2B10C01418FCE6A76AFBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681975   (132139) от 05.12.2023
+
+Лидия Чарская | Записки маленькой гимназистки (2010) [MP3, Юлия Хамитова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
+Аудиокнига рассказывает увлекательную и поучительную историю о молодой девушке, приехавшей в Петербург учиться в гимназии. Героине сложно в новой среде, но душевная доброта помогает ей справиться с трудностями, подружиться с одноклассницами, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «Звуковая книга»Продолжительность: 04:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE74BC4A1B5C10160F4B10BAB37A3E7AEF28CF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392416   (131981) от 05.12.2023
+
+Лидия Чарская | Смелая жизнь (2009) [MP3, Лидия Леликова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Архив мировой литературы.
+Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
+Причудливые, полные интриг приключения героев повестей Чарской переплетаются с их высокими, благородными чувствами и поступками. В том мире, который создала Лидия Чарская, негодяям и мерзавцам не (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АрМирПродолжительность: 09:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D20B9C558831F60FF3FC7F8D35D3F3987556D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 316763   (131979) от 05.12.2023
 
 Лидия Чарская | Генеральская дочка (2007) [MP3, Елена Чебатуркина]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131979.jpg" />
 </div>
 
 
@@ -35,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131975.jpg" />
 </div>
 
 
@@ -62,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131971.jpg" />
 </div>
 
 
@@ -89,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131956.jpg" />
 </div>
 
 
@@ -117,7 +200,7 @@ VA - Disneys Greatest Hits (3CD) (2005) [MP3|320 кб/с]<Soundtrack>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131954.jpg" />
 </div>
 
 
@@ -146,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131951.jpg" />
 </div>
 
 
@@ -173,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131949.jpg" />
 </div>
 
 
@@ -200,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131945.jpg" />
 </div>
 
 
@@ -228,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131589.jpg" />
 </div>
 
 
@@ -256,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131382.jpg" />
 </div>
 
 
@@ -282,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131309.jpg" />
 </div>
 
 
@@ -310,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131295.jpg" />
 </div>
 
 
@@ -337,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131123.jpg" />
 </div>
 
 
@@ -365,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130761.jpg" />
 </div>
 
 
@@ -391,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130736.jpg" />
 </div>
 
 
@@ -418,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130703.jpg" />
 </div>
 
 
@@ -445,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130551.jpg" />
 </div>
 
 
@@ -474,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130470.jpg" />
 </div>
 
 
@@ -503,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130412.jpg" />
 </div>
 
 
@@ -529,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130402.jpg" />
 </div>
 
 
@@ -555,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130392.jpg" />
 </div>
 
 
@@ -582,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130375.jpg" />
 </div>
 
 
@@ -608,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130205.jpg" />
 </div>
 
 
@@ -619,91 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42985E783057714DA7DE02B5FB113B1289E057CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683051   (129794) от 09.12.2023
-
-Джеймс Мэтью Барри | Питер Пэн (2012) [MP3, Ксения Большакова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Мэтью Барри создал шедевр мировой детской литературы о мальчике Питере Пэне. Герой этой сказки никогда не постареет, а всегда будет побеждать врагов и помогать своим друзьям выбраться из трудных ситуаций, он дружит с феями и умеет летать!
-В пересказе Ирины Петровны Токмаковой.
-Для младшего школьного возраста.
-(   Читать дальше...   )Жанр: Зарубежная литература, сказочная повестьИздательство: АСТ, Астрель, АудиокнигаПродолжительность: 04:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C6D654F71688F38B24F25A75756418B8720EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490885   (129659) от 01.05.2012
-
-Татьяна Груша | Чудо [2009] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой сказки - Снеговичок, который очень переживает, что его ледяное сердечко никогда не сможет полюбить. Но разве для Любви это преграда? Об этом вы узнаете из музыкальной сказки...
-
-Ко всем песенкам есть минусовые фонограммки!Жанр: музыкальная сказка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CC369B226429333BFB5DFA909FCDCB6BB70C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434981   (129589) от 10.12.2023
-
-Сказки народов мира | Посиделкино. Выпуск 3 (2010) [MP3, Надежда Рогожина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из фонда радио «Град Петров».
-«Посиделкино» – это увлекательное путешествие в мир народных сказок, собранных со всех концов света. Вместе со сказочными персонажами вас ждут загадочные приключения и удивительные чудеса.
-Автор и ведущая программы Надежда Рогожина поможет извлечь из сказок жизненные уроки нравственности, доброты, честности и самоотверженности, (   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Град ПетровПродолжительность: 04:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2203C4C6312B23F9DE72C4B5298D8B8118B65751
 ```
 
 https://mybot314.ru/tekegram_catalog/

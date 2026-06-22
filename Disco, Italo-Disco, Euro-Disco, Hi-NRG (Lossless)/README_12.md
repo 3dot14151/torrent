@@ -1,3 +1,126 @@
+###  Публикация: 805912   (598760) от 19.07.2014
+
+Silent Circle - Best Of Silent Circle (1991) [FLAC|Lossless]<Euro-Disco, Synht-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (5:16)
+02. Stop The Rain (5:35)
+03. Hide Away - Man Is Comin'! (5:05)
+04. I Am Your Believer (5:42)
+05. Oh, Don't Lose Your Heart Tonight (5:46)
+06. Danger Danger (5:49)
+07. Lose Is Just A Word (5:45)
+08. Time For Love (5:07)
+09. Sib Dub Dua (3:05)
+10. Dreams (3:56)(   Читать дальше...   )Жанр: Euro-Disco,Synht-PopПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C02E586984DF9EE4F2A4C4D8AB4DCFF92998EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806388   (597026) от 20.07.2014
+
+Monte Kristo - Sherry Mi-Sai (2007) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Girl Of Lucifer (Vocal) 5:26
+02. Sherry Mi-Sai 5:59
+03. Money For Your Love 4:44
+04. Give Me Your Night (A Touch Of Love) 5:43
+05. Lady Valentine 5:51
+06. The Girl Of Lucifer (Instrumental) 5:27
+07. La Vie D'un Enfant (Vocal) 3:46
+08. La Vie D'un Enfant (Instrumental) 3:46Жанр: Italo-DiscoПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93DF302BED4B694D5606AF9181B869E2B281DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 687788   (596431) от 09.08.2013
+
+VA - 100 Hits - Disco Classics (2011) 5CD Box set [FLAC|Lossless]<Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско сборник из 99 песен. Почему 99 а не 100? Было бы 100, но есть довольно странная ошибка. На CD2 трек№9 Terri Wells - I'll Be Around и на CD4 трек№8 должна быть The Detroit Spinners - I'll Be Around оригинальная версия этой песни, но на самом деле - это лишь расширенная версия в исплнении Terri Wells (до 02:17 это совершенно одинаковые треки). И уж точно - не (   Читать дальше...   )Жанр: Disco, FunkФормат: 5хCD Box set, Compilation, FadeMixПродолжительность: 06:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5937332871FAC4B56D0814A0EDA999D9FC117B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548937   (596197) от 04.05.2022
+
+VA - Italo Disco Classics (2013) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Europop, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. Lion - Happy Children (Vocal Version) (6:01)
+02. Brian Ice - Talking To The Night (Extended Version) (5:53)
+03. Styloo - Pretty Face (6:06)
+04. Grant Miller - Colder Than Ice (Maxi Version) (5:37)(   Читать дальше...   )Жанр: Italo-Disco, Europop, SynthpopПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD8D84D394D178B99BC7773BE310658D0C8C475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548820   (596188) от 04.05.2022
 
 Imagination - Like It Is - Revised And Remixed Classics (1989) [FLAC|Lossless|tracks + .cue] <Funk, Disco, Pop>
@@ -6,7 +129,7 @@ Imagination - Like It Is - Revised And Remixed Classics (1989) [FLAC|Lossless|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596188.jpg" />
 </div>
 
 
@@ -35,7 +158,7 @@ VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594744.jpg" />
 </div>
 
 
@@ -64,7 +187,7 @@ VA - The Hit Men Vol.1 - Produced By Frank Farian (2009) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594172.jpg" />
 </div>
 
 
@@ -99,7 +222,7 @@ VA - The Hit Men Vol.2 - Produced By Dieter Bohlen (2009) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594165.jpg" />
 </div>
 
 
@@ -134,7 +257,7 @@ Dschinghis Khan - The History of Dschinghis Khan & Millenium Mega Mixes (1999) [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594158.jpg" />
 </div>
 
 
@@ -169,7 +292,7 @@ Pavel Panchenko - To the Stars (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593748.jpg" />
 </div>
 
 
@@ -198,7 +321,7 @@ VA - Alexis Le-Tan & Jess Present Space Oddities (2008) [FLAC|Lossless|WEB-DL|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593386.jpg" />
 </div>
 
 
@@ -227,7 +350,7 @@ VA - Italo Disco Tracks Vol. 1 (2005) [FLAC|Lossless|WEB-DL|tracks] <Disco, Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593346.jpg" />
 </div>
 
 
@@ -256,7 +379,7 @@ VA - SuperDisco 90's Platinum Collection (2010) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592857.jpg" />
 </div>
 
 
@@ -285,7 +408,7 @@ VA - ZYX Italo Disco Collection 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592640.jpg" />
 </div>
 
 
@@ -314,7 +437,7 @@ Amaya - Sensation (2020) CDr [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592514.jpg" />
 </div>
 
 
@@ -343,7 +466,7 @@ Bonnie Pointer - Like a Picasso (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, R&B
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592512.jpg" />
 </div>
 
 
@@ -372,7 +495,7 @@ Bad Boys Blue - Bad Boys Best 2001 (2001) Compilation [FLAC|image + .cue]<Europo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592252.jpg" />
 </div>
 
 
@@ -401,7 +524,7 @@ Fancy - Get Your Kicks (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592105.jpg" />
 </div>
 
 
@@ -430,7 +553,7 @@ Radiorama - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks]<Italo Disco, Euro H
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589028.jpg" />
 </div>
 
 
@@ -459,7 +582,7 @@ Elen Cora - House of Cards (2012) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588514.jpg" />
 </div>
 
 
@@ -488,7 +611,7 @@ Wish Key - Uno (2010) [FLAC|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588382.jpg" />
 </div>
 
 
@@ -523,7 +646,7 @@ K.B. Caps - Catch Me Now I'm Falling (2005) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588339.jpg" />
 </div>
 
 
@@ -558,7 +681,7 @@ T. Ark - H.A.P.P.Y. Radio (The 12" Maxi-Singles Collection) (2010) Limited Editi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587448.jpg" />
 </div>
 
 
@@ -593,7 +716,7 @@ Chic - Dance, Dance, Dance: The Best Of Chic (1991) [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587412.jpg" />
 </div>
 
 
@@ -622,7 +745,7 @@ VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586472.jpg" />
 </div>
 
 
@@ -656,7 +779,7 @@ Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586424.jpg" />
 </div>
 
 
@@ -676,139 +799,6 @@ Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810233   (584486) от 04.08.2014
-
-Baltimora - Living In The Background (2005) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarzan Boy 6:12
-02. Pull The Wires 4:40
-03. Living In The Background 6:05
-04. Woody Boogie 5:53
-05. Chinese Restaurant 5:11
-06. Running For Your Love 5:53
-
-Bonus Tracks:
-
-07. Tarzan Boy (Summer Version) 6:42(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933D002D0E90D7D9696110E52F8A846E8E83AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810239   (584400) от 04.08.2014
-
-Baltimora - Survivor In Love (2006) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key Key Karimba 5:59
-02. Global Love 4:39
-03. Jimmy's Guitar 3:56
-04. Come On Strike 4:48
-05. Set Me Free 4:44
-06. Survivor In Love 5:00
-07. Call Me In The Heart Of The Night 4:54
-08. Eye To Eye 4:14
-09. Global Love (Mix Version) 4:38Жанр: Italo-DiscoПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4B0EAC722483D1B9058647C6785F1E3E136C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810346   (583436) от 05.08.2014
-
-Tony Esposito - Tony Esposito (Best Of) (1997) [FLAC|Lossless]<Disco-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Chico [0:03:59.93]
-02. Kalimba de Luna [0:05:01.40]
-03. Sinue [0:03:52.76]
-04. Hands [0:04:22.84]
-05. Dateme [0:04:25.93]
-06. Simba de Ammon [0:04:59.16]
-07. As tu as [0:04:43.73]
-08. Crazy conga [0:05:04.10]
-09. Ella Xana [0:03:58.76]
-10. Giochi non Giochi? [0:04:03.37](   Читать дальше...   )Жанр: Disco-PopПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C3D6287E6CA84B876E5406392A4EC8F5F52227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919575   (582784) от 19.07.2015
-
-Scotch - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Up (Long Remix Version)
-02. Disco Band (Remix by Mach 2 Vocal Version)
-03. Pictures (Extended Vocal Remix)
-04. Mirage (Extended Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D58745B34BD1C514A503CC699622944F99336E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

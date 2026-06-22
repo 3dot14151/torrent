@@ -1,3 +1,107 @@
+###  Публикация: 1132928   (698875) от 10.05.2017
+
+Н. Флеровский | Положение рабочего класса в России (1869) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698875.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дается описание экономической ситуации и положение трудящихся в России в 60-70-х годах ХIХ века. Книга разбита на три части, характеризующие быт и положение рабочего класса в Сибири, северной и пустынной России, работников земеледельчества и промышленности. Автор приводит многочисленные статистические данные.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E009E0E2CBE490047E21C4184ECC28EE8CDB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132783   (698864) от 10.05.2017
+
+Н. А. Рубакин (сост.) | В неведомые страны (1903) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698864.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книжке рассказано о знаменитых путешествиях и открытиях, морских и сухопутных, во всех пяти частях света. Рассказано о некоторых лишь самых знаменитых путешественниках разных времен и народов. А кроме этих жили, страдали и трудились многие тысячи других путешественников. И труды их неизвестны, и имена-то их, быть может, забыты, а все же и эти забытые путешественники (   Читать дальше...   )Жанр: История, культурология, этнографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F8AC7AB67A0B3A1B5768693EB369514B2AEDAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027157   (698355) от 18.06.2016
+
+Клод М. Лайтфут | Восстания в гетто за освобождение негров (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию советского читателя книга написана одним из крупных знатоков негритянской проблемы в Америке, секретарем Национального комитета Коммунистической партии США Клодом М. Лайтфутом. Автор дает глубокую характеристику современного этапа негритянского освободительного движения, анализирует его главные особенности. Он показывает, что в негритянских (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5BEF01196BAF8D8B817104445D6E9A71000AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288152   (697778) от 10.03.2019
+
+П. Н. Баташев | Ленская забастовка [Воспоминания председателя Центрального бюро стачечного комитета] (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ленская забастовка вспыхнула в 1912 г., когда рабочее движение переживало лишь первые признаки подъема. Несмотря на героические «всенародные классовые битвы 1905—1907 гг.», революция была подавлена, рабочие и крестьянские массы были разбиты. Помещики-крепостники остались у власти.Жанр: История, политология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D607AC4993487FE5D2AA6AAA502B3C040AA9C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288252   (697493) от 10.03.2019
 
 Я. М. Захер | Великая французская революция и церковь. 1789-1801 гг. [2 тома] (1929-1931) [PDF]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697493.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696802.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695667.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695552.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695132.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695122.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694829.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694544.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694263.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693645.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693331.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693316.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692758.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692670.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691969.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691850.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691656.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691410.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690665.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689449.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688669.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687435.jpg" />
 </div>
 
 
@@ -571,113 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C8E61CBCE74D0B2035CF5D0DDC40659449C812F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289406   (686639) от 16.03.2019
-
-А. Н. Чистозвонов | Гентское восстание [1539-1540 г.г.] (1957) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гентское восстание представляет собою один из наиболее ярких эпизодов социально-политической, классовой борьбы в Нидерландах кануна буржуазной нидерландской революции XVI в. Его историческое значение тем более велико, что революция и война за независимость во Фландрии в известной степени начались с того, на чем закончилось гентское восстание 1539—1540 гг.,— с отмены (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB6EA35C455975FD667EC12A0A74164D81BE417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535354   (686568) от 06.03.2022
-
-Роман Бродский | Дальневосточная политика США накануне первой мировой войны (1968) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686568.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается дальневосточная политика США между русско-японской и первой мировой войнами, дается анализ русско-американских отношений в этот период. Автор показывает формы и методы дальневосточной экспансии США. Много внимания он уделяет освещению американских проектов интернационализации маньчжурских железных дорог, маневрам США в связи с проблемой организации (   Читать дальше...   )Жанр: Монография, история, дипломатия, политология, империализмФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF7E139F447211E282C2515BA991DAAE80C12ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289399   (686473) от 16.03.2019
-
-А. Н. Львов | В стране Амон-Ра [очерки Египта] (1911) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагая вниманию благосклонного читателя настоящую мою книгу, я нахожу нужным сказать несколько предварительных слов о ней.
-Книга эта, ближе всего, подходит к тому роду литературы, который в теориях словесности определяется термином "путешествия". Фундамент книги - мои личные впечатления, и на этом фундаменте сделаны исторические надстройки.
-
-Мне казалось (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA47A95B45966B35568C0C4E400115B13FA7898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403905   (686319) от 22.08.2020
-
-Хелен Пэриш | Краткая история. Реформация (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в октябре 1517 года Мартин Лютер прикрепил свои 95 тезисов к двери церкви Всех Святых в Виттенберге, он потряс основы западного христианства. Под сомнение были поставлены все догмы, традиции и приоритеты… Идеи Лютера о реформировании религиозных доктрин и практик и последовавшие протесты против продажи индульгенций раскололи Церковь. Но Реформация в итоге вышла (   Читать дальше...   )Жанр: Популярно об историиПеревод: Валентина ФеоклистоваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC106D02F5F3A2427E00BF3E565FEE1C50AA11B
 ```
 
 https://mybot314.ru/tekegram_catalog/

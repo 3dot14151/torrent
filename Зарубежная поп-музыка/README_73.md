@@ -6,7 +6,7 @@ VA - ZYX Italo Disco [New Generation 7'' Collection] (2016) [MP3|320 Kbps] <Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220836.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tina Turner - The Collected Recordings - Sixties To Nineties [3CD Box Set] (1994
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220762.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Emin - 8 в падении (2015) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220497.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220305.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220114.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219905.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219608.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219565.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219559.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Best of Ballermann 2022: Die Hits Deines Sommers (2022) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219551.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Dorfdisko 2022 - Ballermann Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlage
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219533.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Ballermann Party Mix - Alle Hits Der Playa von 1998-2022 "Summer Edition" (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219523.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Ballermann Megamix (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219514.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Ballermann Huttengaudi (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219484.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Karneval am Ballermann 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219458.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Ballermann Party Hits Megamix 2022.2 (2022) [MP3|320 Kbps] <Pop, Dance, Sch
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219440.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Ballermann 6 Balneario Pras.: Die Party Hits (2022) [MP3|320 Kbps] <Pop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219433.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Ballermann Opening Party Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219364.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Best of 2019 - Frühlingshits (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218738.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Megahits 2020 - Die Erste (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218420.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Bravo Hits Zima 2020 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218401.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Various - Pure... 80s (2012) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218105.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Modern Talking - Maxi And Singles Collection (2019) Dieter Bohlen Edition, 3CD [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217713.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Peggy March - The Very Best Of Little Peggy March (1997) The Essential Singles C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217685.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Taylor Swift - Midnights (2022) 3am Edition [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217672.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Soraya Arnelas - Universe In Me (2013) [MP3|320 Kbps] <Europop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216708.jpg" />
 </div>
 
 

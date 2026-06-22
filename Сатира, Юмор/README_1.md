@@ -6,7 +6,7 @@
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857306.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857305.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857301.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856338.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844592.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844549.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842912.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841500.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841384.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839894.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839757.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837928.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837817.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836543.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835214.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833660.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Pharmama | В аптеке. Записки фармацевта о рисках 
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825693.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818695.jpg" />
 </div>
 
 
@@ -481,6 +481,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778364   (806408) от 18.04.2014
+
+Лев Корсунский | Похититель женских сердец (1996) [PDF, DJVU]
+
+>>Художественная литература
+>>Сатира, Юмор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_806408.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новую книгу сенсационной серии "Библиотека пародии и юмора" вошли несерьезные романы "Криминальная любовь", "Похититель женских сердец", ранее не публиковавшиеся на просторах России.Жанр: Сатира, юморИздательство: БукмэнФормат: PDF, DJVUКачество: OCR с ошибками
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1843AACAAB4E3F793F16A83F49ADCCCE5A0B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198722   (804110) от 13.01.2018
 
 Ривка Апостол-Рабинович | Дерибасовская шутит. Юмор одесских улиц (2017) [FB2]
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804110.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803093.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803083.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801871.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797463.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796507.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790017.jpg" />
 </div>
 
 
@@ -662,34 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996E00EFE2B9D4B55182C09FA02DFABE155474A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388309   (786824) от 05.06.2020
-
-Элизабет Джейкобсон (сост.) | Джентльмены шутят. Фунтик английского юмора (2018) [EPUB]
-
->>Художественная литература
->>Сатира, Юмор
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джентльмен – человек, который с вами приветлив и вежлив, даже если ничего вам не продает.
-Оскар Уайльд, Уинстон Черчилль, Уильям Шекспир, Стивен Фрай… Список британцев и истинных джентльменов, чьим остроумием восхищается весь мир, можно продолжать бесконечно.
-Что же такое английский юмор? Это тонкая игра слов, великолепная ирония, занятные наблюдения, удачные пародии, (   Читать дальше...   )Жанр: Афоризмы и цитаты, Юмор и сатираФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48813E9EB96528ABEC5A287A24EBBFB381872254
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1256155   (358192) от 20.10.2018
+
+Кролик Питер / Peter Rabbit (2018) Blu-Ray [H.264/1080p] [EUR]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о противостоянии фермера Томаса МaкГрeгoра и озорного кролика Питера. Испокон веков звери жили рядом с фермой и считали овощи и фрукты с ее грядок своей собственностью, но когда на ферме появился ненавидящий животных Томас, кроликам, ежам и прочим животным вход на ферму стал воспрещен. Естественно это не устроило Питера, и он возглавил восстание (   Читать дальше...   )Производство: Австралия, США / 2.0 Entertainment, Animal Logic Entertainment, Animal LogicЖанр: Комедия, Фентези, Приключения, ДетскийРежиссер: Уилл ГлакАктеры: Джеймс Корден, Файсаль Баззи, Донал Глисон, Сиа, Колин Муди, Сэм Нил, Марго Робби, Элизабет Дебики, Дэйзи Ридли, Роуз Бирн и др.Перевод: Дублированный Blu-Ray EURСубтитры: Английские, Эстонские, Латышские, Литовские, Польские, Русские, УкраинскиеПродолжительность: 01:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD65A461153349683954C9708DFC3508B8537B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178156   (357758) от 27.10.2017
+
+Руфус 2 / Rufus-2 (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руфус влюбляется в новую ученицу, которая явно скрывает какой-то секрет. Мэнни и Пэйдж подозревают её в недобрых намерениях, а Руфус считает, что они неправы. В это время за волшебным амулетом Руфуса начинает охотиться таинственный злодей.Производство: США / Pacific Bay EntertainmentЖанр: Комедия, семейныйРежиссер: Сэвидж Стив ХолландАктеры: Джейс Норман, Дэвис Кливлэнд, Хейли Тджу, Джэйд Петтиджон, Кэлвин Олафсон, Уэсли Сэлтер, Амитай Мэрморштейн, Чад Райли, Лиза Дурупт, Лиллиэн ЛимПеревод: Дублированный (Кипарис)Субтитры: АнглийскиеПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7935C6AB89820AC33A9DE996ED6EDA27590326FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577841   (357001) от 19.11.2012
+
+Мост в Терабитию / Bridge to Terabithia (2007) [1080p] Blu-ray
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Фэнтези, Драма, ПриключенияАктеры: Джош Хатчерсон, Анна-Cофия Робб, Зои Дешанель, Роберт Патрик, Бэйли Мэдисон, Кейт Батлер, Девон Вуд, Эмма Фентон, Грэйс Брэнниган, Лэтэм ГейнсПеревод: русский дубляжСубтитры: (PGS): English, French, РусскиеПродолжительность: 01:35:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417265   (355464) от 21.10.2020
 
 Каспер / Casper (1995) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355464.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354011.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352171.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350646.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346144.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345363.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345209.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342444.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342126.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340258.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340074.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336410.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334915.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332919.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332800.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332148.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332146.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331884.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331709.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331707.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330725.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330665.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330286.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CD6EFF09C82F4684FE186E0AD443D922D2F7FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577166   (329818) от 02.10.2022
-
-Мадикен из Юнибаккена / Madicken pa Junibacken (1980) BDRip [H.264/720p] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский фильм по мотивам книг Астрид Линдгрен. Мадикен - озорная девочка. Ей почти 7 лет, и она живёт в Юнибаккене вместе с мамой, папой, сестрёнкой Лисабет и работницей Альвой. В жизни Мадикен каждый день происходят интересные события - мамин день рождения, школьная экскурсия, Рождество и весёлые школьные будни. Каждую неделю Мадикен и Лисабет выдумывают что-нибудь (   Читать дальше...   )Производство: Швеция, Artfilm, Svensk Filmindustri (SF)Жанр: комедия, семейныйРежиссер: Йоран ГраффманАктеры: Йонна Лильендаль, Лив Алстерлунд, Моника Нордквист, Бьёрн Гранат, Лис Нильхайм, Аллан Эдвалль, Биргитта Андерссон, Себастиан Хоканссон, Бьёрн Густафсон (I), Тед Острём, Сиф Руд, Филлье ЛюкковПеревод: любительский одноголосый (Lenape)Субтитры: русские (old_barb), английскиеПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2F41AADE4FA3702CECE1EC45FF67EBE26EB5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580954   (328970) от 03.10.2022
-
-Изумительный мистер Бланден / The Amazing Mr. Blunden (1972) BDRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328970.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1918 году вдова военного миссис Аллен и её дети Люси, Джейми и малыш Бенджамин вынуждены жить в убогой квартирке. Незадолго до Рождества таинственный старик мистер Фредерик Персиваль Бланден навещает семью, представившись представителем адвокатской фирмы. Семье сообщают, что есть возможность стать смотрителями заброшенного загородного особняка, который был частично (   Читать дальше...   )Производство: Великобритания, Hemdale, Hemisphere ProductionsЖанр: фэнтези, детектив, семейныйРежиссер: Лайонел ДжеффрисАктеры: Грэм Кроуден, Дороти Элисон, Бенжамин Смит, Стюарт Лок, Дедди Дэвис, Дэвид Лодж, Мадлен Смит, Джеймс Виллерс, Дайана ДорсПеревод: дублированный (Спб 5 канал)Субтитры: английские SDHПродолжительность: 01:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646EB0268C6A15E1BD82A58B865D64C5DB99C5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580989   (328812) от 03.10.2022
-
-Фокус-покус 2 / Hocus Pocus 2 (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три девушки объединяются, чтобы остановить сестёр Сандерсон, которые вернулись в современный Салем 29 лет спустя.Производство: США / Walt Disney Pictures, David Kirschner ProductionsЖанр: фэнтези, мелодрама, комедия, семейныйРежиссер: Энн ФлетчерАктеры: Бетт Мидлер, Сара Джессика Паркер, Кэти Нэджими, Даг Джонс, Уитни Пик, Лилия Бакинхем, Белисса Эскобедо, Ханна Уэддингхэм, Тони Хейл, Сэм РичардсонПеревод: профессиональный многоголосый (TVShows)Субтитры: английские (SDH), чешские, датские и др.Продолжительность: 01:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C451F37A896D6336F5DF72DA1A042DC7702D09F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

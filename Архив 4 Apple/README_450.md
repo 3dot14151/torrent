@@ -1,3 +1,57 @@
+###  Публикация: 1332631   (311850) от 21.10.2019
+
+MetaMovie 2.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы создаете свою собственную библиотеку фильмов в iTunes, тогда вы хотите, чтобы она выглядела идеально. Представьте себе, что у вас есть вся информация о фильме под рукой - актеры, дата выхода, режиссеры, обзор и т. Д. И, конечно же, вам нужны красивые обложки для вашей библиотеки. MetaMovie приносит все это в ваши фильмы.
+
+Просто оставьте свои видеофайлы в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2019Разработчик: Holger JansenПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04F01D5B4CB3FA1AA22AD585BB988754F7A30AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332618   (311826) от 21.10.2019
+
+DMG Canvas 3.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311826.jpg" />
+</div>
+
+
+###  Подробнее
+
+DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15 октября 2019Разработчик: Araelium GroupПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E41C83BE47B0CEF225795AF87DFC2889005420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332551   (311818) от 21.10.2019
 
 Stacks (RapidWeaver plugin) 3.6.9 [En]
@@ -6,7 +60,7 @@ Stacks (RapidWeaver plugin) 3.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311818.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Squash — Web Image Compression 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311736.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Blackmagic Design Fusion Studio 16.1 (build 18) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311305.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Paragon NTFS for Mac 15.5.65 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311141.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Logic Pro X (with Additional Content) 10.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310594.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Forecast Bar 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310204.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ Amadeus Pro 2.6.2 (2219) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309879.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ Paste 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309876.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ FigrCollage 2 Home Edition v2.5.16 (22) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309875.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Swinsian 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309872.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ iA Writer 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309871.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Kodak Preps 7.1.5 (118) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309824.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ iReal Pro 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309790.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ JixiPix Pastello Pro 1.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309721.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309690.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Commander One PRO 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309644.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ OmmWriter 1.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309569.jpg" />
 </div>
 
 
@@ -469,7 +523,7 @@ TechSmith Snagit 2020 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309566.jpg" />
 </div>
 
 
@@ -495,7 +549,7 @@ TechSmith Camtasia Studio 2019.0.5 (109441 )[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309565.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ ON1 Photo RAW 2020 v14.0.0.7975 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309563.jpg" />
 </div>
 
 
@@ -547,7 +601,7 @@ Sketch 59.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309548.jpg" />
 </div>
 
 
@@ -574,7 +628,7 @@ Readiris Corporate 17.1.2 (build 79b) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309545.jpg" />
 </div>
 
 
@@ -600,7 +654,7 @@ OmniGraffle Pro 7 v7.11.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309530.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ Permute 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309505.jpg" />
 </div>
 
 
@@ -638,61 +692,6 @@ Permute: Универсальный конвертер видео, аудио и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A8D58E30D3D30981D4873498F3FC61E592CB716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332840   (309346) от 22.10.2019
-
-Little Big Workshop (2019) [Multi/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что в вашей комнате откуда ни возьмись появился волшебный завод. Тщательно продуманный шедевр, где трудолюбивые работники могут создать все, что угодно клиентам. Изготавливайте резиновые уточки и комоды, дроны и электрогитары, скутеры и другие чудесные товары из различных материалов и продавайте за деньги — валюту, которую можно инвестировать в завод (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 17 окт. 2019Разработчик: Mirage Game StudiosПоддерживаемая ОС: 10.9 +Жанр: Симуляторы, СтратегииЯзык интерфейса: русский, английский, французский, итальянский +
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882CDE95FB0724A1F301E672BB3EE1B74E867EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960292   (309266) от 27.11.2015
-
-CleanMyMac 3.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309266.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 - Программа для очистки Мака
-Очищайте, оптимизируйте и обслуживайте ваш Мак с новым CleanMyMac 3. Он проверяет каждый уголок вашей системы, удаляет гигабайты мусора в два щелчка мышью и контролирует состояние вашего Мака.
-
-CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 ноября 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E289C0FF2B25D5A0CF5D8053A3DDADE241932AA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

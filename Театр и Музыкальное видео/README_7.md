@@ -1,3 +1,81 @@
+###  Публикация: 1087597   (1008249) от 03.07.2021
+
+Мы - цыгане (1986) SATRip (Театр "Ромэн")
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный спектакль, визитная карточка театра «Ромэн». Его авторы – Иван Ром-Лебедев и Николай Сличенко определили жанр этого спектакля – музыкальное народное зрелище, прежде всего потому, что подлинно цыганское искусство выросло из народной стихии, и ею, отмечено. Этой стихией овеян, окрашен, одухотворён каждый эпизод спектакля, пронизанный музыкальным, песенным, (   Читать дальше...   )Производство: СССР, Творческое объединение "Экран", ГостелерадиоЖанр: Фильм-спектакль, театрРежиссер: Николай Сличенко, Николай СубботинАктеры: Наталья Бизева, Павел Бобров, Раиса Демент, Екатерина Жемчужная, Борис Василевский, Николай СличенкоПродолжительность: 01:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080B39BA011A8566F7A42E02BA0436723AE08E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482338   (1007566) от 08.07.2021
+
+Девин Таунсенд: Галактический карантин / Devin Townsend - Galactic Quarantine (Devolution Series 2) (2021) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый виртуальный концерт легенды прог-метала Девина Таунсенда. Запись "Galactic Quarantine - Devolution Series #2" была записана в период с июля по сентябрь 2020 года в различных местах по всему миру. Первоначально транслировалась 5 сентября 2020 года на StageIt.com в качестве шоу, заменившего “Empath Vol 2 European Tour” (отмененный из-за пандемии), и (   Читать дальше...   )Производство: Европа, Sony Music, Warner MusicЖанр: Концертная программа, металл, рокРежиссер: Девин ТаунсендАктеры: Девин Таунсенд, Самус Пауличелли, Уэс Хауч, Диего ТехейдаПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 01:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607806491FD48E1874E23E9F02384684F9BA4B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 39011   (1006548) от 15.07.2021
+
+Есть ли жизнь на Марсе?  (Пётр Мамонов. Моноспектакль)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это  моноспектакль, который Пётр Мамонов играл на сцене театра им. Станиславского в Москве несколько лет. В основе проекта - произведения А.Чехова, Э.Ионеско, В.Ермилова, Л.Рубинштейна, С.Ожегова и самого П.Мамонова.Жанр: моноспектакльРежиссер: Пётр МамоновАктеры: Пётр МамоновПеревод: ОригинальныйПродолжительность: 1ч 33мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3DD8FF3D76F648847C87C1D2D44F9C66B341C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473774   (1006247) от 18.07.2021
 
 Nazareth - Live from Classic T Stage (2005) DVDRip [H264]
@@ -6,7 +84,7 @@ Nazareth - Live from Classic T Stage (2005) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006247.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ Uriah Heep - The Legend Continues (1999) DVDRip [H264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006239.jpg" />
 </div>
 
 
@@ -64,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006211.jpg" />
 </div>
 
 
@@ -93,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006056.jpg" />
 </div>
 
 
@@ -124,7 +202,7 @@ Renaissance - 50th Anniversary - Ashes Are Burning: An Anthology - Live In Conce
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006005.jpg" />
 </div>
 
 
@@ -150,7 +228,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004926.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004797.jpg" />
 </div>
 
 
@@ -208,7 +286,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004654.jpg" />
 </div>
 
 
@@ -237,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004429.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004420.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Bond. Classified (DVD)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004399.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003662.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003638.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003423.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003392.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003142.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003136.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002390.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002144.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002092.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000783.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ URIAH HEEP - Magic Night (THE MAGICIANS BIRTHDAY PARTY 2003) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000415.jpg" />
 </div>
 
 
@@ -627,7 +705,7 @@ DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000377.jpg" />
 </div>
 
 
@@ -638,97 +716,6 @@ DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E8B7A6905967BC2447F0DF3CDA163E701C2C0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597680   (1000357) от 02.01.2013
-
-Песня года. Части №1-2  (2013) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000357.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" главный концерт страны! Участвуют все звезды!
-Каждый раз в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, На любой дороге, в стороне любой Песне ты не скажешь "до свидания", Песня не прощается с тобой…"01 часть:
-01. Тимати и Г. Лепс - Лондон
-02. Буранвские бабушки - Party for everybady
-03. Кристина Орбакайте - Ультрафиолет(   Читать дальше...   )Жанр: КонцертПродолжительность: 2 х ~ 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73924D3A52DA3A846DE4533EBA0F779E4F187347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597390   (1000331) от 02.01.2013
-
-David Garrett: Music Live In Concert (2012) Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000331.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом альбоме скрипач Дэвид Гарретт виртуоз различных музыкальных стилей и эпох вместе устанавливает новые стандарты в универсальности своей скрипки . От Бетховена  до Майкла Джексона, скрипач играет увлекательно с различными элементами из мира классической музыки и поп-музыки. Музыка - слово, которое понятно всем мире. Неудивительно, что Дэвид Гарретт, который превышает в своем искусстве в течение многих лет успешно все границы и разных стилей, жанров и поколений вместе, для своего нового альбома выбрал название,  направленное на универсальность .  Он воспользовался возможностью, чтобы представить своей аудитории игру  на скрипке с совершенно ином свете. Концерт в концерте , он в очередной раз показывает, что он не только чувствует себя комфортно в студии, но и на сцене. С классиков, таких как "We Will Rock You", он открыл концерт, а затем выполняет разнообразные программы полны энергии и истории музыки. Между Бетховеном и работой Пола Маккартни, вы окажетесь в Нирване, Coldplay и Джастин Тимберлейк снова. (   Читать дальше...   )Жанр: : Instrumental CrossoverРежиссер: David GarrettАктеры: David Garrett&BandПродолжительность: 02:04:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597666   (1000317) от 02.01.2013
-
-20 Лучших песен 2012 года (2011) [1080i] HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000317.jpg" />
-</div>
-
-
-###  Подробнее
-
-"20 лучших песен 2012 года"- ежегодная музыкальная премия по итогам Сводного национального чарта. Из тысяч музыкальных композиций выбрать всего двадцать — дело непростое. При составлении национального сводного чарта "Красная звезда" учитывается количество скачиваний песен в Интернете, частота появлений исполнителя на телевидении, ротация на радио и, конечно, народное голосование...01. DJ Smash и Винтаж - «Москва»
-02. Лоя - «Розы темно-алые»
-03. Потап и Настя - «Если вдруг»
-04. Градусы - «Голая»
-05. Юлия Савичева - «Юлия»
-06. Джиган - «Нас больше нет»
-07. Кристина Орбакайте и Дискотека Авария - «Прогноз погоды»
-08. Серебро - «Мама Люба»
-09. Дан Балан - «Лишь до утра»
-10. Эльвира Т - «Все решено»(   Читать дальше...   )Жанр: РорПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

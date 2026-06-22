@@ -1,3 +1,84 @@
+###  Публикация: 416250   (133626) от 30.11.2023
+
+Борис Шергин | Волшебное кольцо и другие сказки (2011) [MP3, Андрей Мартынов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Детская литература.
+Борис Викторович Шергин (1896–1973) писатель и собиратель замечательных произведений устного народного творчества. В 1915 году начал публиковать записи народных рассказов, песен, былин и стал признанным устным рассказчиком. В 1921–33 годах работал в Москве в институте детского чтения. Первый сборник народной поэзии в пересказе Шергина «У (   Читать дальше...   )Жанр: Русская литература для детей, сказки и сказанияИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 03:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33418FCBC52ACBA3A48C2468EFB4A8AD664FDAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681010   (133535) от 01.12.2023
+
+А.Н. Афанасьев | Буря богатырь Иван коровий сын (2011) [MP3, Семён Янишевский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Александра Николаевича Афанасьева стоит в одном ряду с именами выдающихся русских ученых XIX в. Его плодотворная деятельность отличалась замечательной многосторонностью. Он проявил себя как вдумчивый историк культуры и исследователь русской литературы, правовед, этнограф, фольклорист и журналист.
+Особая заслуга принадлежит Афанасьеву – составителю сборника народных (   Читать дальше...   )Жанр: Русская литература для детей, народная сказкаИздательство: Sam-издатПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641CCC354C7376342C2304E7931BAA350FBB3280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681001   (133512) от 01.12.2023
+
+А.И. Асов | Мифы для детей. Перо Гамаюна. Волшебники Китеж-града (2014) [MP3, Евгений Покромович]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Игоревич Асов – писатель, журналист, историк и филолог, один из известнейших исследователей и знатоков древней славянской культуры и хранитель языческих традиций наших далеких предков – славянских ведов.
+Приглашаем наших слушателей в мир сказаний и мифов, повествующих о Волшебной стране. Эта страна населена волшебниками и драконами, русалками, вилами и (   Читать дальше...   )Жанр: Русская литература для детей, мифы, легенды и притчиИздательство: Аудиокнига (АСТ)Продолжительность: 06:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EADA39B9A7269B83F865A6EFEBB49748F5C864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681016   (133384) от 01.12.2023
 
 А.Н. Афанасьев, М. Михайлов | Лучшие сказки для детей (2009) [MP3, Александр Пашутин и др.]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133384.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133166.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133163.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133131.jpg" />
 </div>
 
 
@@ -123,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132896.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132895.jpg" />
 </div>
 
 
@@ -177,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132891.jpg" />
 </div>
 
 
@@ -204,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132888.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132879.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132844.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132840.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132818.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132748.jpg" />
 </div>
 
 
@@ -367,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132746.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132705.jpg" />
 </div>
 
 
@@ -421,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132527.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132525.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132507.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132498.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ VA - Детская Discoтека (2012) [MP3|192 кб/с]<Детские пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132496.jpg" />
 </div>
 
 
@@ -570,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132483.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132412.jpg" />
 </div>
 
 
@@ -624,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132248.jpg" />
 </div>
 
 
@@ -636,89 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDA05919CD7024D51EB7B72A9971787FC63219B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681973   (132143) от 05.12.2023
-
-Лидия Чарская | Золотая коллекция сказок. Король с раскрашенной картины. Три слезинки королевны (2007) [MP3, Галина Лебедева, Вячеслав Ковалёв]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Золотая коллекция сказок.
-Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
-Эти сказки о добре, любви к ближнему, сострадании, бескорыстии. В её героях есть нечто светлое, благородное, чистое, воспитывающее самые высокие понятия о дружбе, верности и чести.Жанр: Русская литература, классика, сказкаИздательство: ТВИК-ЛИРЕКПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4C7975781AC16AEA2B10C01418FCE6A76AFBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681975   (132139) от 05.12.2023
-
-Лидия Чарская | Записки маленькой гимназистки (2010) [MP3, Юлия Хамитова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
-Аудиокнига рассказывает увлекательную и поучительную историю о молодой девушке, приехавшей в Петербург учиться в гимназии. Героине сложно в новой среде, но душевная доброта помогает ей справиться с трудностями, подружиться с одноклассницами, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «Звуковая книга»Продолжительность: 04:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE74BC4A1B5C10160F4B10BAB37A3E7AEF28CF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392416   (131981) от 05.12.2023
-
-Лидия Чарская | Смелая жизнь (2009) [MP3, Лидия Леликова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Архив мировой литературы.
-Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
-Причудливые, полные интриг приключения героев повестей Чарской переплетаются с их высокими, благородными чувствами и поступками. В том мире, который создала Лидия Чарская, негодяям и мерзавцам не (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АрМирПродолжительность: 09:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D20B9C558831F60FF3FC7F8D35D3F3987556D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

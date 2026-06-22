@@ -1,3 +1,55 @@
+###  Публикация: 1660229   (189139) от 13.09.2023
+
+Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidrow
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающая приключенческая игра, основанная на замечательной серии графических романов Girl Genius™ авторов Фила и Кайи Фолио. Откройте для себя отмеченный наградами фэнтезийный мир «Girl Genius™»! Познакомьтесь с историей Агаты Гетеродин, пока она путешествует по враждебным коридорам, катакомбам и кухням дома своих предков, замка Гетеродин. Как Потерянная наследница (   Читать дальше...   )Тип издания: SceneРазработчик: Rain GamesЖанр: Экшны, ПриключениеЯзык субтитров: Английский, НорвежскийЯзык интерфейса: Английский, Норвежский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661140   (188697) от 14.09.2023
+
+Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над Верхнелевоземьем сгущаются тени, и Гномье королевство под угрозой. Полчища монстров на подходе, и они готовы погрузить весь мир в пучину трезвости. Дайте отпор супостатам и защитите живительную жидкость, которая бежит по трубам родной пивоварни. Хватай молоток, наполняй кружку до краев - и марш за дело. Защитим родное пиво. Гномы не привыкли наблюдать за битвами (   Читать дальше...   )Тип издания: LicenseРазработчик: Dama Dama GamesЖанр: Экшны, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5145399FDD56A1BDF15FBD9DCDFECF751A7EDC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661535   (188472) от 15.09.2023
 
 Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +58,7 @@ Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188472.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Boomerang X (2021) [Ru/Multi] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188333.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187902.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187606.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187051.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Suicide Guy (2021) [Ru/Multi] (1.0) Scene Plaza [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187047.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Suicide Guy: Sleepin' Deeply (2018) [Ru/Multi] (1.30) Scene HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187037.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Suicide Guy: The Lost Dreams (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186969.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186144.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186129.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Shank (2010) [Ru] (1.3) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185765.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185761.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183464.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182201.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182112.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181847.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Warhammer 40000: Shootas Blood & Teef (2022) [Ru/Multi] (1.0.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181279.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179523.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178885.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Leisure Suit Larry - Wet Dreams Don't Dry (2018) [Ru/Multi] (1.2.0.49b) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176940.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176392.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175522.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Worms Armageddon (1999) [Ru/Multi] (3.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175365.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174369.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Starri - это ритм-игра, управляемая телом, в кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E30AEB4262C99E7BD13DAE65D7F7F12E1D524C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085389   (173726) от 21.12.2016
-
-OmniBus (2016) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра OmniBus - это игра с суперсовременным физическим движком, посвящённая самому мощному автобусу во вселенной, который не может ни остановиться, ни замедлиться из-за причин, непостижимых для обычного человеческого разума. Этому автобусу предстоит выполнять самые разные поручения, не заваливаясь на бок и не переворачиваясь даже на самых безумных скоростях.Тип издания: LicenseРазработчик: Buddy Cops, LLCЖанр: Arcade, Racing, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8905952B3F890CD6EF417447EE308F93EB6760C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827002   (173449) от 20.10.2025
-
-Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year Edition]
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зомби напали на ваш дом, и ваш единственный способ выжить — посадить арсенал из растений! Будучи вооруженным иноземными растениями, истребляющими зомби, вроде горохострела и вишневой бомбы, вам потребуется очень быстро мыслить и сажать растения еще быстрее, чтобы любой ценой не дать зомби дойти до вашего дома. Заходящее солнце, ползучий туман и бассейн вкупе с пятью (   Читать дальше...   )Тип издания: RepackРазработчик: PopCap GamesЖанр: Стратегии, Выживание, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E04385706A0F4CC835BD98E66BC4136092253E
 ```
 
 https://mybot314.ru/tekegram_catalog/

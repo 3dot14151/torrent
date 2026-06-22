@@ -1,3 +1,29 @@
+###  Публикация: 1376642   (422431) от 27.09.2020
+
+Houkago Teibou Nisshi / Дневник послешкольного пирса [2020, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хина Цуруги переезжает в прибрежный город, чтобы поступить в старшую школу. Прогуливаясь по набережной, она встречает сэмпая Куроиву, которая приглашает Хину вступить в рыболовный клуб. Хина — домоседка и ей не нравятся морские существа, но она всё же пробует ходить на рыбалку вместе с тремя другими старшеклассницами и ест их улов. Постепенно Хина начинает меняться (   Читать дальше...   )Жанр: комедия, повседневность, рыбалкаРежиссер: Окума ТакахаруЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7A44E9157ED460532D434C8E8154B88212822B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395529   (422294) от 27.09.2020
 
 Deca-Dence / Дека-Данс [2020, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Deca-Dence / Дека-Данс [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422294.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Rifle is Beautiful | Chidori RSC | Винтовка прекрасна [2019, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420448.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Saint Seiya: The Lost Canvas - Meiou Shinwa | Рыцари Зодиака: Ут�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420224.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420223.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Lapis Re:Lights | Лазурные огни [2020, TV, 12 из 12 эп.] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420085.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420078.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420077.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Owari no Seraph | Seraph of the End | Последний Серафим [2015, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420047.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Mitsuwano [2014, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420040.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Shikioriori | Flavors of Youth | Ароматы юности [2018, Movie] WEB-D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420038.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, MV, 4] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419858.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 14 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419702.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Ongaku Shoujo (2018) / Музыкальные Девчонки [2018, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419701.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] WEB-DL 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419497.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418207.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418203.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418189.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417830.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardus
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417541.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Arslan Senki: Fuujin Ranbu | The Heroic Legend of Arslan: Dust Storm Dance | С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415893.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Arslan Senki Gaiden | Сказание об Арслане: Происхожде
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415884.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Arslan Senki | The Heroic Legend of Arslan | Сказание об Арслан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415707.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Souten no Ken: Regenesis | Кулак синих небес: Перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415340.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Aguu: Tensai Ningyou | Агу: Куклы-гении [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415160.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Kekkai Sensen | Blood Blockade Battlefront | Фронт кровавой бло�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415115.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Kekkai Sensen | Blood Blockade Battlefront | Фронт кровавой бло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0AC32D0D0110392514F519FA6D16844333B5405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236505   (414987) от 02.10.2018
-
-High Score Girl | Девчонка не промах [2018, TV, 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414987.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в 1991 году, когда 2D-файтинги пользовались широкой популярностью среди молодежи. Главный герой – Харуо Ягучи, ученик шестого класса, чья жизнь сосредоточена только на видеоиграх. Он ничем не привлекательный парень, вовсе не обладающий чувством юмора, не имеющий друзей среди сверстников. Единственное, что получается у него лучше всего – убивать (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: комедияРежиссер: Ямакава ЁсикиПеревод: RisensTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE7167302ED0D0009E25A7D07450401356F989
 ```
 
 https://mybot314.ru/tekegram_catalog/

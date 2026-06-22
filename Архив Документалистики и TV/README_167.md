@@ -1,3 +1,32 @@
+###  Публикация: 1296609   (610245) от 18.04.2019
+
+Футбол. Лига Чемпионов УЕФА 2018-2019. 1/4 Финала. 1-й матч. Ливерпуль (Англия) — Порту (Португалия) (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610245.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 апреля 2019, вторник. 22:00 МСК
+Лига Чемпионов УЕФА 2018-2019. Плей-офф
+1/4 Финала.1-й матч.
+Ливерпуль (Ливерпуль, Англия) — Порту (Порту, Португалия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1283291EDF9D2E49B9F2360CA67B8EB17D5CD037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296615   (610138) от 18.04.2019
 
 Футбол. Лига Чемпионов УЕФА 2018-2019. 1/4 Финала. 1-й матч. Манчестер Юнайтед (Англия) — Барселона (Испания) (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610138.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609990.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609989.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609986.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609876.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ Monster Energy NASCAR Cup Series 2017. 16-й Этап. Sonoma-Save Mart 350 (25.
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609865.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ NG: Чачапоя – загадка исчезнувшей цивилизац�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609591.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ Moto GP. Сезон 2017. GoPro Motorrad Grand Prix Deutschland. Этап 9. Г�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609474.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609328.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ NG: Загробный мир Древнего Египта / Egyptian Secrets o
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609142.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ NG: Суперсооружения: Мегазаводы. Поезд "Alstom" / 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609061.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609022.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608927.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608923.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608753.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608515.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608288.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607885.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607861.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607860.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607857.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607622.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ NG: По следам исчезающих животных (4 серии из 4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607588.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607525.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607506.jpg" />
 </div>
 
 
@@ -678,32 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D72E4ED6A3977A111CEA168218173E2ADC1AEECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525661   (607396) от 21.07.2012
-
-Каникулы в Мексике - 2. Ток-шоу. Выпуск №20 (2012.07.21) (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельно по субботам ток-шоу по мотивам самых яркий событий прошедшей недели на мексиканской вилле.Жанр: ТВ-ШоуПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A4800D5900555896B038F961D82F837A7ECEC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

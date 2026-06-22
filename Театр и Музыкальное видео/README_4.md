@@ -1,3 +1,55 @@
+###  Публикация: 64632   (1030591) от 18.02.2021
+
+VA «20 Years Of Nuclear Blast» 2007 2DVD
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двойной DVD, выпущенный в честь 20-летнего юбилея легендарной немецкой звукозаписывающей компании Nuclear Blast и содержащий почти шесть часов видео! На дисках вы найдете 70 клипов и историю лейбла в четырех частях, рассказанную фронтменом Destruction Sсhirmer'ом. Также вы обнаружите массу интересного дополнительного материала. И конечно, о своей компании вам расскажет (   Читать дальше...   )Жанр: VARIOUSАктеры: NIGHTWISH, DIMMU BORGIR, IN FLAMES, HYPOCRISY, IMMORTAL, BLIND GUARDIAN, NILE, CHILDREN OF BODOM, HAMMERFALL, AMORPHIS, CLAWFINGER, DIE APOKALYPTISCHEN REITER, KATAKLYSM, SONIC SYNDICATE, DESTRUCTION, SOILWORK, EXODUS, CHIMAIRA, THERION, MESHUGGAH, ANTHRAX, EDGUY, AFTER FOREVER, EPICA, SONATA ARCTICA, WINTERSUN и другие.Перевод: ОригинальныйПродолжительность: 350:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94F2C41810C38151AAB68AB0C4100DF14E2C65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450075   (1029331) от 24.02.2021
+
+Квартирник НТВ у Маргулиса. Группа КняZz (22.02.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная в 2011 году группа «КняZz» собрала воедино талантливых музыкантов и единомышленников: сегодня это настоящий творческий тандем во главе с бывшим участником «Короля и Шута» Андреем Князевым. Их дебютный макси-сингл «Человек-загадка» успешно стартовал в чартах, а одноименный трек стал визитной карточкой коллектива. Но настоящая популярность к ним пришла после (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A319947B7ED6DB8186DA03F962A323BC2BA22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449941   (1028835) от 27.02.2021
 
 Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
@@ -6,7 +58,7 @@ Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028835.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028702.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028161.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028152.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028118.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Alice Cooper - The Detroit Stories / Alice Cooper - The Detroit Stories (2021) D
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028023.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027796.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027530.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Accept - Герои мирового рока в честь 25-летия АО �
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027509.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027454.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027337.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026866.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Power Tale - Огненный Бог Марранов (2021) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026556.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026461.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026404.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Dua Lipa - We're Good (2021) WEB-DL [1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025596.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025420.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025302.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Within Temptation - Videos and Live - Essentials (Compilation) (2021) Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024853.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023956.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ Alice Cooper - The Detroit Stories (2021) DVDRip [H.264/360p] <Hard Rock>
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023645.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023582.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ The Beatles: Мне следовало быть осторожнее / I Should 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023106.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022912.jpg" />
 </div>
 
 
@@ -630,61 +682,6 @@ A Hard Day's Night - первый битловский фильм, снятый 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19A75C3F454FA38BDD9EBE74FC9B20CB4E5D17AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459013   (1022894) от 03.04.2021
-
-Хранители (1991) TVRip [H.264] (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионный спектакль Ленинградского телевидения, поставленный по мотивам первой книги трилогии Властелина колец: Братство кольца в переводе Муравьёвой и Кистяковского. Эта постановка интересна тем, что в ней не забыли про Тома Бомбадила, которого безжалосто выкинул из сюжета Джексон. Спектакль к тексту гораздо ближе, чем фильм Джексона. В нём отображены все важные (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Спектакль, фэнтези, экранизацияРежиссер: Наталья СеребряковаАктеры: Георгий Штиль, Виктор Костецкий, Валерий Дьяченко, Вадим Никитин, Владимир Матвеев, Сергей Шелгунов, Лилиан Малкина, Сергей Паршин, Регина Лялейките, Александр Саюталин, Лариса Дмитриева, Николай Буров, Андрей Тенетко, Евгений Соляков, Андрей Толшин, Евгений Баранов, Елена Соловей, Андрей РомановПродолжительность: 00:50:02 + 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883FA5A057229ED5690AD742A4ADFE8A6C98CB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392170   (1022722) от 04.04.2021
-
-Коррозия металла - Клипы (1996-2020) WEBRip [H.264/720p/1080p] <Thrash Metal> (15 штук)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Bad Girls Train
-002 - Russian Vodka
-003 - Голая Марина
-004 - Джек-потрошитель(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E110C29581627D65C5D332B9EB557E55228BD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8701.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_553.jpg" />
 </div>
 
 

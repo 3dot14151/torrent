@@ -6,7 +6,7 @@ RIOT: Civil Unrest (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556017.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Toki (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554984.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Pillars of Eternity v3.7.0.1318 (2015) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554613.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Red Faction I (2001) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554245.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Red Faction II (2003) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554237.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Nova Drift (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554133.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Seeds of Resilience (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553495.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Need for Speed: Most Wanted (2005) [Ru] [OS X WineSkin]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553381.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Journey of a Roach v.1.00.023 (2013) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552747.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Men of War: Assault Squad 2 Deluxe / В тылу врага: Штурм 2 (2014)
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551926.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Total War: SHOGUN 2 Collection (2014) [En/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551924.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Total War: Rome II Pirates and Raiders (2014) [Ru] [OS X WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551917.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dishonored GOTY (2012) [Ru] [OS X WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551000.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AIRHEART - Tales of broken Wings v.1.0 (24 июл. 2018) [Multi] [macOS Native g
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550482.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Little Big Adventure 2: Twinsen's Odyssey (22.08.2016) [Multi] [OS X WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548975.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Banner Saga 3 v2.55.80.22488 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547885.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Pan-Pan v.1.0.2 (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546304.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Star Wars: Dark Forces (1995) [Ru] [macOS DOSbox]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545139.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Yuppie Psycho (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545106.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Battlezone 98 Redux (2016) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543706.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Chook & Sosig: Walk the Plank v 1.95 (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543459.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Agatha Christie's The ABC Murders v.1.02 (2016) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541818.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ IMMURE: Part One (2019) [En/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541633.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ The Incredible Adventures of Van Helsing III v. 1.0.5 (2015) [Multi] [OS X Nativ
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540690.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MIDDLE-EARTH: Shadow of Mordor (2015) [Multi] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538370.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Orwell v1.2.6771.29757.22335 (2016) [En] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536714.jpg" />
 </div>
 
 

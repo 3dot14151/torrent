@@ -1,239 +1,3 @@
-###  Публикация: 1567523   (472117) от 03.08.2022
-
-Agro Measure Map Pro 8.0.6_67 Mod by Katafrakt [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agro Measure Map Pro - приложение для более удобного и комфортного применения возможностей, что предоставляет сервис Google Maps. Приложение позволяет быстро и просто измерять различные расстояния, периметры и площади с лазерной точностью! При этом даже учитывается кривизна земной поверхности. Используйте данное приложение для маленьких или больших площадей.Тип издания: PaidРелиз состоялся: 30.09.2021Разработчик: Blue Blink One, SLПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E859ACE8C26FCDA9321649440A93A534B3532CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567555   (472112) от 03.08.2022
-
-Wallpaper Changer Premium 4.9.3 Mod by Kirlif' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение позволяет мгновенно сменить ваши обои одним щелчком по виджету. Кроме того, вы можете использовать таймер для автоматического изменения обоев через заданное время. Изображения могут быть легко добавлены в список с помощью родной галереи. Для смены значка виджета нажмите кнопку меню в приложении и выберите "Настройки". Приложение оптимизировано (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.10.2021Разработчик: j4velinПоддерживаемая ОС: Android 4.0.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C9FCCA246DCEDB1A8793E77C36DFB9D7B60F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567585   (472106) от 03.08.2022
-
-AudioRelay Pro: стриминг аудио 0.24.9 + Сервера для Windows & Linux Mod by KirIif' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472106.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioRelay: стриминг аудио - приложение, что способно с лёгкостью превратить мобильный гаджет в мобильную колонку взаимодействующую со стационарным устройством или же полноценный микрофон. В любом случае качество и удобство порадует всех пользователей, что столкнулись с проблемой спешного нахождения того или иного гаджета для продолжения своей работы. Лёгкость подключения, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 03.05.2022Разработчик: Asapha HalifaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3E46EDD2DF407C0AD9B727E4A2412DF53CEB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245063   (471413) от 06.09.2018
-
-Карты для iGo 2018.Q2 HERE (NQ, NavTeq) Европа [Ru/Multi]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471413.jpg" />
-</div>
-
-
-###  Подробнее
-
-iGO R3 Here (NavTeq) Европа 2018.Q2 (.fbl, .fda, .fjw, .fjv (Russia), .fpa, .fsp, .ftr, .hnr, .poi, .3dl, .3dc, .spc, .ph)Релиз состоялся: 23.05-15.08.2018Разработчик: HERE (NavTeq)Поддерживаемая ОС: iGO8/Primo/MyWay/Amigo (Android, WinCE, WM, iOS)Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D96640D597DE825B553E4A1E67FBA642963A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567754   (470196) от 04.08.2022
-
-Lesser AudioSwitch 2.7.2 Mod by KirIif' [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lesser AudioSwitch - это практическое приложение, которое предлагает пользователям Android возможность изменять аудиовыход для переключения между наушниками, динамиками или любым другим выходом, включая USB и Bluetooth. В то же время вы также можете изменить микрофон или полностью отключить динамики на большинстве устройств. Еще одна особенность этого приложения (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.11.2021Разработчик: RoughyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский, Немецкий, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90F36B3DBBDEF59B9401BDFF2084120FC925423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567787   (470077) от 04.08.2022
-
-9GAG: Funny GIF, Meme & Video 6.130.51 (26588) Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470077.jpg" />
-</div>
-
-
-###  Подробнее
-
-9GAG: Funny Gifs, Pics, Memes & Videos for IGTV - крутой развлекательный проект, что предоставляет пользователям доступ к огромному миру наполненному разнообразнейшим увеселительным контентом. Гифки, мемы, картинки, видеоролики, рассказы и всё прочее, что с лёгкостью повышает настроение и может заставить рассмеяться. При этом вся механика больше напоминает соцсеть (   Читать дальше...   )Тип издания: Pro+Релиз состоялся: 17.07.2022Разработчик: 9gagПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985FA921102DAFCBC7496CF3558833BDDF8B12D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567808   (470076) от 04.08.2022
-
-Lesser AudioSwitch 2.7.2 Mod by KirIif' [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lesser AudioSwitch - это практическое приложение, которое предлагает пользователям Android возможность изменять аудиовыход для переключения между наушниками, динамиками или любым другим выходом, включая USB и Bluetooth. В то же время вы также можете изменить микрофон или полностью отключить динамики на большинстве устройств. Еще одна особенность этого приложения (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 11.11.2021Разработчик: RoughyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8DB1DF979BECD9601EC072CE1A1B47B99B031F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567751   (470053) от 04.08.2022
-
-Prof Reminder 3.3.5 (Premium) [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напоминание о пропущенных звонках и сообщениях, с поддержкой профилей, гибко настраиваемое.
-Особенно полезна если у вас телефон без светодиодного индикатора.Тип издания: PremiumРелиз состоялся: 10 мар. 2022 г.Разработчик: danila_ruПоддерживаемая ОС: Android 4.3 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731B8FD0CC75AA0725F3CFD302CD2DF51ADD6BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824261   (468595) от 23.09.2014
-
-Garmin: Карта Башкирии 2014.50 (июль 2014) <Ru>
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карта Башкирии может быть установлена на автомобильные и туристические навигаторы Garmin, морские и авиационные картплоттеры Garmin, автонавигаторы других производителей с функцией выбора альтернативной навигационной программы, смартфоны и коммуникаторы с Windows Mobile/Symbian или на карту памяти SD/microSD.
-На карте есть вся Башкирия, а так же территории соседних областей: часть Татарстана и всё Нижнекамское водохранилище, Челябинская область до Магнитогорска и Златоуста, юг Удмуртии, Пермского края и Свердловской (   Читать дальше...   )Тип издания: пираткаРазработчик: Сергей БогдановПоддерживаемая ОС: GarminЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5657B8C3ADF127B214EB0BC412B62657F8538A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940368   (468194) от 24.09.2015
 
 OziExplorer WinCE v2.41 [Multi\RU] - Навигация по растровым картам
@@ -242,7 +6,7 @@ OziExplorer WinCE v2.41 [Multi\RU] - Навигация по растровым 
 >>Навигация для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468194.jpg" />
 </div>
 
 
@@ -268,7 +32,7 @@ Omnia Music Player / Музыкальный плеер Omnia 1.5.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468009.jpg" />
 </div>
 
 
@@ -294,7 +58,7 @@ Darker (Screen Filter) 4.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466006.jpg" />
 </div>
 
 
@@ -320,7 +84,7 @@ Mantis Gamepad Pro 1.3.6b Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465913.jpg" />
 </div>
 
 
@@ -346,7 +110,7 @@ WinZip – Zip UnZip Tool 6.4.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465898.jpg" />
 </div>
 
 
@@ -372,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465236.jpg" />
 </div>
 
 
@@ -400,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464959.jpg" />
 </div>
 
 
@@ -426,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464134.jpg" />
 </div>
 
 
@@ -452,7 +216,7 @@ Twilight Pro - Фильтр синего света 12.17 Mod by Balatan [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464076.jpg" />
 </div>
 
 
@@ -478,7 +242,7 @@ Advanced Download Manager v14.0.13  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463815.jpg" />
 </div>
 
 
@@ -504,7 +268,7 @@ Free Ringtone Maker / Создатель Рингтона 1.01.41.0613 Mod by Mi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461812.jpg" />
 </div>
 
 
@@ -530,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461811.jpg" />
 </div>
 
 
@@ -556,7 +320,7 @@ Wombo: Make your selfies sing 3.1.1 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461804.jpg" />
 </div>
 
 
@@ -582,7 +346,7 @@ Anews: все новости и блоги 4.3.15 Mod by SurvivalHorro [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461799.jpg" />
 </div>
 
 
@@ -608,7 +372,7 @@ Cool Q Launcher 8.5.1 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461795.jpg" />
 </div>
 
 
@@ -634,7 +398,7 @@ Magic Book: Match 3 Story v1.1.13 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460672.jpg" />
 </div>
 
 
@@ -660,7 +424,7 @@ AirScreen - AirPlay & Cast & Miracast & DLNA v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459319.jpg" />
 </div>
 
 
@@ -671,6 +435,244 @@ AirScreen является самым передовым беспроводны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CABC3427EAB9CC5472FB4B6FB25CF2F7A9CEB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246885   (458956) от 12.09.2018
+
+GymUp v10.17 Pro [Ru/En] - дневник тренировок
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458956.jpg" />
+</div>
+
+
+###  Подробнее
+
+GymUp - это дневник тренировок для тех, кто нацелен на результат и хочет повысить эффективность своих тренировок. Подбирай программу тренировок, заноси результаты, наблюдай прогресс!Тип издания: Пиратка (Разблокирована Pro)Релиз состоялся: 13.08.2018Разработчик: Iron LabПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AB65F3036EF96908077597A6F5C48E369753D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246837   (458839) от 12.09.2018
+
+Eternal Calendar (Вечный календарь) 2018.09.10 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта программа может показать месяц и день начиная с 1600 года.
+Также восточный гороскоп (Китайский), знак зодиака, камень и планету-покровитель по знаку зодиака.Тип издания: Лицензия (Free)Релиз состоялся: 10.09.2018Разработчик: GoldRockProПоддерживаемая ОС: Android 4.1 - 7.1Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37035C23D778A1DAF9DAB9EF764A5F0A0133DF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143678   (458825) от 12.09.2018
+
+Universal Diary / Универсальный дневник v2.29 Unlocked [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите вести дневник личных мыслей и переживаний или учет финансов или гениальных идей или может историю поездки в фотографиях и расходах? А может все сразу? Все это можно сделать используя универсальный дневник. Этот дневник может использоваться как: журнал путешествия, журнал диеты, классический личный дневник, финансовый дневник, обычный блокнот и много других (   Читать дальше...   )Тип издания: Пиратка (Unlocked)Релиз состоялся: 10.09.2018Разработчик: SPB AppsПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6712E879B1AB5075D11D58F54D5B3853C1422849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569103   (455556) от 11.08.2022
+
+Когда ловить рыбу v3.2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ловить рыбу - это практичный помощник для любого рыбака, который знает, что улов-это не только вопрос удачи. На основе данных о местонахождении, погоде, сезоне и др., производится расчетный прогноз активности пресноводных рыб и условий их ловли.Тип издания: PremiumРелиз состоялся: 24 июл. 2022 г.Разработчик: Miroslav CapkovicПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EB01705207BD1CD61D5F0CFD9E1774DD3C52C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569209   (453347) от 12.08.2022
+
+Гадание на рунах v1.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руны - это древнейшая магическая система, представляющая основные силы природы. На протяжении многих столетий руны использовались для предсказаний и принятия важных решений. Как и гадание на игральных картах или гадание на Таро, руны всегда очень точно предсказывают будущее и помогают выбрать правильную линию поведения.Тип издания: FullРелиз состоялся: 6 апр. 2022 г.Разработчик: Xeen SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FCEA7DA73E4908CB74DB9777DB2E45C68BE89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569282   (453334) от 12.08.2022
+
+XMusic - Музыкальный плеер 2.8.1.90 Mod by @Mod_AppStore [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453334.jpg" />
+</div>
+
+
+###  Подробнее
+
+XMusic - это великолепно исполненный Музыкальный плеер для Android. Музыкальный плеер с отличным эквалайзером, поддержкой всех форматов и стильным пользовательским интерфейсом обеспечит вам наилучшие условия прослушивания музыки. Просматривайте все песни на устройстве Android.Тип издания: PremiumРелиз состоялся: 21.11.2021Разработчик: InShot Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA668D7765E0DA1469B98E5ACAD636D3FE3F45F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942509   (452842) от 01.10.2015
+
+Оффлайн карты всего мира к программе MAPS.ME – Offline Map & Routing (Акт. Сентябрь 2015) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка оффлайн карт всего мира для программы MAPS.ME – Offline Map & Routing! Эта программа для любителей путешествовать, с детальными картами всего мира с оффлайн поиском. Чувствуйте себя уверенно в любом путешествии с картами MAPS.ME! Вы всегда будете знать, где вы сейчас находитесь, где ближайший ресторан или банкомат, магазин или автобусная остановка. И (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 26.09.2015Разработчик: MapsWithMe GmbHПоддерживаемая ОС: Android 2.1+ и вышеЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F0CA216AE49D549D79F8540DF630CB01831C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013267   (452356) от 08.10.2016
+
+Total Media Player v1.7.7 Pro [Ru/Multi] - многофункциональный медиа проигрыватель под Android
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проигрывание в любом формате медиа-файлов: MP4, MKV, M4V, MOV, FLV, AVI, RMVB, RM, TS, TP, торрент, Web, m3u8, M3U, MP2, WAV, MP3, AAC, VOB и многие другие.Тип издания: ПираткаРелиз состоялся: 08.10.2016Разработчик: ClumixПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE569977A22D204B0F667CB4911B2FDA36EEEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321988   (452205) от 27.08.2019
+
+Simpler Premium v2.18.210 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой помощник в изучении английского языка.
+
+…Правила английского языка в доступной и простой форме
+…Запоминание новых слов(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 2017Разработчик: ZengaltПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FE0FC7704E768805B754CB5CC52C71EE86BB62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1504447   (812208) от 23.10.2021
+
+Такая любовь (1982) TCRip [H.264/1080p] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шуточный сюжет про инопланетянина, влюбившегося в земную девушку и решившего остаться на Земле.Производство: СССР / Грузия-фильмЖанр: рисованная анимация, мультфильм, короткометражкаРежиссер: Константин МацаберидзеПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26ECEC1482290CCE22E756DE288BCA421BF2CBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505094   (808083) от 25.10.2021
+
+Я не курю (1987) WEBRip [H.264/1080p] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808083.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том, как заяц-чемпион растерял спортивность, начав курить.
+По заказу Министерства Здравоохранения СССРПроизводство: СССР / ЛеннаучфильмЖанр: мультфильм, короткометражкаРежиссер: Юрий СоловьёвПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2753AD560D5D6519760301E71738998587FA5670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505314   (806007) от 26.10.2021
+
+Маугли (1973) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая сказка о человеческом детеныше, попавшем в волчью стаю. Постепенно на наших глазах малыш Маугли превращается в могучего человека, которого не без оснований боится тот, кто не смог его убить в детстве. Он вместе с другими волчатами познает мир, взрослеет в гармонии с природой, изучает ее мудрость, учится дружить по-настоящему и соблюдать неприкосновенные (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, приключения, детский, семейныйРежиссер: Роман ДавыдовАктеры: Степан Бубнов, Людмила Касаткина, Юрий Хржановский, Лев Любецкий, Сергей Мартинсон, Александр Назаров, Люсьена Овчинникова, Анатолий Папанов, Юрий Пузырев, Владимир УшаковПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C95B2FF5C68FDFCFC900D052DF2606324B58D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505776   (802733) от 28.10.2021
+
+Чудо без чудес (1973) WEB-DLRip [H.264/1080p-LQ] [Remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока хозяев не было дома, у соседей сверху прорвало батарею. Спасаясь от потопа, мебель побежала на улицу, но тут шкаф крикнул, что может всех спасти...Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир ПолковниковПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A488CAB778C7A54CD70F0BDD7E8F879D4848D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506074   (801564) от 29.10.2021
 
 Снегурка (1969) WEBRip [H.264/1080p-LQ] [Remastered AI]
@@ -6,7 +111,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801564.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801043.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800977.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799991.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799454.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799452.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799441.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798397.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797456.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797396.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796810.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792020.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780155.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780014.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779339.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778770.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766085.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764254.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763712.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762288.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762208.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762105.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FB224F34039D7F1380895F7527192F01CA738D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522037   (761517) от 05.01.2022
-
-Щелкунчик (1973) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка, убираясь под елкой, находит игрушку в виде Щелкунчика для орехов. Щелкунчик оживает и рассказывает ей грустную историю о своём проклятии и коварной королеве мышиного царства. Вдруг откуда-то из угла комнаты слышится странный звук. По стене пробегают трещины, и из пролома появляется мышиный царь. Он стал большим и страшным, но и сам Щелкунчик возмужал (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, короткометражка, семейныйРежиссер: Борис СтепанцевСубтитры: отсутствуютПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128918B7D8BFBDCF3545226A759BC04801FAC173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395926   (751300) от 12.07.2020
-
-Остров сокровищ (1988) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
-
->>След.
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шхуна «Испаньола» бороздит морские просторы в поисках острова, на котором спрятаны легендарные сокровища капитана пиратов Флинта. На корабле зреет заговор. Разбойники во главе с одноногим Джоном Сильвером, кажется, близки к цели…Производство: СССР / КиевнаучфильмЖанр: Детский, Приключения, Комедия, Музыкальный, Мультфильм, Рисованная анимацияРежиссер: Давид ЧеркасскийСубтитры: отсутствуютПродолжительность: 01:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C35DBCEBF5ED1CE59733EF569C3CD6C3B3689D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523669   (749415) от 12.01.2022
-
-Дядюшка Ау (1979) DVDRip 1080p [H.264/1080p-LQ] [Remastered Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлая, добрая и в меру поучительная сказка по мотивам повести финского писателя Ханну Мякеля "Дядюшка Ау". "Осенью на севере темнеет рано... так рано что в лесу совсем не рассветает и трудно понять что сейчас день или ночь". Вот тут и живет "Дядюшка Ау - зловещий и страшный, правда очень маленький. Каждый вечер он отправляется на работу. (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: МультфильмРежиссер: Иосиф Доукша, Майя Бузинова, Мария Муат, Лидия СуриковаАктеры: Татьяна Решетникова, М. Лобанов, Владимир Ферапонтов, Василий Ливанов, Александр Граве, Светлана Крючкова, Анатолий Щукин, Бернгард ЛевинсонПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:19:01 + 00:18:12 + 00:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9064B9D54A2CAA7ED2C5155AC7E5DAEE54B9B6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523870   (747976) от 13.01.2022
-
-Контакт (1978) WEBRip [H.264/1080p-LQ] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747976.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о встрече человека и инопланетянина, который пытается изучить Землю посредством имитации увиденного.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир ТарасовСубтитры: ОтсутствуютПродолжительность: 00:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182CE251819CDE5D2669A5422568FA954BD29B83
 ```
 
 https://mybot314.ru/tekegram_catalog/

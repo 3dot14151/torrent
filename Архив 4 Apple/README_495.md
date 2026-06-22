@@ -1,3 +1,56 @@
+###  Публикация: 1621005   (245148) от 23.03.2023
+
+Wondershare Filmora for Mac  12.1.3  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2023Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C426F3E0B9F0697380BBCF4062C745F6B0B26F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609274   (245146) от 02.02.2023
+
+Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D049E3688580AACCAB72A5B3E41EA63E5582CF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522967   (245132) от 09.01.2022
 
 Hides 5.6.1 [En]
@@ -6,7 +59,7 @@ Hides 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245132.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ WonderPen 2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245123.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Aiseesoft Mac Screen Recorder 2.1.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245102.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Hej Stylus! v3 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245098.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Elmedia Video Player Pro 8.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245096.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ PullTube 1.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245084.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ FSNotes 5.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245070.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ djay - DJ App & AI Mixer 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245068.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Keep It 1.11.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245037.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ BusyContacts 1.6.4 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245028.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ RAW Power 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245026.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ VideoDuke 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245018.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ URL Manager Pro 5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245017.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ DiskCatalogMaker 8.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245008.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ BackupLoupe 3.5.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244995.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Librarian Pro 4 v4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244991.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ CryptoEdit 2 v.2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244990.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Ammonite 1.22.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244987.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ EdgeView 3 v3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244965.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ CleanMyMac X 4.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244961.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Foldor 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244927.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ Nitro PDF Pro 13.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244921.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ PatterNodes 1.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244834.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ Fission 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244684.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ Fission 2.8.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285093F0496DE91484F983F4461500EBB0A8F5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530809   (244661) от 12.02.2022
-
-Infuse PRO 7 v7.3.4 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1155B2E5134ACBD89BD4F326ED8A0FD53F118A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452543   (244633) от 06.03.2021
-
-Multitouch 1.24.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2021Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886D6D8DF863BC3E87255A56C1D4C48998B606A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

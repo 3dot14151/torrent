@@ -1,3 +1,107 @@
+###  Публикация: 1683386   (128555) от 10.12.2023
+
+Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет» (2019) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B7DB2D2A3530B34A539054BB6997A603ACEF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683387   (128551) от 10.12.2023
+
+Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Иверская» (2022) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист Пресвятой Богородице в честь иконы Ее «Иверская».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683379   (128534) от 10.12.2023
+
+Благовест | Акафист святителю Митрофану, епископу Воронежскому (2017) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Митрофан, епископ Воронежский родился в 1623 году в пределах Владимирских от родителей духовного звания и в миру звался Михаилом. Родители дали ему воспитание в духе веры православной. Овдовев на 40 году своей жизни, он принял постриг в 1663 году в Успенской Злотниковской пустыни. С 1665 года – игумен Яхромского Космина монастыря, с 1675 года – игумен Троицкого (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658B458F8B18EFA645DA8F0E4C1BFAA4C2081136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683389   (128533) от 10.12.2023
+
+Благовест | Акафист святой преподобномученице великой княгине Елисавете (2022) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист святой преподобномученице великой княгине Елисавете.Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B53F00FDB8D3A7AEA1A831B4485642D7E52D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683383   (128529) от 10.12.2023
 
 Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Млекопитательница» (2015) [PDF]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128529.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128525.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128363.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128351.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127959.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127957.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127955.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127954.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127951.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127950.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127571.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126743.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126738.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126737.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126736.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126595.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126433.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126425.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126424.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126415.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126398.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125912.jpg" />
 </div>
 
 
@@ -569,116 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08388E8E5B3E365243526C363D3965A575427929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687174   (125733) от 25.12.2023
-
-Благовест | Письма Валаамского старца, схиигумена Иоанна (Алексеева) (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125733.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлено собрание писем известного валаамского подвижника, старца Иоанна (Алексеева) (1873–1958), которые он адресовал своим многочисленным духовным чадам и в которых указывается, как правильно проходить путь спасения во Христе.
-
-Душеназидательные письма схиигумена Иоанна принесут пользу всем православным христианам.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F93F64C1D0C4090587950714DE708DA8E14D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687179   (125710) от 25.12.2023
-
-Благовест | Акафист святому Ангелу Хранителю (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ангел-хранитель помогает в любой беде. К иконе обращаются при серьезных затруднениях в делах житейских или когда просто ищут поддержки. Молитва к ангелу-хранителю помогает преодолеть страх, дает уверенность в повседневных делах. Рекомендуется держать икону дома, как обычно, в восточном углу комнаты. Молятся тоже дома. Делайте это всякий раз, когда Вы выходите на (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842899B736586261F25C9F2BA450C6F87B500337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687169   (125691) от 25.12.2023
-
-Благовест | Мир души. По творениям схиигумена Саввы (Остапенко) (2019) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа представляет собой сборник изречений знаменитого отечественного подвижника благочестия – схиигумена Саввы (Остапенко) – на различные духовно-нравственные темы, взятые из его творений и расположенные в алфавитном порядке.
-
-Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FE328FB05C53F39884FD4BA6D600E417C5E5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687168   (125690) от 25.12.2023
-
-Благовест | Живите с Богом! По творениям архимандрита Иоанна (Крестьянкина) (2019) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа представляет собой сборник изречений известного старца – архимандрита Иоанна (Крестьянкина) – на различные духовно-нравственные темы, взятые из его творений и расположенные в алфавитном порядке.
-
-Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525A1B9B81FFDE6C1A2077CB9AE9BC1F0FC52AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

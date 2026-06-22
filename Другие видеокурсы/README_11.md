@@ -1,3 +1,30 @@
+###  Публикация: 1650061   (227422) от 30.07.2023
+
+Дизайн - Лекторий, Ольга Косырева | Вебинар по итогам Salone del Mobile (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекция известнейшего дизайн-критика Ольги Косыревой, посвященная итогам Миланского мебельного салона 2023 года, прошедшего в форме вебинара 30 апреля 2023 г.
+30 апреля онлайн Ольга Косырева расскажет обо всем увиденном в Милане в дни Миланского мебельного салона. Новинки и тенденции, цвета и формы, стиль и перспективы, новые имена и будущие бестселлеры, работы ведущих (   Читать дальше...   )Производство: Дизайн - ЛекторийЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 02:40:53Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24F3769F5F9B5BCBC3312F2CB7A534EC7D73221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 106078   (226290) от 30.11.2019
 
 Mark Schoen | Современная Камасутра. Увлекательный Секс. Техника современного секса и новые позиции (2006)
@@ -6,7 +33,7 @@ Mark Schoen | Современная Камасутра. Увлекательн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226290.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226261.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Clint Arthur | Новый Современный Секс / New Sex Now (2004) D
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226251.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212980.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209410.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208654.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Analytera, Центр Статистических Технологий, Его�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208498.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ Level One, Олег Грознов | Как устроены лучшие гол
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208010.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207716.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ Advance, Ягодкин Николай | Как повысить уровень 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207316.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ Liveclasses, Анатолий Ясинский | Субкультуры и ко�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207044.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204825.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204778.jpg" />
 </div>
 
 
@@ -362,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203312.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203214.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ TutorPlace, Татьяна Кузнецова | Графология (2025) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202404.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201237.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199668.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199413.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198892.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198250.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197824.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197584.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197190.jpg" />
 </div>
 
 
@@ -668,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196280.jpg" />
 </div>
 
 
@@ -682,34 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37ABA3E4D08830A99311A1F6A3E739479CDA9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645290   (196028) от 08.07.2023
-
-Эд Халилов | Марафон по движению к целям "Компас" (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марафон значительно ускорит тебя, а твой личный компас даст верное направление движения.
-В рамках программы будут затронуты самые важные сферы жизни каждого из нас: здоровье, отношения, финансы, энергия, управление своим временем, саморазвитие, целеполагание и движение к своим мечтам.
-В лёгком доступном формате ты будешь получать небольшие, но крайне эффективные (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:35:57Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6F2F45C019963EEE1719157F7FAB7F2249A2CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

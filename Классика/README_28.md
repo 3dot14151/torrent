@@ -6,7 +6,7 @@ Leif Ove Andsnes, Mahler Chamber Orchestra - Mozart Momentum 1786: Piano Concert
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561512.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anne-Sophie Mutter, Herbert Von Karajan, Wiener Philharmoniker - The Four Season
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561511.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lindsey Stirling - Brave Enough (2016) [MP3|320 Kbps] <Classical Crossover, Pop,
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560998.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nova Era - Fortissimo (2014) [MP3|320 кб/с]<Classical crossover, New Age>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560656.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sergei Prokofiev - The complete piano sonatas 3 (1991) [FLAC|Lossless]<classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560435.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_559077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559077.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ The Beatles Symphonic Orchestra - 3 CD (1999) [MP3|320 кб/с]<Classical, Symph
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558486.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ The Royal Philharmonic Orchestra - Plays Hits Of Phil Collins (1990) [FLAC|Lossl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557970.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Шедевры классической музыки в рок-обрабо
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555886.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Шедевры классической музыки в рок-обрабо
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555743.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Adya - Classic (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, In
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555460.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) Live [MP3|320 Kbp
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552715.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Andrew Lloyd Webber - Classic: Orlando Pops Orchestra (2004) 2CD[FLAC|Lossless]<
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552704.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Yevgeny Mravinsky - Shostakovich Friendship (2016) [FLAC|Lossless|image + .cue] 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550813.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Ludovico Einaudi - Seven Days Walking (Day 4) (2019) Decca Records [FLAC|Lossles
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549362.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Lindsey Stirling - Shatter Me (2014) Limited Edition, 2015, Lindseystomp Music [
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545513.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Lindsey Stirling - Brave Enough (2016) Deluxe Edition [FLAC|Lossless|image + .cu
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545456.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Золотые Хиты Классики в современной обра
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545268.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Allison Brewster Franzetti - The Unknown Piazzolla (1999) [FLAC|Lossless]<Classi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542284.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Rondo Veneziano - Scaramucce (1982) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540363.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Ferdinand Ries - Symphonies Nos. 1 & 2 (Howard Griffiths & Zurich Chamber Orches
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540311.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Rondo Veneziano - Concerto (1987) [FLAC|Lossless|tracks + .cue] <Modern Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540230.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Rondo Veneziano - Fantasia d'Inverno -Fantasien zur Winterzeit (1998) [FLAC|trac
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540226.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Rondo Veneziano - Concerto per Mozart (1990) [FLAC|tracks+.cue]<Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540221.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Rondo Veneziano - Attimi di magia (1999) [FLAC|tracks+.cue]<Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540215.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ Rondo Veneziano - Fantasia D'Autunno (1998) [FLAC|tracks+.cue]<Modern Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540214.jpg" />
 </div>
 
 

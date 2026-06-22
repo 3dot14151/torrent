@@ -1,3 +1,59 @@
+###  Публикация: 405788   (1041268) от 07.01.2021
+
+Linkin Park - Концерт в Техасе / Linkin Park - Live in Texas (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live in Texas — первый концертный альбом американской нью-метал группы Linkin Park и третий DVD , впервые изданный 18 ноября 2003. Все песни были записаны 2 и 3 августа во время концертов тура Summer Sanitarium Tour 2003 на стадионе Релиант в Хьюстоне, Техас и стадион Техас в Ирвинге, Техас.
+Видеоконцерт создан из аудиодорожки с концерта в Ирвинге и видео с обоих (   Читать дальше...   )Жанр: Концерт, Alternative RockРежиссер: Kimo ProudfootАктеры: Честер Беннингтон, Роб Бурдон, Брэд Дэлсон, Феникс Фаррелл, Джозеф Хан, Майк Шинода, Ларс УльрихПеревод: ОтсутствуетПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221E91ECA1733364F286999DFCE972A4A58F070B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611691   (1041130) от 12.02.2023
+
+Квартирник у Маргулиса. Группа «Гудтаймс» (11.02.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041130.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гудтаймс» — одна из самых позитивных, непредсказуемых и безудержных групп России. Харизматичных и энергичных музыкантов из Костромы по праву называют «повелителями дудок и властелинами танцполов», ведь их выступления и музыка никого не оставляют равнодушными. В гостях у Евгения Маргулиса «Гудтаймс» поделились интересными воспоминаниями и исполнили хиты, под которые (   Читать дальше...   )00:00:05  Бельмондо
+00:05:29  Императрицы и князья
+00:11:04  Огоньки
+00:16:30  Почему он, а не я?(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB183DABB570D5DD7BB5AE373DB767388D70AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438806   (1040587) от 10.01.2021
 
 Bob Moses - Falling Into Focus (Live Concert Film) (2020) WEBRip [VP9/2160p]
@@ -6,7 +62,7 @@ Bob Moses - Falling Into Focus (Live Concert Film) (2020) WEBRip [VP9/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040587.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039354.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038108.jpg" />
 </div>
 
 
@@ -92,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037817.jpg" />
 </div>
 
 
@@ -118,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037548.jpg" />
 </div>
 
 
@@ -147,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036850.jpg" />
 </div>
 
 
@@ -174,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036248.jpg" />
 </div>
 
 
@@ -200,7 +256,7 @@ Dessar - Вопрос (2023) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036126.jpg" />
 </div>
 
 
@@ -226,7 +282,7 @@ The Rolling Stones - GRRR Live! (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035537.jpg" />
 </div>
 
 
@@ -252,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035527.jpg" />
 </div>
 
 
@@ -281,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035441.jpg" />
 </div>
 
 
@@ -310,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035380.jpg" />
 </div>
 
 
@@ -337,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035311.jpg" />
 </div>
 
 
@@ -364,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035067.jpg" />
 </div>
 
 
@@ -393,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034838.jpg" />
 </div>
 
 
@@ -421,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034812.jpg" />
 </div>
 
 
@@ -447,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034100.jpg" />
 </div>
 
 
@@ -473,7 +529,7 @@ Riverside - Lost 'N' Found - Live In Tilburg (2020) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033970.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033953.jpg" />
 </div>
 
 
@@ -530,7 +586,7 @@ Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
 </div>
 
 
@@ -559,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033826.jpg" />
 </div>
 
 
@@ -588,7 +644,7 @@ Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
 </div>
 
 
@@ -614,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032172.jpg" />
 </div>
 
 
@@ -640,7 +696,7 @@ Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
 </div>
 
 
@@ -652,58 +708,6 @@ Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DF4621DD8B644F673EA88D74295EAD400C91D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 64632   (1030591) от 18.02.2021
-
-VA «20 Years Of Nuclear Blast» 2007 2DVD
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двойной DVD, выпущенный в честь 20-летнего юбилея легендарной немецкой звукозаписывающей компании Nuclear Blast и содержащий почти шесть часов видео! На дисках вы найдете 70 клипов и историю лейбла в четырех частях, рассказанную фронтменом Destruction Sсhirmer'ом. Также вы обнаружите массу интересного дополнительного материала. И конечно, о своей компании вам расскажет (   Читать дальше...   )Жанр: VARIOUSАктеры: NIGHTWISH, DIMMU BORGIR, IN FLAMES, HYPOCRISY, IMMORTAL, BLIND GUARDIAN, NILE, CHILDREN OF BODOM, HAMMERFALL, AMORPHIS, CLAWFINGER, DIE APOKALYPTISCHEN REITER, KATAKLYSM, SONIC SYNDICATE, DESTRUCTION, SOILWORK, EXODUS, CHIMAIRA, THERION, MESHUGGAH, ANTHRAX, EDGUY, AFTER FOREVER, EPICA, SONATA ARCTICA, WINTERSUN и другие.Перевод: ОригинальныйПродолжительность: 350:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94F2C41810C38151AAB68AB0C4100DF14E2C65A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450075   (1029331) от 24.02.2021
-
-Квартирник НТВ у Маргулиса. Группа КняZz (22.02.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная в 2011 году группа «КняZz» собрала воедино талантливых музыкантов и единомышленников: сегодня это настоящий творческий тандем во главе с бывшим участником «Короля и Шута» Андреем Князевым. Их дебютный макси-сингл «Человек-загадка» успешно стартовал в чартах, а одноименный трек стал визитной карточкой коллектива. Но настоящая популярность к ним пришла после (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A319947B7ED6DB8186DA03F962A323BC2BA22F
 ```
 
 https://mybot314.ru/tekegram_catalog/

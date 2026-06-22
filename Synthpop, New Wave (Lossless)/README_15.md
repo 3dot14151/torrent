@@ -1,3 +1,90 @@
+###  Публикация: 1059803   (459375) от 05.10.2016
+
+Alphaville - Prostitute (1994) [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Paradigm Shift (3:47)
+02. Fools (3:53)
+03. Beethoven (5:25)
+04. Ascension Day (5:45)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF556DB9121419C28FE1009E9E7735B809A85C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569310   (453512) от 12.08.2022
+
+Erasure - Day-Glo (Based on a True Story) (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on a True Story
+02. Bop Beat
+03. Pin-Prick
+04. The Conman(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5199116020AF81BD239DC67EB887469990299E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569507   (451654) от 13.08.2022
+
+Erasure - Ne:EP (2021) Mini Album [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (Hearts Full of Love)
+02. Same Game
+03. Leaving
+04. Come on Baby(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8834CB3936F56AE58254A66DDAB210CC6A8C822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408852   (451596) от 14.09.2020
 
 DEADLIFE - City of Eternal Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Darkwave>
@@ -6,7 +93,7 @@ DEADLIFE - City of Eternal Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451596.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ PRIZM - All Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451459.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ SAINT PEPSI - Mannequin Challenge (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450808.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449860.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Roger Shah & Jukebox 80s - Nightride (2021) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449563.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Mesh - Looking Skyward (2016) Limited Edition, 2CD [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441604.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Yello - Toy (2016) Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441396.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Sparks - Hippopotamus (2017) [FLAC|Lossless|image + .cue] <Synthpop, Pop Rock>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439209.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Mesh - Runway (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Coldwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434689.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ X Marks The Pedwalk - Transformation (2020) [FLAC|Lossless|WEB-DL|tracks] <EBM, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433740.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ JODA - JODA (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, House, New Wave, Ind
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419333.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ VA - Super Eurobeat Vol. 225 (2013) [FLAC|Lossless]<Electronic, Disco, Hi NRG, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414071.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Pastel Ghost - Ethereality (2018) [FLAC|Lossless|tracks + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410989.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Eyeless In Gaza - Skeletal Framework (2022) 5CD, The Cherry Red Recordings 1981-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410407.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ GUNSHIP - Dark All Day (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408991.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Timecop1983 - Night Drive (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407799.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Depeche Mode - Going Backwards (Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401412.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ VA - Synth Love Affair Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394670.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Depeche Mode - Cover Me (Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393779.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Robert Parker - End of the Night (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387697.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Neon Nox - Syndicate Shadow (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387613.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Tears For Fears - Rule The World: The Greatest Hits (2017) Virgin EMI Records [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387472.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ VA - Spacesynth Revolutions, Episode One (2010) [FLAC|Lossless|tracks + .cue] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387411.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ VA - Spacesynth Revolutions, Episode One (2010) [FLAC|Lossless|tracks + .cue] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCA8676A2A194A7B7B4ECC12A4FEFF2FA3601E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414543   (385513) от 08.10.2020
-
-Vector Seven - Electric Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Cybersynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. They Are Here (2:46)
-02. Broken Circuit (3:34)
-03. Shapeshifter (2:49)
-04. Electric Blood (4:05)(   Читать дальше...   )Жанр: Darksynth, CybersynthПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330ABF1B3D6DFB4601974AD528D4EF8847C35DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174292   (385318) от 15.10.2017
-
-VA - Rewind To The 80s: Germany (2016) Compilation [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Mareen - Germany (Original 12'' Version) (5:46)
-02. Alphaville - Jerusalem (Palace Version) (6:20)
-03. Paso Doble - Computerliebe (Spezial Disco Version) (7:27)
-04. Anouschka Renzi - Robot Love (Original 12'' Version) (6:48)(   Читать дальше...   )Жанр: Synth-pop, Euro-Disco, New WaveПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C713027B390760E619132D85B8B70358655D0CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574727   (383763) от 06.09.2022
-
-Carpenter Brut - Leather Terror (2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave, Horror>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Title [2:09]
-2. Straight Outta Hell [3:22]
-3. The Widow Maker (feat. GUNSHIP) [3:56]
-4. Imaginary Fire (feat. Greg Puciato) [4:22](   Читать дальше...   )Жанр: Darksynth, Synthwave, HorrorПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FE3E5EF5A47EFBA0FF36D538549A70383E273C
 ```
 
 https://mybot314.ru/tekegram_catalog/

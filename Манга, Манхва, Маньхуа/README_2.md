@@ -6,7 +6,7 @@ JoJo no Kimyou na Bouken Part 5: Ougon no Kaze | Невероятные Прик
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67645.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gwihwanja-ui Mabeop-eun Teukbyeol-haeya Hamnida | Магия Вернувшег�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67643.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gunslinger Girl | Школа убийц (2002) [15 томов, 100 глав] [М
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67634.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы (2020) [16 т�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67618.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Enen no Shouboutai | Пламенная бригада пожарных (2015) [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67617.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fairy Tail: Blue Mistral | Хвост Феи - Голубой Мистраль (
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66949.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fairy Tail Gaiden | Хвост Феи - Гайден (2015) [3 части, 53 г
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66947.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tale of Fairy Tail: Koori no Kiseki | Хвост Феи. Ледяная троп
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66918.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kami nomi zo Shiru Sekai | Одному лишь Богу ведомый мир 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66849.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bad Company | Плохая Компания (1996) [1 том, 10 глав] [Ма
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66848.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Shonan Seven | Семерка Шонана (2014) [17 томов, 67 глав] [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66844.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen | Кагуя: В лю
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66842.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Shounan Junai Gumi | Крутой учитель Онидзука: Ранние 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66839.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Majo to Kishi wa Ikinokoru | Ведьма и рыцарь выживают (2021
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66838.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ GTO - Shonan 14 Days | Крутой Учитель Онидзука: 14 дней
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66837.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Darwin's Game | Игра Дарвина (2012) [30 томов, 121 глава + 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66836.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Gamaran | Гамаран (2009) [22 тома, 194 главы] [Манга] [Ру
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66828.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ GT-R: Great Transporter Ryuji | Великий Водитель Рюдзи (2012
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66822.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Psycho Busters | Психо Нарушители (2006) [7 томов, 32 гла
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66821.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Soul Eater NOT! | Пожиратель душ! Другая история (2011
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66819.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Cike Xintiao: Wangchao | Assassin's Creed: Dynasty | Кредо Убийцы: Д
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31603.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Na Honjaman Lebel-eob | Solo Leveling | Поднятие уровня в оди�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28154.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Assassin's Creed: China | Assassin's Creed: Blade of Shao Jun | Кредо уб�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26622.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Shoujo the Wild's | Шальные девчонки (2011) [1 сезон, 260 г
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20812.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Jujutsu Kaisen | Магическая битва (2018) [30 томов, 272 гл
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20804.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Oshi no Ko | Звёздное дитя (2020) [16 томов, 166 глав + 8 �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20802.jpg" />
 </div>
 
 

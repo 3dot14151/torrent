@@ -1,3 +1,215 @@
+###  Публикация: 1808085   (65056) от 22.07.2025
+
+Иконки - Envato - Cleaning and Housekeeping 3D Illustration - NB7MRJ8 [PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Cleaning and Housekeeping 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE9CA624CD37C5D950A59394C3C87B36DCC98A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809994   (64613) от 02.08.2025
+
+Промты - SevenUnited LLC - 434 Midjourney Prompts for Anime Characters - 7491655 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 434 настраиваемых промтов Midjourney с примерами изображений персонажей аниме.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F69EF0D851C5FFD0D554B738952B169D1CA649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442497   (64491) от 27.01.2012
+
+Современная фотография - Audrey Hepburn [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64491.jpg" />
+</div>
+
+
+###  Подробнее
+
+314 фотографий британской актрисы и фотомодели - О́дри Хе́пбёрн (Одри Кэтлин Растон). Получила «Оскар» в 1954 году за лучшую женскую роль в фильме «Римские каникулы» (1953)Формат: JPGРазрешение файлов: 1024х1241 - 3000x3142
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6702C14EDDD29517475B122F86096C975EC0214D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705790   (63439) от 10.03.2024
+
+Иконки - Job and Recruitment 3D Icon Pack [PNG, BLEND, OBJ, FBX]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте свои проекты интереснее с помощью 3D-иконок, вы можете легко использовать эти значки для Интернета, приложений, различных шаблонов дизайна и других проектов.Формат: PNG, BLEND, OBJ, FBXРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C3BEAB18FDF67D106310126C55379435828332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821308   (52303) от 01.10.2025
+
+Промты - SevenUnited LLC - 540 Midjourney Prompts & Images for Sands Of Time - 9502585 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 540 ИИ-промтов по теме «Пески времени». Каждая подсказка включает 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1B4E6635FEA0CB8C910BF3F0DEC8003B8A9A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821347   (52230) от 01.10.2025
+
+Обои - Jeeekaaa - Art Gallery TV 4K v2 [PNG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция картин в рамах для режима заставки телевизора.
+Количество: 20 шт.
+
+Создано Jeeekaaa® (свободно от авторских прав)Формат: PNGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C0A61C5BBC73DE8C6E7EFD15053D304FD7F803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821439   (52075) от 02.10.2025
+
+Промты - SevenUnited LLC - 378 Midjourney Prompts for Creative Styles - 7233953 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 378 настраиваемых промтов Midjourney для креативных стилей. Каждая подсказка включает 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F98F0146DFAEB2884C209A222742FE55D31CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748456   (43830) от 12.09.2024
+
+Картинки - Любительские фотографии #5 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительские фотографии. Часть пятая.
+Первая часть: Картинки - Любительские фотографииФормат: JPGРазрешение файлов: 3936х2214 - 5712х3213
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C31BCD856E20DBD636E5235028CC611D170EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821211   (41006) от 01.10.2025
 
 Иконки - UI8 - Food & Drink 3D Icon [PNG, BLEND]
@@ -6,7 +218,7 @@
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41006.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39923.jpg" />
 </div>
 
 
@@ -60,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36215.jpg" />
 </div>
 
 
@@ -88,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36109.jpg" />
 </div>
 
 
@@ -115,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36072.jpg" />
 </div>
 
 
@@ -142,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35864.jpg" />
 </div>
 
 
@@ -169,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32866.jpg" />
 </div>
 
 
@@ -195,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32571.jpg" />
 </div>
 
 
@@ -223,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32523.jpg" />
 </div>
 
 
@@ -249,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32310.jpg" />
 </div>
 
 
@@ -275,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32144.jpg" />
 </div>
 
 
@@ -301,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32120.jpg" />
 </div>
 
 
@@ -327,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31800.jpg" />
 </div>
 
 
@@ -353,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31532.jpg" />
 </div>
 
 
@@ -379,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30795.jpg" />
 </div>
 
 
@@ -405,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30617.jpg" />
 </div>
 
 
@@ -431,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30592.jpg" />
 </div>
 
 
@@ -457,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30480.jpg" />
 </div>
 
 
@@ -468,214 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:314CC8D072524D0055081EAC0D86AEEE9637490E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774028   (30429) от 19.01.2025
-
-Фотография - Lee Jeffries - Homeless Portraits [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портреты бездомных от Lee Jeffries.Формат: JPGРазрешение файлов: 810x810 - 6144x4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8143ED5A6078B01E6FA8C65B76E5E4D3C261D877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774391   (30373) от 20.01.2025
-
-Обои - Eternal Mix Wallpapers Part 3 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F189DDE38AAC396C46E7671D8437281324AF4509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774771   (30072) от 23.01.2025
-
-Обои - Eternal Mix Wallpapers Part 4 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C90A95B03E3033028710BFBC87AEE4D29B51B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775088   (29841) от 25.01.2025
-
-Обои - Eternal Mix Wallpapers Part 5 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5195D05800235BD621F9CDDD98BE88C02CACD4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775406   (29729) от 26.01.2025
-
-Обои - Дева и дракон. 1366x768. 100 штук [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлен набор картинок на тему "Героическое фэнтези", созданных при помощи Искусственного интеллекта. Можно использовать как обои для небольших ноутбуков и прочих мобильных устройств.Формат: JPGРазрешение файлов: 1366x768
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285B019BBBD216742CBC782057324E81B323B9DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775482   (29726) от 26.01.2025
-
-Обои - Eternal Mix Wallpapers Part 6 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E84A9AAEE9A1051DE1EDD2512FA5494B4319B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775672   (29652) от 27.01.2025
-
-Обои - Eternal Mix Wallpapers Part 7 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A16461B0F9D37486AC4288D571E72998E7C53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775725   (29465) от 28.01.2025
-
-Картинки - Touring Turn of The Century America 1880-1920 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта коллекция фотографий из коллекции Detroit Publishing Company включает в себя более 873 стеклянных негативов и диапозитивов и цветных фотолитографических отпечатков (нашел всего одну), в основном из восточной части Соединенных Штатов. Коллекция включает работы ряда фотографов, одним из которых был известный фотограф Уильям Генри Джексон.Формат: JPGРазрешение файлов: 1000х1241 и 5000х4054
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F10B785F549B1E3DD5F40CE1B65623A70F19106
 ```
 
 https://mybot314.ru/tekegram_catalog/

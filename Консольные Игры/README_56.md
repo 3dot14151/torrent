@@ -1,3 +1,185 @@
+###  Публикация: 1565506   (212055) от 24.07.2022
+
+Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте случайным образом генерируемые миры и стройте самые разные сооружения: от простейших домов до грандиозных замков и дворцов. Играйте в творческом режиме с неограниченными ресурсами или вгрызайтесь в дебри мира в режиме выживания, изготавливая оружие и доспехи для защиты от опасных мобов. Эта версия позволяет играть с друзьями на разных устройствах, предоставляет (   Читать дальше...   )Тип издания: LicenseРазработчик: MojangЖанр: Аркада, ПлатформерЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AFF20DED3CBC867E4FF6663D44E220A3713159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585915   (211514) от 24.10.2022
+
+Farm Together (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте собственную ферму самостоятельно или сотрудничайте с друзьями. Начните с нуля, с маленького участка, и закончите с огромной фермой, которая простирается дальше, чем может видеть глаз!Тип издания: LicenseРазработчик: Milkstone StudiosЖанр: SimulationЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15EBA80692D6FAAF8168608296C9F6FB5B92B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567137   (211447) от 01.08.2022
+
+Martha Is Dead (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Martha Is Dead - это мрачный психологический триллер от первого лица, события которого разворачиваются в 1944 году в Италии. В этой игре стираются границы между реальностью, суевериями и трагедией войны. На фоне обострения конфликта между немецкими и союзными войсками находят оскверненное тело утонувшей женщины... Марты!Тип издания: LicenseРазработчик: LKAЖанр: Adventure, HorrorЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AEBAB81E15B465EAC0E1A6AA67E63291301193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567118   (211435) от 01.08.2022
+
+MX vs ATV Legends (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мчитесь к победе верхом на мотоцикле, вездеходе или квадроцикле в игре MX vs ATV Legends! Вас ждут разнообразные трассы и режим карьеры, в котором все риски окупятся с лихвой — ведь вы сможете стать звездой гонок международного масштаба. Станьте легендой гонок по бездорожью!Тип издания: LicenseРазработчик: Rainbow StudiosЖанр: RacingЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485AF008997C12274820BAD9203AA22A97A79F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567145   (211431) от 01.08.2022
+
+NBA 2K22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13] [Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211431.jpg" />
+</div>
+
+
+###  Подробнее
+
+2K22 подарит вам целую вселенную баскетбола. ИГРАЙТЕ на настоящих площадках NBA и WNBA против реальных команд и игроков. Соберите команду своей мечты в режиме MyTEAM и добавьте в нее звезд настоящего и легенд прошлого. Сделайте карьеру в профессиональном спорте в режиме MyCAREER и преодолейте путь к вершинам NBA. Продемонстрируйте навыки профессионального менеджмента (   Читать дальше...   )Тип издания: LicenseРазработчик: Visual ConceptsЖанр: СпортЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A50EEACDB4D00D082075DD28A8F0182AB58B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567102   (211418) от 01.08.2022
+
+Cuphead Delicious Last Course (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cuphead - это игра в жанре run'n'gun, в которой игрокам предстоит управлять необычным героем, который занят вовсе не спасением мира, а просто выколачивает пыль из врагов. Игрокам предстоит помочь Капхеду, который бросил вызов Дьяволу, проиграл свою ставку, и теперь изо всех сил пытается ее вернуть. В дополнении The Delicious Last Course вас  ждут  новое оружие, обереги (   Читать дальше...   )Тип издания: LicenseРазработчик: StudioMDHR Entertainment Inc.Жанр: Приключение, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B874767B25B4AFF121B3EC1437DC63E025309F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567589   (211205) от 03.08.2022
+
+The Quarry (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211205.jpg" />
+</div>
+
+
+###  Подробнее
+
+После заката солнца в последний день летнего лагеря вожатые «Хэкеттс Куори» устраивают вечеринку. Но события быстро принимают зловещий оборот. Их беззаботные планы нарушают мрачные охотники, перепачканные в крови, и куда более жуткие создания — и ночь веселья становится ночью ужасов. Сыграйте за девятерых вожатых в захватывающей кинематографической истории, где каждое (   Читать дальше...   )Тип издания: LicenseРазработчик: Supermassive GamesЖанр: Survival horrorЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4BCB4538936AF3471617EBDA78A8E9633A3D424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405774   (210958) от 08.08.2022
 
 Prey (2017) [PS4] [EUR] 9.0 [HEN] [License / 1.12 / DLC] [Ru/Multi]
@@ -6,7 +188,7 @@ Prey (2017) [PS4] [EUR] 9.0 [HEN] [License / 1.12 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210958.jpg" />
 </div>
 
 
@@ -32,7 +214,7 @@ Tom Clancy's Ghost Recon: Wildlands (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.3
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210505.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ Manhunt [Uncensored] (2004) [Xbox360] [PAL] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210327.jpg" />
 </div>
 
 
@@ -84,7 +266,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [PS4] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210185.jpg" />
 </div>
 
 
@@ -110,7 +292,7 @@ Bus Simulator 21 (2021) [PS4] [USA] 5.05 [HEN] [License / 2.21 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209925.jpg" />
 </div>
 
 
@@ -136,7 +318,7 @@ Nickelodeon All-Star Brawl (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.15 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209915.jpg" />
 </div>
 
 
@@ -162,7 +344,7 @@ Tiny Tina's Wonderlands (2022) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209765.jpg" />
 </div>
 
 
@@ -188,7 +370,7 @@ Fullmetal Alchemist and the Broken Angel (2005) [PS2] [NTSC] [Unofficial] [Ru/En
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209667.jpg" />
 </div>
 
 
@@ -214,7 +396,7 @@ DiRt Rally 2.0 (2019) [USA] 5.05 [HEN] [License / 1.26 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209626.jpg" />
 </div>
 
 
@@ -241,7 +423,7 @@ Remnant From The Ashes (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.24 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208478.jpg" />
 </div>
 
 
@@ -267,7 +449,7 @@ Worms Collection (2012) [PS3] [EUR] 4.21+ [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208185.jpg" />
 </div>
 
 
@@ -293,7 +475,7 @@ In Nightmare (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208131.jpg" />
 </div>
 
 
@@ -319,7 +501,7 @@ Saints Row (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.06 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207275.jpg" />
 </div>
 
 
@@ -345,7 +527,7 @@ Kena: Bridge of Spirits (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206917.jpg" />
 </div>
 
 
@@ -371,7 +553,7 @@ Ultra Age (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206680.jpg" />
 </div>
 
 
@@ -397,7 +579,7 @@ The Dark Pictures Anthology Little Hope (2020) [PS4] [EUR] 5.05 [HEN] [License /
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206222.jpg" />
 </div>
 
 
@@ -423,7 +605,7 @@ F1 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205802.jpg" />
 </div>
 
 
@@ -449,7 +631,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [PS4] [USA] 5.05 [HEN] [Repack / 1.07 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205413.jpg" />
 </div>
 
 
@@ -475,7 +657,7 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205145.jpg" />
 </div>
 
 
@@ -486,188 +668,6 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6A6275AB0557111F667C86A8B2AE7BAB488BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556950   (205090) от 18.10.2022
-
-ACE COMBAT 7: SKIES UNKNOWN (2019) [PS4] [EUR] 5.05 [HEN] [License / 2.20 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ace Combat 7: Skies Unknown направляет всю мощь современных систем на создание впечатляющих воздушных битв на фоне потрясающего облачного неба в головокружительных трех измерениях. Еще достовернее происходящее станет благодаря разнообразным визуальным эффектам и различным погодным условиям, которые вам предстоит использовать для достижения тактического преимущества. (   Читать дальше...   )Тип издания: LicenseРазработчик: BANDAI NAMCO StudiosЖанр: SimulatorЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3059427B065DF732681C596BD52AB70B4D1DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586679   (204721) от 27.10.2022
-
-Splatoon 3 (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собирайте команду и закрашивайте всех и вся! В Splatoon 3 для Nintendo Switch победит самый яркий игрок! Добро пожаловать в Плюхтон, расположенный в залитой солнцем Плюхтонии! Вас ждет новое оружие, боевые приемы, поля боя и улетные прикиды! Ныряйте с головой в красочные сражения, отражайте атаки самонидов и сдерживайте нашествие осьморян.Тип издания: eShopРазработчик: Nintendo EPDЖанр: Shooter, ActionЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402D86888C3804495A2D1712A273450FC87BB265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586772   (204712) от 27.10.2022
-
-TUNIC (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуй земли, полные легенд, древних сил и яростных монстров. В изометрическом экшене TUNIC тебе предстоит большое путешествие в роли маленького лисенка. Ты просыпаешься среди руин, и все, что у тебя есть, — это любопытство. Сражайся с чудовищами, собирай волшебные предметы и раскрывай древние тайны.Тип издания: eShopРазработчик: Andrew ShouldiceЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B021FB7CD284B355547C5B08861118E356F7880E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586684   (204707) от 27.10.2022
-
-New Tales from the Borderlands (2022) [Switch] [EUR] 14.1.2 [eShop] [En]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204707.jpg" />
-</div>
-
-
-###  Подробнее
-
-В постоянно раздираемом войной мегаполисе на планете Прометея вы будете управлять Ану, Октавио и Фрэн... в худший день их жизни. Помогите этим трем милым неудачникам в их попытках изменить мир (и, возможно, даже спасти его)! Уложите на лопатки планетарное вторжение, свирепого подземного монстра и бесчувственного капиталиста в этом захватывающем кинематографическом (   Читать дальше...   )Тип издания: eShopРазработчик: Gearbox SoftwareЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300028F0D6715817E2314EFBD8FEEA6102E59FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630679   (202204) от 23.08.2023
-
-The Legend of Zelda: Tears of the Kingdom (2023) [Switch] [USA] 16.0.3 [NSP] [License / 1.2.1] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202204.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом продолжении несравненной The Legend of Zelda: Breath of the Wild горизонты приключений Линка станут еще шире, и он отправится исследовать небеса над бескрайними просторами Хайрула! Сюжетная линия этой игры перенесет вас в путешествие по королевству Хайрул в поисках слез королевства, которые позволяют вернуть мир и процветание в Хайруле.Тип издания: LicenseРазработчик: Nintendo EPDЖанр: Action, Adventure, RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA0A43CFE377C8CCA689E388A12FBA56E493973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617213   (201618) от 08.03.2023
-
-PixelJunk Monsters 2 (2018) [PS4] [USA] [PSN] [Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201618.jpg" />
-</div>
-
-
-###  Подробнее
-
-PixelJunk Monsters 2 – казуальная экшен-стратегия в реальном времени в жанре tower defense. Разработчики использовали для своего проекта мультяшную графику с яркими цветовыми решениями для создания красочной картинки и масштабных спецэффектов. Казуальный игровой процесс позволит любым группам геймеров быстро разобраться во всех тонкостях и получать удовольствие от (   Читать дальше...   )Тип издания: PSNРазработчик: Q-GamesЖанр: Strategy, Tower defenseЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175747CC2C63AE53A06632D4D4D3668FBC126500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617051   (201576) от 07.03.2023
-
-Max Payne 3 (2012) [PS3] [EUR] 4.11 [License] [Ru]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Max Payne 3 - продолжение знаменитого боевика с Максом Пейном в главной роли от студии Rockstar Vancouver. Сюжет стартует через 8 лет после событий второй части. Основное действие происходит не в тесном и хмуром Нью-Йорке, а в криминальном Сан-Паулу, где постаревший Макс стал работать телохранителем на одну из самых богатых и влиятельных семей Бразилии. В Max Payne (   Читать дальше...   )Тип издания: LicenseРазработчик: Rockstar StudiosЖанр: TPSЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9E46C14EA21C928302BAB08512CDCA95AEE948
 ```
 
 https://mybot314.ru/tekegram_catalog/

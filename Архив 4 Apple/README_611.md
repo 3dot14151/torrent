@@ -1,3 +1,55 @@
+###  Публикация: 1345461   (166715) от 15.12.2019
+
+iDatabase 6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166715.jpg" />
+</div>
+
+
+###  Подробнее
+
+iDatabase - это самый простой способ организовать ваши данные, т.е. содать базу данных используя один из 22 готовых шаблонов, легко настроив их "под себя" или создайте новую базу данных с нуля. Без предварительного опыта работы с базами данных вы можете использовать включенные шаблоны для быстрого создания и настройки баз данных, содержащих кадастры, списки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2019Разработчик: ApimacПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D2A30F00B1122ADC2BAE3B568AD9C2ADB9AD7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345310   (166711) от 15.12.2019
+
+Amadeus Pro 2.6.2 (build 2235) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60552B5F5BEE0EF328DBCCD7FD202677BB4C4A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345658   (166707) от 15.12.2019
 
 SnippetsLab 1.9.2 [En]
@@ -6,7 +58,7 @@ SnippetsLab 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166707.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Movavi PDF Editor 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166692.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Skynet 2019.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166686.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Grids for Instagram 5.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166677.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ iRingg 1.0.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166667.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ PhotoScape X Pro 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166658.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ Logic Pro X 10.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166648.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Pixelmator Pro 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166621.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ File Multi Tool 6 v6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166616.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ Gifox 2 – Gif Recording & Sharing v2.0.2.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166596.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ UniConverter 11.6.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166591.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ Exposure Software Snap Art 4 v4.1.3.272 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166577.jpg" />
 </div>
 
 
@@ -334,7 +386,7 @@ PhotoFoundry for Mac 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166530.jpg" />
 </div>
 
 
@@ -360,7 +412,7 @@ Cookie 7.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166528.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ EazyDraw 11.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166524.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ Boxy SVG 4.14.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166522.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ Xliff Editor 2.9.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166518.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ File List Export for Mac 2.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166516.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ GarageSale 9.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166512.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ Privatus 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166495.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ Swift Publisher 5 v5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166488.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166469.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ JSON Wizard for Mac 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166458.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ Timer RH PRO  2.12.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166425.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ Timer RH PRO - утилита для управления собственным
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7161A73ABC731A862125097282EFAF6A1F68B69C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673101   (166392) от 31.10.2023
-
-Live Wallpaper & Themes 4K Pro for Mac 18.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5025A410D08A11F9237F6F87C29063AE3BF9054C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673268   (166370) от 31.10.2023
-
-Cisdem Video Converter 7.11.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачать онлайн-видео, Rip DVD или конвертировать видео между всеми форматами & устройств на Mac.
-Cisdem Video Converter является решением все в одном для видео развлечений. Cisdem VideoConverter будет полезен если вы конвертируете видео & аудио файлы в любом формате, записываете DVD фильмы или скачиваете видео с YouTube, Google, Yahoo, и т.д Он самый стабильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F614B54EC01F61618AFD30633A8BDD5EB312C64
 ```
 
 https://mybot314.ru/tekegram_catalog/

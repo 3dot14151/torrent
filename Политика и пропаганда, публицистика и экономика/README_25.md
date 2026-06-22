@@ -1,3 +1,110 @@
+###  Публикация: 957181   (328341) от 16.11.2015
+
+Пресс-конференция В.В.Путина по итогам саммита G20 (16.11.2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пресс-конференция президента России Владимира Владимировича Путина по итогам саммита G20 в Анталье.Телекомпания: RTЖанр: ДокументальныйПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847E9BE9CDDB83E63BFD8532F01A63CA54CBA044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957261   (327494) от 17.11.2015
+
+Пресс-конференция Б.Х.Обамы по итогам саммита G20 (16.11.2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пресс-конференция Б.Х. Обамы по итогам саммита G20 в Анталье (Турция).Телекомпания: 112 каналЖанр: Документальный, ХроникаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8445F571E428CC7CA2A371110ADA857915561233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957429   (327366) от 17.11.2015
+
+Интервью президента Украины П.Порошенко Deutsche Welle (17.11.2015) HDTVRip [720p-LQ] [RUS]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это интервью Петра Порошенко вызвало огромный резонанс. Журналист немецкой телерадиокомпании Deutsche Welle взял интервью у Президента Украины.
+Провокационные вопросы журналиста DW Тима Себастиана задали динамичный тон беседы. Интервью на английском языке велось в формате жесткой беседы, когда ведущий перебивает собеседника.
+Среди обсуждаемых вопросов: "Может (   Читать дальше...   )Телекомпания: Deutsche WelleЖанр: Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417B958F5971D0798DF4BEDD82F36D1052325250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956251   (327333) от 17.11.2015
+
+Когда Аляска станет нашей? (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327333.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента избрания Барака Обамы в Америке звучат голоса о разделе США. В 2014-м году, казалось, напряжение достигнет апогея. Сразу 29 американских штатов из 50 заявили о своем желании выйти из состава Соединенных Штатов. Громче всех суверенитета требуют Луизиана и Техас. Что это - реальная воля народа или провокация?
+Политическая карта мира давно известна. Границы (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ДокументальныйПродолжительность: 01:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBB37AE4B80E2D52E482966227CF1BCB2781199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957950   (325841) от 19.11.2015
 
 Политика. Борьба с ИГИЛ (2015.11.18) SATRip
@@ -6,7 +113,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325841.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325806.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323985.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323938.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323353.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321911.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319938.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319937.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319834.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318343.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315453.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315004.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314846.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314823.jpg" />
 </div>
 
 
@@ -380,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314760.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314574.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314371.jpg" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314351.jpg" />
 </div>
 
 
@@ -484,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312599.jpg" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312469.jpg" />
 </div>
 
 
@@ -538,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312259.jpg" />
 </div>
 
 
@@ -564,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312029.jpg" />
 </div>
 
 
@@ -575,113 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB3917C332970BEBDDA28E372235AD74F85405D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076939   (312025) от 26.11.2016
-
-Постскриптум с Алексеем Пушковым (26.11.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Дело Улюкаева - как далеко зайдёт борьба с коррупцией?
-Дональд Трамп - программа действий на сто дней, и что может ей помешать.
-Россияне или русские - как нам теперь себя называть? По следам заявления Станислава Говорухина.
-Украина, нервное время - как ощущает себя власть в Киеве? Обзор событий недели.(   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBD5D7F63453A69BCE4F0883556A3EDD57A9555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960121   (310210) от 27.11.2015
-
-Пресс-конференция В.Путина и Ф.Олланда (26.11.2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Президенты России и Франции провели совместную пресс-конференцию по итогам двусторонних переговоров в Москве 26 ноября 2015 года, на которой они обсудили борьбу с международным терроризмом.Телекомпания: RTЖанр: ДокументальныйПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66E7774B06686892FE387CA34BB0A3E1157644F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077228   (309277) от 27.11.2016
-
-Воскресное время - Первый канал (27.11.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEA81CA1C3F315979AFBA6E7E5AE4EC1831393D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077192   (309073) от 27.11.2016
-
-Вести недели (27.11.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309073.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5072549A3D355947E0A16C79EA286DD54D9040
 ```
 
 https://mybot314.ru/tekegram_catalog/

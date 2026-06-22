@@ -1,3 +1,56 @@
+###  Публикация: 906127   (635291) от 13.06.2015
+
+Люди, забытые временем / Капрона-парк / The People That Time Forgot (1977) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация повести Эдгара Райса Берроуза, являющаяся продолжением фильма "Земля, забытая временем."
+В конце 1917 г. у берегов Шотландии находят небольшой контейнер, внутри которого оказались листы бумаги с посланием от некоего Боуэна Тайлера. Во время Первой мировой войны, он, вместе со своими товарищами, попал на затерянный в Океане остров, окруженный (   Читать дальше...   )Производство: Великобритания, American International Pictures (AIP), Amicus ProductionsЖанр: Фантастика, Фэнтези, ПриключенияРежиссер: Кевин КоннорАктеры: Патрик Уэйн, Даг МакКлюр, Сара Даглас, Дана Гиллеспи, Торли Уолтерс, Шэйн Риммер, Тони Бриттон, Джон Хэллам, Дэвид Праус, Милтон РейдПеревод: Двуголосый закадровыйПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3F5F92A9484548D383FE71B772A24413659A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519990   (634695) от 07.07.2012
+
+Полицейская академия 1, 2 / Police Academy 1, 2 (1984, 1985) [1080p] Blu-ray
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_634695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банда хулиганов творит безобразия по всему городу и опустошает карманы всех, кто находится с ними на одном тротуаре. Осторожно! Когда увальни в голубой форме решат разобраться с этими парнями, это закончится умопомрачительным смехом.Производство: Жанр: Боевик, комедияРежиссер: Джерри ПэрисПеревод: Дубляж, русский (3 шт.) и украинский закадровый многоголосый, одноголосый (2 шт.)Субтитры: (PGS): Английские, Французские, Немецкие, Испанские, Португальские, Датские, Финские, Норвежские, РусскиеПродолжительность: 01:27:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034350   (633939) от 13.07.2016
 
 Полицейская академия / Police Academy (1984) BDRip [H.265/1080p-LQ] [10-bit]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633939.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632250.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632168.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632060.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630939.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630036.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629390.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629018.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627167.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627160.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627005.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626071.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624297.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624014.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623602.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623576.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622737.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622555.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622554.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622458.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622442.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622427.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622058.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622056.jpg" />
 </div>
 
 
@@ -617,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB61BB22E7A9E84C98A5C45F5E1A508E96677993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036214   (620735) от 20.07.2016
-
-Асы / Les cracks (1968) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма - изобретатель. Он усовершенствовал велосипед и надеется выгодно продать свое изобретение. Тем более, что приближается время гонок. Но никто не принимает его всерьез, более того: его преследует судебный исполнитель. Спасаясь от него, изобретатель выигрывает гонки...Производство: Франция, Италия / Fides, Regina Films, SNC, TC Productions, 	West FilmЖанр: Комедия, СпортРежиссер: Алекс ЖоффеАктеры: Бурвиль, Робер Ирш, Джанни Бонагура, Моник Тарбес, Мишель де Ри, Эдмон Бошан, Энн Жоливе, Тедди Билис, Роже Качча, Макс Форнел, Жорж Гере, Фернан Гио, Френсис Лакс, Джузеппе Маттеи, Жан-Клод Мотейл, Марсель Перес, Патрик ПрежанПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C688F3C2B5B7E423C4838911D96E7BB5D4981D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521993   (618537) от 15.07.2012
-
-Молчаливое бегство / Silent Running (1972) [720p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экологическая научно-фантастическая драма. Все леса на Земле погибли, так что теперь деревья выращивают в космосе. Приглядывающий за огромной космической плантацией герой получает приказ с Земли уничтожить оранжерею. Поняв, что не сможет выполнить приказ и не сможет убедить трех своих коллег помочь ему спасти растения, он решает действовать сам и не допустить катастрофы. режиссерский дебют мастера спецэффектов Дагласа Трамбла (2001, Близкие контакты третьего вида)Жанр: ФантастикаРежиссер: Дуглас ТрамбуллВ ролях: Брюс Дерн, Клифф Поттс, Рон Рифкин, Джесси Винт, Марк Персонс, Стивен Браун, Шерил Спаркс, Ларри Вайзенхант, Джозеф Кампанелла, Рой ЭнджелПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 01:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4846B80A6EF46690A6FC15245D8DC9AFBEECA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

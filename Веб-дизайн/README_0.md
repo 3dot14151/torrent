@@ -6,7 +6,7 @@
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681682.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ pensionary | Wordpress Помогатор (2016) [PDF]
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671574.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659510.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657506.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Jesse Freeman | Introducing HTML5 Game Development [2012] [PDF]
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632948.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562390.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558892.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558886.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550703.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527881.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522573.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ R. Huddleston | Teach Yourself Visually. Web Design [2011] [PDF] [En]
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521122.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Heydon Pickering, Andy Bell | Every Layout - Relearn CSS Layout By Example (3rd 
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508873.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507153.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506350.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Steve Johnson | Adobe Dreamweaver CS5 On Demand [2010] [PDF] [En]
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502185.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ David Sawyer McFarland | Dreamweaver CS6: The Missing Manual [июль 2012] [PD
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502106.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498376.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498367.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ M. Bowers, D. Synodinos, V. Sumner | Pro HTML5 and CSS3 Design Patterns [2011] [
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497991.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Steve Johnson | Adobe Dreamweaver CS6 On Demand [2012] [PDF] [En]
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492817.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491814.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465049.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464316.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1 (
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452141.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447776.jpg" />
 </div>
 
 

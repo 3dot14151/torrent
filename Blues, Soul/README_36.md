@@ -6,7 +6,7 @@ Catch 23 - Blues Hotel (2022) [mp3|320 kbps|tracks] <Blues, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179286.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178901.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Henrik Freischlader Band - Missing Pieces (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178148.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rory Gallagher - Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175969.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Taj Mahal - Live at Ultrasonic Studios (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175709.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173920.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Matt O'Ree Band - 3 альбома (2013-2019) [MP3|320 Kbps] <Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173763.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Blues & Roots Rock (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169900.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Blues Dance Hits (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169885.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Flaming Mudcats - Forever and A Day (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169037.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Jacopo Pausa - My Favourite Colour Is Blues (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169021.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Brunsviger Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168985.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Apocalypse Blues Revival - The Apocalypse Blues Revival (2020) [MP3|320 Kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168968.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Best Blues Singers (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168943.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Blues Rocking (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168896.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Andy Taylor Group - Drifting Days (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168129.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Black Pumas - Chronicles of a Diamond (2023) [MP3|320 Kbps] <neo-soul, psychedel
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167021.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Hurricane Red - Smokin' (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164251.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Terra Lightfoot - Consider The Speed (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163187.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Samsara Joyride - Samsara Joyride (2020) [MP3|192 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162257.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Justin Johnson - Rough Edges (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162201.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blues Whale - Leaving The Blues Behind (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161427.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Blues from Russia (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161421.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Black Harbour - Cold Winter Blues (2020) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160143.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Anna Rudolph - Alter Ego (2015) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158716.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Deadwood - In the Meantime (2015) [MP3|320 кб/с] <Country Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158482.jpg" />
 </div>
 
 

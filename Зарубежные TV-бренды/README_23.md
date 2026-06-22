@@ -1,3 +1,109 @@
+###  Публикация: 649459   (809194) от 18.05.2013
+
+History Channel. Вселенная (2 сезон: 1-18 серии из 18) / The Universe (4-Disk Edition) (2007-2008) Blu-Ray [1080p]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809194.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом сериале с помощью современной компьютерной графики и, основываясь на передовых исследованиях в области космоса, создатели фильма смогли воссоздать то, что происходит на других планетах, в других галактиках, вообразить какие формы жизни могли бы развиться в других атмосферах. Вы сможете увидеть космические бедствия, параллельные вселенные, скорость света и узнать многое другое о тайнах космоса.Жанр: Документальный, ВидовойПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: Русские, английскиеПродолжительность: 18 серий по 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B46E8D95107F29FF99E0A7FC2555B0BEFA26A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119207   (809012) от 27.03.2017
+
+Discovery. Техногеника. Вертолеты-гиганты (2017) HDTVRip [H.264/720p-LQ] (Сезон 2)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вертолет В-12 конструкции Михаила Миля до сих пор вызывает восхищение. Во-первых, он остается самым большим по размерам и самым грузоподъемным в мире и по сей день, спустя почти 50 лет после первого полета. Рекорд грузоподъёмности в 45 тонн, зафиксированный в книге рекордов Гиннеса, не побит до сих пор. Американская ассоциация строителей геликоптеров присудила КБ (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E9EFE753668BB11FBA23159D3D560DF4FFEF5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504852   (807946) от 25.10.2021
+
+BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый документальный фильм Би-би-си на стыке антропологии, технологий и истории расскажет о том, как понимание теории сетей может помочь нам лучше разобраться в устройстве современного мира.
+
+Сегодняшние техногиганты утверждают, что интернет – это сила добра. Мол это инструмент, доступный каждому и разрушающий старые иерархии – теперь, как никогда раньше, любой из (   Читать дальше...   )Производство: США / BBC Studios, WNET/13Жанр: ДокументальныйРежиссер: Адриан ПеннинкПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149B21ED7F41A6ED0B6CC38CA5AD1318FBF016FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119402   (807219) от 28.03.2017
+
+Гений Джорджа Буля / The genius of George Boole (2016) WEBRip [H.264]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труды Джорджа Буля оказали огромное влияние на современные технологии. Лидеры отрасли и ученые со всего мира отдают должное одному из величайших героев планеты.Телекомпания: Великобритания / IndiGenius FilmsЖанр: ДокументальныйРежиссер: Стивен МизеласПеревод: Одноголосый закадровый, профессиональный (студии "Кириллица")Продолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8A22A78E430BCC4D41DDCF3A35544B8E95D6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119423   (806834) от 28.03.2017
 
 Хунань. Реальный мир Аватара / Hunan, l'autre monde d'Avatar (2016) HDTVRip [H.264/720p]
@@ -6,7 +112,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806834.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806412.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ BBC: Европа: История континента / BBC: Wild Europe (2005)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806340.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806224.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805968.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805843.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805840.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805678.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805676.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805563.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805559.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805354.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805349.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805228.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ BBC. Нетронутые уголки дикой природы / Nature's Micr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805117.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804245.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804201.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ Discovery. Величайшая загадка Эвереста / Everest's Grea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804131.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ BBC: Шок и Трепет. История электричества. Искр
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804068.jpg" />
 </div>
 
 
@@ -500,7 +606,7 @@ Discovery. Чудаки и акулы / Jackass Shark Week (2021) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804000.jpg" />
 </div>
 
 
@@ -526,7 +632,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803197.jpg" />
 </div>
 
 
@@ -552,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803098.jpg" />
 </div>
 
 
@@ -563,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F78E76E5568D1077524A7A4711689BD8AD3C1CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505784   (802492) от 28.10.2021
-
-BBC. Панорама. Нелегальная торговля органами / Exposing the Illegal Organ Trade (2020) WEBRip [H.264/1080p] (сезон 68, выпуск 35)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Би-би-си исследует одно из самых безобразных явлений современности – нелегальную торговлю человеческими органами. Этот прибыльный бизнес имеет инфраструктуру и хорошо налажен в Египте, где мигранты из стран Африки, стремящиеся в Европу, становятся легкой добычей преступных банд. У кого-то органы забирают силой, кого-то заманивают обещанием денег. Нередко вчерашние (   Читать дальше...   )Производство: Великобритания / BBC StudiosЖанр: ДокументальныйРежиссер: Лора БернсПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F271049D5E820A2049687AE8412532802E74E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198801   (802476) от 14.01.2018
-
-BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] (Сезон 1, серии 1-7 из 7) [PR]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон "Blue Planet" продолжает рассказ об исследовании малоизученные глубины мирового океана. Новейшие технологии дают возможность, как никогда прежде, взглянуть на водный мир Земли и показать зрителю исследованный край подводного мира, который ранее был недоступен человеческому глазу. Современное оборудование и опытные разработчики представят красочную (   Читать дальше...   )Производство: Великобритания, BBC Natural History UnitЖанр: Документальный, природа, путешествие, флора, фаунаРежиссер: Сэр Дэвид АттенбороПеревод: Дублированный (Николай Дроздов - все серии), Профессиональный (многоголосый, закадровый) ("ColdFilm" - все серии), Авторский (одноголосый, закадровый) ("Jimmy J." - 1-2 серии), Украинский (Ю.Онищенко (ник - Logos71) - 1-4 серии)Субтитры: Английские, УкраинскиеПродолжительность: серии ~ 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D116691246F63189B9942EA56DF02E72EDD9C8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199019   (802468) от 14.01.2018
-
-BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-LQ] (Сезон 1, эпизод 1-7 из 7)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что вода занимает две трети нашей планеты, о глубинах океана мы знаем меньше, чем о поверхности Луны. От известного до непознанного - новый документальный сериал "Голубая планета" открывает нам всю красоту и очарование океана, поражая воображение многообразием его обитателей. Сериал "Голубая планета" - это всестороннее и наиболее (   Читать дальше...   )Телекомпания: Великобритания, BBC Natural History UnitЖанр: Документальный, природа, путешествие, флора, фаунаРежиссер: Сэр Дэвид АттенбороПеревод: Дублированный (Николай Дроздов)Субтитры: отсутствуютПродолжительность: серии x ~ 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A92C97410843B0AE4C409EC1D1487AEE411660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541468   (802450) от 20.04.2014
-
-BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск / The Hunt for the Higgs - A Horizon Special (2012) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передача Горизонты Науки проникает за кулисы ЦЕРНа отслеживая одно из самых эпических и дорогих научных исследований всех времен и народов: поиск частиц Хиггса, которые, как полагают, дают массу всем частицам в нашей Вселенной. Тем не менее, охота за бозоном Хиггса является частью гораздо более грандиозных поисков, проясняющих как работает вся Вселенная. Она обещает помочь ответить на такие вопросы как, сама возможность нашего существования, а так же это жизненно важный фрагмент единой теории поля. В основе погони за неуловимыми частицами лежит особенность, которая делает снежинки красивыми и человеческие лица привлекательными: простая и очаровательная идея симметрии всего сущего...Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3947533E0C60991E5ADD45C96440FF14A3C6F755
 ```
 
 https://mybot314.ru/tekegram_catalog/

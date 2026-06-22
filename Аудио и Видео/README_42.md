@@ -1,3 +1,408 @@
+###  Публикация: 773810   (832763) от 04.04.2014
+
+Любовь и секс на Ибице / Verliefd op Ibiza (2013) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футболист Кевин только что заключил выгодный контракт с мадридским Реалом. Он вряд ли понимает, что делать со свалившимся на него богатством, но его подруга Эльза знает, как Кевин должен тратить свои миллионы… Две 40-летних подруги Джеки и Ирма хотя и проводят отпуск вместе, но имеют разные представления об идеальном отдыхе: Джеки предпочитает тусоваться с молодыми горячими парнями, тогда как Ирме милее спокойный отдых на пляже с книгой… Братья Дилан и Бойд мечтают стать DJ-звездами мирового класса… Пути всех этих героев пересекаются на острове Ибица.Жанр: Мелодрама, комедияПродюсер: Клаас де Йонг, Йохан Нийенхейс, Bert MeyerВ ролях: Виллеке ван Аммельрой, Йим Баккум, Рик Энгелкес, Ким Феенстра, Джаспер Готтлиб, Мариус Готтлиб, Симоне Клейнсма, Ян Коейман, Лоне ван Росендал, Дэвид ЛюсиерПеревод: Профессиональный (многоголосый закадровый)Язык субтитров: НемецкийПродолжительность: 1:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86AFF7BD63CA4C970D7C94BC60C49852841ED815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005661   (832471) от 09.04.2016
+
+Джой / Joy (2015) WEB-DLRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волнующая история четырех поколений семьи. В центре сюжета — девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: СШАЖанр: Драма, комедия, биографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Даша Поланко, Вирджиния Мэдсен, Изабелла Росселлини, Изабелла Крамп, Элизабет Рём, Ондреа ГадсбиПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 02:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47383DAF182B5A74515010A6ABB6C1CD8C667A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005543   (832405) от 09.04.2016
+
+Джой / Joy (2015) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волнующая история четырех поколений семьи. В центре сюжета — девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: СШАЖанр: Драма, комедия, биографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Даша Поланко, Вирджиния Мэдсен, Изабелла Росселлини, Изабелла Крамп, Элизабет Рём, Ондреа ГадсбиПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 02:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2640FA0837758483129D9FD142CF491E1D0226C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005553   (832402) от 09.04.2016
+
+Джой / Joy (2015) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волнующая история четырех поколений семьи. В центре сюжета — девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: СШАЖанр: Драма, комедия, биографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Даша Поланко, Вирджиния Мэдсен, Изабелла Росселлини, Изабелла Крамп, Элизабет Рём, Ондреа ГадсбиПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 02:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E26E629459995F24FB7F23E0469340BB38CD0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005216   (832222) от 09.04.2016
+
+Джой / Joy (2015) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волнующая история четырех поколений семьи. В центре сюжета — девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: СШАЖанр: Драма, комедия, биографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Даша Поланко, Вирджиния Мэдсен, Изабелла Росселлини, Изабелла Крамп, Элизабет Рём, Ондреа ГадсбиПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 02:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFDCF261EF995B3F659C312F0B2FAEE95C821F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114676   (831849) от 15.03.2017
+
+Тони Эрдманн / Toni Erdmann (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший учитель музыки, весельчак и выдумщик Винфред, решает наладить отношения с дочерью, успешным бизнес-консультантом одной из престижных корпораций. Чтобы завладеть ее вниманием, он выдает себя за эксцентричного бизнесмена Тони Эрдманна. Своими уморительными и шокирующими выходками он надеется изменить ее представление о жизни и завоевать место в ее сердце.Производство: Германия, АвстрияЖанр: Драма, комедияРежиссер: Марен АдеАктеры: Сандра Хюллер, Петер Симонишек, Михаэль Виттенборн, Томас Лойбл, Тристан Пюттер, Ингрид Бису, Хадевих Минис, Люси Расселл, Виктория Кочас, Александру Пападопол, Виктория МалекторовичПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские,  Английские,  НемецкиеПродолжительность: 2:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E03FBD0897F7EB45F2EFD8A6535DF6A5B19888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114687   (831831) от 15.03.2017
+
+Тони Эрдманн / Toni Erdmann (2016) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший учитель музыки, весельчак и выдумщик Винфред, решает наладить отношения с дочерью, успешным бизнес-консультантом одной из престижных корпораций. Чтобы завладеть ее вниманием, он выдает себя за эксцентричного бизнесмена Тони Эрдманна. Своими уморительными и шокирующими выходками он надеется изменить ее представление о жизни и завоевать место в ее сердце.Производство: Германия, АвстрияЖанр: Драма, комедияРежиссер: Марен АдеАктеры: Сандра Хюллер, Петер Симонишек, Михаэль Виттенборн, Томас Лойбл, Тристан Пюттер, Ингрид Бису, Хадевих Минис, Люси Расселл, Виктория Кочас, Александру Пападопол, Виктория МалекторовичПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские,  Английские,  НемецкиеПродолжительность: 2:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F32328F4594B721BA3918968ED540D5F6B88D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114354   (831680) от 15.03.2017
+
+Михаил Жванецкий | Одесские дачи (2008) [m4b|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831680.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вот мы все здесь собрались… В нашем городе… Возле нашего моря… Я хочу, чтоб мы жили вечно. Чтоб мы никогда не расставались. Чтоб погода была как на душе, чтоб на душе как этот вечер… И пусть мы живем… А он все это опишет. И пусть то, что он опишет, понравится всем и будет жить вечно».
+Он, Михаил Жванецкий, выполнил заказ: описал Одессу и одесситов – и тех, что уехали, (   Читать дальше...   )Жанр: ЮморФормат: M4BПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C187A829A7BA2CCB003934BCF5E739099EF1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114565   (831493) от 15.03.2017
+
+Дети Арбата (2004) DVDRip [576p] (16 серий из 16) iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец тридцатых, начало сороковых. Предвоенные и военные годы. Время великих достижений и время борьбы с врагами мнимыми и с врагами настоящими.
+Выросло новое поколение, которое работает, борется, влюбляется и хочет быть счастливым. Но еще не пришло время, чтобы любить и принадлежать только друг другу…
+В основу фильма положена трилогия Анатолия Рыбакова «Дети Арбата», (   Читать дальше...   )Производство: РоссияЖанр: Драма, Мелодрама, ВоенныйРежиссер: Андрей ЭшпайАктеры: Чулпан Хаматова, Евгений Цыганов, Евгения Симонова, Максим Суханов, Инга Стрелкова-Оболдина, Даниил Страхов, Ирина Леонова, Зоя Кайдановская, Владимир Симонов, Роман МадяновПеревод: Не требуется (русский)Продолжительность: 12:23:11 (03:05:52, 03:05:39, 03:06:26, 03:05:11)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573DA8201667684D58C50D38C63FA7DC8D80D258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880174   (831294) от 21.03.2015
+
+Шальная карта / Wild Card (2015) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — бывший военный Ник Эскаланте — работает в Лас-Вегасе охранником, мечтает накопить денег и навсегда уехать на остров Корсика. Но Ник соглашается помочь проститутке Холли, постоянно подвергающейся насилию со стороны сына крупного гангстера, из-за чего его отъезд откладывается.Производство: СШАЖанр: Боевик, триллер, драма, криминалРежиссер: Саймон УэстАктеры: Джейсон Стэйтем, Майкл Ангарано, Майло Вентимилья, Доминик Гарсиа-Лоридо, Энн Хеч, София Вергара, Макс Казелла, Джейсон Александр, Хоуп Дэвис, Стэнли ТуччиПеревод: Многоголосый закадровый (Paradox)Язык субтитров: Русский, АнглийскийПродолжительность: 01:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5DF3FB84689528E24C947EF2D974D16699A6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879020   (831288) от 21.03.2015
+
+Простушка / The DUFF (2015) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качок, ботан, рокер, стерва — в каждой компании есть персонажи с такими кличками. Бьянка Пайпер не подозревает, как ее зовут за ее спиной. Подружки списывают у нее физику и берут ее с собой на тусовки, чтобы круче смотреться на ее фоне. Школьный плейбой Уэсли Раш открывает ей глаза на правду… Как Бьянке избавиться от позорного статуса, стать неотразимой и завоевать (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Эри СанделАктеры: Мэй Уитман, Робби Амелл, Белла Торн, Бьянка А. Сантос, Скайлер Сэмюэлс, Романи Малко, Ник Эверсман, Крис Уайлд, Кен Жонг, Эллисон ДженниПеревод: Дублированный (iTunes Russian)Продолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F627C19F4143CBF50BDAE91FA9E311C96B8757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496273   (831086) от 13.10.2021
+
+VA - Blueberry Café, Vol. 2 (2016) [AAC|~329 Kbps] <Downtempo, House, Jazzy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jett Ricks, Adefunke Fayehoust - Lose You (Lemongras's Deep House Remix) (5:25)
+02. Marie Therese - Below the Horizon (6:16)
+03. Deepanima - Shine (Radio Edit) (4:31)
+04. Ingo Herrmann - Underground (Make Time) (4:18)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9CC6487CCE9FE0C1536F233D88DB36CB038F448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495981   (831085) от 13.10.2021
+
+VA - Chill out Magnifique, Vol. 2 (2019) [AAC|~339 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glam Sam & His Combo - Charmy (Original Mix) (3:10)
+02. Peter Pearson - Seeing in the Dawn (Original Mix) (5:27)
+03. L' Art Mystique - Romancing the East (Original Mix) (5:42)
+04. Beach Hoppers - I'm Right Here (Original Mix) (6:25)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61DF75135B10484DA3E3C782F31BD5A451B52F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496295   (831084) от 13.10.2021
+
+VA - Blueberry Café, Vol. 5 (2019) [AAC|~322 Kbps] <Downtempo, House, Jazzy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Trend - So Hurt Inside (Original Mix) (4:18)
+02. SENES - Dai Cresci Un Po' (Marco Celloni Bossa Touch Remix) (4:30)
+03. Alex & Chris, Shatti - With You (Collioure and Alex & Chris Re-edit) (8:19)
+04. Soul Trend - To Fall in Love Is so Easy (Original Mix) (3:53)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D2596D43A41C6DB904ADD52224FBDEAE01848B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496044   (831083) от 13.10.2021
+
+VA - Chill out Magnifique, Vol. 4 (2020) [AAC|~322 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genna Bell - Life Is Sweet (Original Mix) (4:21)
+02. Steen Thottrup - I Hope Yesterday Never Comes (Original Mix) (6:43)
+03. Paola Livia - Losing You (Original Mix) (5:14)
+04. Roberto Sol - Duality (Original Mix) (4:46)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CBF6DB3C60AFD2B525A2A2BBFF99BCC2989110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496043   (831082) от 13.10.2021
 
 VA - Chill out Magnifique, Vol. 3 (2020) [AAC|~327 Kbps] <Lounge, Downtempo, Chillout>
@@ -6,7 +411,7 @@ VA - Chill out Magnifique, Vol. 3 (2020) [AAC|~327 Kbps] <Lounge, Downtempo, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831082.jpg" />
 </div>
 
 
@@ -35,7 +440,7 @@ VA - Blueberry Café, Vol. 6 (2020) [AAC|~315 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831081.jpg" />
 </div>
 
 
@@ -64,7 +469,7 @@ VA - Lounge Moments, Vol. 2 (2021) [AAC|~323 Kbps] <Lounge, Downtempo, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831080.jpg" />
 </div>
 
 
@@ -93,7 +498,7 @@ VA - Blueberry Café, Vol. 7 (2020) [AAC|~301 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831079.jpg" />
 </div>
 
 
@@ -122,7 +527,7 @@ VA - Lounge Moments, Vol. 3 (2021) [AAC|~332 Kbps] <Lounge, Downtempo, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831078.jpg" />
 </div>
 
 
@@ -151,7 +556,7 @@ VA - Blueberry Café, Vol. 3 (2017) [AAC|~330 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831077.jpg" />
 </div>
 
 
@@ -180,7 +585,7 @@ VA - Blueberry Café, Vol. 4 (2019) [AAC|~312 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831076.jpg" />
 </div>
 
 
@@ -209,7 +614,7 @@ VA - Electronic Lounge Collection, Vol. 1 (2021) [AAC|~322 Kbps] <Electronic, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831075.jpg" />
 </div>
 
 
@@ -238,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830961.jpg" />
 </div>
 
 
@@ -264,7 +669,7 @@ VA - Buddhatronic - the Compilation, Vol. 4 (2019) [AAC|~328 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830944.jpg" />
 </div>
 
 
@@ -293,7 +698,7 @@ VA - Electronic Lounge Collection, Vol. 3 (2021) [AAC|~312 Kbps] <Electronic, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830943.jpg" />
 </div>
 
 
@@ -307,441 +712,6 @@ VA - Electronic Lounge Collection, Vol. 3 (2021) [AAC|~312 Kbps] <Electronic, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303DB5F7AF61FBAC0A54C21077AC9D8C11A4E00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498161   (830942) от 13.10.2021
-
-VA - Chilling On Purple Clouds, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup, Lunamila - The Lights (3:37)
-02. Cool Beach - Petals of Sound (2:18)
-03. Tim Angrave - Refined Interjection (6:41)
-04. Ben Mitchell - Blue-Sky Thinking (4:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704C65420A3D3AC0835078941D85BFE9A0EA2456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496251   (830941) от 13.10.2021
-
-VA - Global Lounge Masters, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane - Sunrise (5:37)
-02. Velvet Dreamer - Whisper of the Evening Sea (5:20)
-03. Lemongrass - Loving You (4:01)
-04. Soulounge, Florine Dimonye - Waiting in Vain (4:19)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65FD89D15D4FD01469751630EA8C471FB132A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496252   (830940) от 13.10.2021
-
-VA - Global Lounge Masters, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
-02. Aquascape - Sunrise (6:43)
-03. Five Seasons - In Your Town (3:55)
-04. T2'n - Charly One (4:35)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6A8D6641B04DF56F9E6DB6D025384B6FD42F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495980   (830939) от 13.10.2021
-
-VA - Chill out Magnifique, Vol. 1 (2019) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maximus, Ensemble Ethnique - Mystery of the Seven Chakras (Original Mix) (3:07)
-02. Jasmon - River of My Heart (Original Mix) (5:04)
-03. Jane Maximova - Clouds (Original Mix) (5:49)
-04. Abey Brown - Calma (Original Mix) (6:27)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1EAF7595F513A06F835B22F418077348F7BCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497891   (830938) от 13.10.2021
-
-Röyksopp - Junior (2009) [AAC|~349 Kbps] <Electronic, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Up Here (2:44)
-02. The Girl and the Robot (4:29)
-03. Vision One (5:00)
-04. This Must Be It (4:42)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71825F8BB7F7E83F30FE77B1A13B448F79E6942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498559   (830937) от 13.10.2021
-
-VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 2 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Of The Earth - Afterglow (Longglow Edit) (5:37)
-02. Manyus Joan Eta - Sea Ballad (5:34)
-03. VAN - Others City (6:19)
-04. Ialaz - Interlude 2 (1:50)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4B47141C76BBB68C816173DA727C91B9FFF18C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497390   (830936) от 13.10.2021
-
-VA - Buddhatronic - the Compilation, Vol. 2 (2017) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Blue Sun (Ambient Lounge Mix) (5:34)
-02. Pascheba - Nirvana (3:28)
-03. Buddhatronic - World of Grace (Mystic Voice Mix) (4:54)
-04. Artenovum - Francesca (Mystic Dream Mix) (4:55)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CD7D1456E62C3270DEC0321C309B96DD5806BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497392   (830935) от 13.10.2021
-
-VA - Buddhatronic - the Compilation, Vol. 3 (2018) [AAC|~320 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - Here We Go Again (Buddha Chillout Mix) (5:44)
-02. Artenovum - Eehee (Mystic Voices Enigmatic Mix) (4:51)
-03. Book of Dreams - Garden of Secret (Mystic Sphere Mix) (5:38)
-04. Buddhatronic - Granular Dreams (Send Me an Angel Mix) (4:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199BF1785FF355E5370305E6F18979FBA23A0C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495594   (830934) от 13.10.2021
-
-Dark the Suns - Suru Raivosi Sydämeni Pimeydessä (2021) [AAC|~339 Kbps] <Melodic Death, Gothic Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit in the Dark (3:57)
-02. Everywhere (5:05)
-03. Suru Raivosi Sydämeni Pimeydessä (4:21)
-04. Hope in Our Hands (4:48)(   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9DAE09C37CE7AEE93B94F8A7445B7D86F4BD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496271   (830933) от 13.10.2021
-
-VA - Blueberry Café, Vol. 1 (2013) [AAC|~333 Kbps] <Downtempo, House, Jazzy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoulAvenue - Stuck in a Dream (4:14)
-02. JULIAS MOON - Bay (2:47)
-03. Roberto Sol, Florito, Sandra Muhuri - Impress Me (4:46)
-04. Luis Hermandez - Summer Feeling (3:16)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4ABFC5AD24B8C82F35E0C54655697417A17B9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497226   (830932) от 13.10.2021
-
-Chillhop Guitar - Spring from the soul (2021) [AAC|~295 Kbps] <Chill Out, Smooth Jazz, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montecristo (5:18)
-02. Lounge with my Valentine (7:39)
-03. Vinyl in the Clouds (3:13)
-04. Sunset Walk (4:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4760D974747AD3D184565CC8603B73D716A172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497187   (830931) от 13.10.2021
-
-VA - Luxury Lounge Sunset, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Don't Want Your Love (3:06)
-02. Music Of The Earth - The Lofi Jazz Pattern (3:27)
-03. Five Seasons - Caminho De Amor (5:16)
-04. Green Pine River - Skyfall (D-Soriani Bossa Edit) (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A2BA959EB359FF0DCBD4E7F4B31D39259F65DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497138   (830930) от 13.10.2021
-
-VA - Magic Island of Chill Out, Vol. 2 (2021) [AAC|~322 Kbps] <Lo-Fi, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twins In Mind - Intro (1:24)
-02. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
-03. Tom Tom Club - Love to Love You Baby (Vavinchi Remix) (6:34)
-04. Miper - Relax (3:16)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A961DE343C345AFD62505AC18CC765F496B834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498524   (830929) от 13.10.2021
-
-VA - Fireplace Chill, Vol. 7 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feindrehstar - Love & Hoppiness Int. (Original Mix) (2:33)
-02. Slow World - Caravan (Original Mix) (4:58)
-03. Marc Hartman - Into the Stone (Original Mix) (4:16)
-04. Placid Larry - Blossoming (Original Mix) (2:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A87279C1D4867A855E2CEDCD498D0B8682F9852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496947   (830928) от 13.10.2021
-
-VA - Electronic Lounge Collection, Vol. 2 (2021) [AAC|~314 Kbps] <Electronic, Downtempo, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Mars - Walking on the Street (Original Mix) (3:31)
-02. Florent Campana - Pentimento (Original Mix) (3:00)
-03. CaPa - To Be Thoughtful (Original Mix) (4:39)
-04. Hill Video - Loyal Cruise (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62488073927E2DA482CBFE30DE453561D1CF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

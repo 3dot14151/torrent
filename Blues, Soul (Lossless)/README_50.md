@@ -6,7 +6,7 @@ Drew Sterchi - Left Here With The Blues (2012) [FLAC|Lossless]<Blues, Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688049.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Jeff Golub - The Vault (2015) [FLAC|Lossless]<Blues, Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687750.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Memory Motel: Inside the World of Keith Richards (2019) [FLAC|Lossless|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686636.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Neal Black And The Healers - A Little Boom Boom Boom (2020) [FLAC|Lossless|image
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686580.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - I Wanna Sex You Up - R'n'B For Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686474.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ CeeBee - Hopes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686420.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Dedicated Men of Zion - The Devil Don't Like It (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686165.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kenny 'Blues Boss' Wayne - Blues From Chicago To Paris (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686150.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wolfpin - Remember (2009) [FLAC|Lossless|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682773.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Blues 2000 (2000) Unofficial Release [APE|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682362.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Bona Fide - The Soul Movers (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682088.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Curtis Salgado & Alan Hager - Rough Cut (2018) [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682084.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Curtis Mayfield - Keep On Keeping On: Curtis Mayfield Studio Albums 1970-1974 (2
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681985.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Joe Louis Walker, Bruce Katz, Giles Robson - Journeys To The Heart Of The Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681880.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Hoochie Coochie Men & Jon Lord - Danger White Men Dancing (2007) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681249.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Lara Price - Faces of the Blues (2002) [FLAC|Lossless|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680343.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ B.B. King - Do The Boogie! B.B. King's Early 50s Classics (1988) [FLAC|Lossless]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679643.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Scotty Meyer Band - Pay The Price (2004) [FLAC|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679291.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Kathy Boye & The DTG Gang - I Feel Alive (2018) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679282.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ AG Weinberger - ReBorn (2018) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678346.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - The Best Of Blues - Величайшие мировые хиты (2000) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676356.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Mississippi Heat - Madeleine (2022) [FLAC|Lossless|image + .cue] <Modern Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674770.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Nick Waterhouse - Nick Waterhouse (2019) [FLAC|Lossless|tracks + .cue] <Blues, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674343.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Barry White - Barry White's Greatest Hits (1975) Remaster, 1988, Casablanca [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672764.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ The Cheaters - Train to Wilderness (2008) [FLAC|Lossless|image + .cue] <British 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672406.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Robin Trower - Coming Closer To The Day (2019) [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672323.jpg" />
 </div>
 
 

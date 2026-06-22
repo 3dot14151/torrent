@@ -1,3 +1,159 @@
+###  Публикация: 1785241   (24626) от 15.03.2025
+
+Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гайде 3 - это долгожданное продолжение серии "Гайде", которое сюжетно свяжет первую и вторую части. Как и прежде, это игра о героине, запертой в странном комплексе, полном тайн, ловушек и врагов. 6 новых тематических зон подарят Вам незабываемые ощущения потерянности, безысходности и отчаяния. Расчехляйте свои пистолеты и отвертки, вытряхивайте мусор из (   Читать дальше...   )Тип издания: RepackРазработчик: Haydee InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF85535FE66183CE601028E2AB185729B72EE81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785468   (24536) от 16.03.2025
+
+Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название игры Assassin's Creed IV: Black Flag целиком и полностью отражает ее суть. Как известно, черный флаг – первый и самый очевидный признак корабля пиратов, ведь ни одна шхуна не ходила под знаменем «Веселого Роджера», за исключением пиратских, разумеется. Именно тематике морских разбойников была посвящена четвертая часть славно известной серии Ассасин Крид, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montréal, Ubisoft Toronto, Ubisoft BucharestЖанр: Экшен, Ролевые игры, ПриключeнияЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513F69A1AB1838A06286B976A66F3D982CF9953E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785504   (24505) от 16.03.2025
+
+A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack dixen18
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лео и Винсент - два парня, мотающих срок в хорошо охраняемой тюрьме. Еще вчера они не были даже знакомы, но сегодня у них просто не осталось иного выхода… и они решаются на побег. A Way Out — приключение исключительно для совместной игры, где вам предстоит примерить роль одного из двух заключенных, задумавших побег. Рывок на свободу быстро становится захватывающим (   Читать дальше...   )Тип издания: RepackРазработчик: HazelightЖанр: Adventure, Action, TPSЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68979524B660DB789DD841101032297DE991F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785490   (24492) от 16.03.2025
+
+Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Wanterlude [Ultimate Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрушающее присутствие захватило Федеральное бюро контроля... Только вы в силах остановить его. Весь мир становится вашим оружием в грандиозной битве со зловещим врагом в многомерных непредсказуемых условиях. Политика сдерживания провалилась, на карту поставлена жизнь человечества. Вы сможете восстановить контроль?Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF35A8D4E0906B05B41AD8EE10518878E01A893D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785462   (24463) от 16.03.2025
+
+Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрушающее присутствие захватило Федеральное бюро контроля... Только вы в силах остановить его. Весь мир становится вашим оружием в грандиозной битве со зловещим врагом в многомерных непредсказуемых условиях. Политика сдерживания провалилась, на карту поставлена жизнь человечества. Вы сможете восстановить контроль?Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44654DA8030F0809E7610382D37C210AE217039C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785706   (24401) от 17.03.2025
+
+Ethereal Abyss (2025) [Ru/Multi] (1.1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ethereal Abyss - это однопользовательский шутер от третьего лица с элементами психологического хоррора, вдохновлённый The Backrooms. Исследуйте многомерные уровни, решайте головоломки с механикой инверсии времени и сопротивляйтесь порабощению собственного разума.Тип издания: RepackРазработчик: Playton GamesЖанр: Экшены, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB155A9FF53FBD2A9B50769FB85F13967192B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776052   (24397) от 17.03.2025
 
 NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
@@ -6,7 +162,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24397.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24390.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24229.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack seleZen [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24200.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.08.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23584.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.13/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23554.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23270.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.7.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23189.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23153.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23142.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23054.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ The Thing: Remastered (2024) [Multi] (1.1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22866.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 17692767) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22760.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22514.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.401.1.0/dlc) Repack seleZen [Digital 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22448.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (1.01 patch 2) Licen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22420.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21262.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21157.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20933.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Deceptico
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20851.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:214D97BD3504B773FC82CE1DDADC60ED0800BA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792701   (20834) от 20.04.2025
-
-Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0 patch 1) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погрузиться в легендарные приключения Лары Крофт с улучшенной графикой и современными эффектами. Путешествуйте по миру следуйте за Ларой Крофт по культовым местам, включая Каир, Рим, Париж и многие другие места. Испытайте самые мрачные приключения Лары и раскройте тайны прошлого Лары Крофт, пролейте свет на (   Читать дальше...   )Тип издания: LicenseРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1760507871D6FA1EBEA7257B935AD6D59129DF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792911   (20746) от 21.04.2025
-
-Block Fortress 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Block Fortress 2 переносит игрока на поверхность выбранной планеты, где предстоит возвести крепость для обороны. Нужно сооружать фортификации из имеющихся блоков, а затем готовиться к сражениям. Геймеры экипируют персонажей вооружением, расставляют отряды под управлением ИИ и лично защищают построенный опорный пункт от непрекращающихся атак противника. Чтобы уцелеть (   Читать дальше...   )Тип издания: RepackРазработчик: Foursaken MediaЖанр: Экшены, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074D55033DA685248D6D5864EC91DBE56C085D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793139   (20654) от 22.04.2025
-
-Haydee III (3) (2025) [Ru/Multi] (1.0.21.1529/dlc) Repack Other s [18+]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гайде 3 - это долгожданное продолжение серии "Гайде", которое сюжетно свяжет первую и вторую части. Как и прежде, это игра о героине, запертой в странном комплексе, полном тайн, ловушек и врагов. 6 новых тематических зон подарят Вам незабываемые ощущения потерянности, безысходности и отчаяния. Расчехляйте свои пистолеты и отвертки, вытряхивайте мусор из (   Читать дальше...   )Тип издания: RepackРазработчик: Haydee InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2F81C877B9A9C4EBE6DB13EC7029C68893C125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792704   (20632) от 22.04.2025
-
-O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в атмосферу таинственности, магии и хаоса. Сражайтесь в невероятных многоуровневых 3D-мирах в поисках волшебной зеленой жемчужины, которая поможет спасти миллионы людей от уничтожения. С рукопашным боем, разрушительной силой оружия и удивительными магическими заклинаниями, O.D.T. ведет вас вглубь таинственной башни, полной ужасных врагов и скрытых опасностей (   Читать дальше...   )Тип издания: LicenseРазработчик: Psygnosis LimitedЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793089   (20619) от 22.04.2025
-
-Devil May Cry 5 (2019) [Ru/Multi] (1.0.11025947/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший охотник на демонов возвращается в новом стильном боевике. В пятой части легендарной серии Devil May Cry вы вновь сможете насладиться сверхскоростными сражениями с участием невероятных персонажей. Новейшие технологии компьютерной графики позволили Capcom создать этот непревзойденный шедевр жанра экшен.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75977D75F6A4D36AB6DC8951CF5D74BAB0441F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793294   (20527) от 23.04.2025
-
-Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Seed - захватывающая приключенческая экшен-игра от команды разработчиков, выпустивших ранее высоко оцененную Close to the Sun. Основное действие новой игры разворачивается в мрачном научно-фантастическом мире, где человечество стоит на грани вымирания. Присоединяйтесь к главной героине Зои и её летающему дрону-компаньону Koby, исследуя глубины враждебного подземного (   Читать дальше...   )Тип издания: RepackРазработчик: Storm in a TeacupЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E765DD6AC5613FB5F6AC4EB6FFF4018A9868772
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1082986   (275360) от 14.12.2016
+
+Space Rift NON VR (2016) [En] (1.0) License CODEX [Episode 1]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275360.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPACE RIFT — захватывающее космическое приключение с увлекательным сюжетом. Игра изначально создавалась для виртуальной реальности, но эта версия оптимизирована для игры без технологии VR. После губительного метеоритного дождя Земля превратилась в бесплодную пустыню. Человечество было вынуждено перебраться на Марс, где и живет под жестоким гнетом мегакорпораций WEYSS (   Читать дальше...   )Тип издания: LicenseРазработчик: Vibrant CoreЖанр: Adventure (Space), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089A85BB3D27E1FACC8E9429167673DAED8726D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083008   (275348) от 14.12.2016
 
 The Butterfly Sign (2016) [Ru/Multi] (1.1.1) License PLAZA
@@ -6,7 +32,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275348.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274157.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Elena (2016) [En/Ge] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271912.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271863.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270197.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212) License PLAZA [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270053.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Far Cry 3 (2012) [Ru/En] (1.05/dlc) Repack xatab [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270008.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ SOMA (2015) [Ru/Multi] (1.500) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267486.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267466.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (2.0.1/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267271.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265623.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264757.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264332.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88874/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264160.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Emily Wants to Play Too (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264038.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263461.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Sniper: Ghost Warrior 2 (2013) [Multi] (3.4.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263428.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/Multi] (3.8.6/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263083.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261654.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Killbug (2023) [En] (1.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260755.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260733.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260717.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260672.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260144.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Quake II (1997) [Ru/Multi] (1.0.6002.0/dlc) Repack Necros [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258064.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Quake II - знаменитый шутер 1997 года с видом от пе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD8EBD2D1DEDC1D4CE419A7FA910EA6DCEFB4876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837854   (257615) от 19.11.2025
-
-Risk of Rain 2 (2020) [Ru/Multi] (1.4.0#840/dlc) Repack Necros
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Risk of Rain 2 - это кооперативный шутер от третьего лица с элементами roguelike, где игроки спасаются с враждебной инопланетной планеты, сражаясь с монстрами и собирая предметы для усиления. Сюжет игры заключается в попытке команды выжить и найти другие корабли на планете Петрикор V. Особенностью является возрастающая сложность, процедурная генерация уровней, врагов (   Читать дальше...   )Тип издания: RepackРазработчик: Hopoo GamesЖанр: Экшены, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0457EBEF2BD66488A3036B4D2D8B347C1DC03C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Celldweller - Wish Upon A Blackstar (Deluxe Edition) (2012) [MP3|320 кб/с]<In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253808.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ John 5 - God Told Me To (2012) [MP3|320 кб/с]<Alternative Metal / Instrumenta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253455.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Gossip - A Joyful Noise (2012) [MP3|320 кб/с]<Indie Rock / Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253205.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Greg Puciato - 3 Albums (2020-2022) [MP3|320 Kbps] <Alternative Rock, Grunge, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250522.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Biohazard - Divided We Fall (2025) [MP3|320 Kbps] <Rapcore, Hardcore, Crossover>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248553.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Scalp - Black Tar (2023) [MP3|320 Kbps] <Death Metal, Grindcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245816.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Pierce The Veil - The Jaws of Life (2023) [MP3|320 Kbps] <Post-Hardcore, Pop-Pun
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244025.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Dosser - Violent Picture / Violent Sound (2023) [MP3|320 Kbps] <Alternative, Pos
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242964.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Life's Addiction - Inner Shade (1997) [MP3|320 Kbps] <Alternative Rock, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242931.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ The Used - Toxic Positivity (2023) [MP3|320 Kbps] <Alternative Rock, Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242839.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242812.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242749.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Immerse - The Weight That Holds Me Here (2021) [MP3|320 Kbps] <Post-Hardcore, Me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242731.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Enter Shikari - A Kiss for the Whole World (2023) [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242702.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ August Burns Red - Guardians (2020) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242153.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Northlane - 6 альбомов + 1 EP (2010-2022) [MP3|320 кб/с]<Progressive 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241413.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Marina - Nuclear (2023) [MP3|320 Kbps] <Metalcore, Deathcore, Post-Hardcore, Ele
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_240974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240974.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Fame on Fire - LEVELS (2020) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240567.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ From Fall to Spring - Rise (2023) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240126.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Counterparts - A Eulogy For Those Still Here (2022) [MP3|320 Kbps] <Metalcore, H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238533.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Within Destruction - Lotus (2022) [MP3|320 Kbps] <Nu Metalcore, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238436.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Planet On A Chain - 2 Albums (2022-2023) [MP3|320 Kbps] <Alternative, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237804.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ White Denim - Relaxed (2023) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237016.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ The Replacements - Sorry Ma, Forgot To Take Out The Trash (1981) Deluxe Edition,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236804.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Purity - Animus (2021) EP [MP3|320 Kbps] <Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235651.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Death from Above 1979 - Is 4 Lovers (2021) [MP3|320 Kbps] <Alternative, Indie Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235633.jpg" />
 </div>
 
 

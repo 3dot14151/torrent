@@ -7,7 +7,7 @@ Cactus - Temple Of Blues II (2026) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063721.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Philip Shouse - Side 1 (2026) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060124.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Lash! - Crank It Up (1989) 2026 [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059383.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Mayhem Mavericks - I Can Feel The Heartache (2026) [MP3|320 Kbps] <Melodic Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054713.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Nite Stinger - What The Nite Is All About (2026) [MP3|320 Kbps] <Melodic Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053531.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Peter Criss - Peter Criss (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049607.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Erik Gronwall - Eriksplanations Vol. 3 (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047278.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Pristine - The Lines We Cross (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Bluesy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043937.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Arctic Rain - 2 Albums (2020-2023) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043564.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Electric Mob - 4 Albums (2017-2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043563.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Adapter Adapter - Sleep Spell (2023) [MP3|320 Kbps] <Heavy Rock, Swamp Blues, St
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042876.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Riot After Midnight - Riot After Midnight (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042549.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gary Schutt - Drastic Measures (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042296.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Sacrifice - Sex With Death (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042283.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Slow Burning Car - Projection (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042037.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Sammy Hagar & The Circle - Lockdown 2020 (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041490.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Be The Wolf - Torino (2021) [MP3|320 Kbps] <Hard Rock, Alt. Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041488.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Scott Seabock & The Unshakables - God Only Knows (2021) [MP3|320 Kbps] <Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041487.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Magnum - Dance Of The Black Tattoo (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041478.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ The Instatute - The Instatute (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041150.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Trust - Recidiv: Trvst I-II-III (2020) 3CD Boxset [MP3|320 Kbps] <Hard-Rock, Hea
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041115.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ The Almas - Truth Sells (2021) [MP3|320 Kbps] <Original Modern Hard Rock, Female
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041077.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Crushing Ground - Digital Vultures (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040915.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Black Cat Moan - 3 Albums (1991-2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040599.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Worldwide Panic - Worldwide Panic (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040166.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Hessler - When The Sky Is Black (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040113.jpg" />
 </div>
 
 

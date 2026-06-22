@@ -6,7 +6,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054897.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054116.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054115.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054114.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054113.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054112.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054111.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054110.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054109.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053425.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053032.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053007.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052970.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052909.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052435.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052320.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052288.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052065.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051854.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051793.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051519.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050430.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050132.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049697.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049324.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048344.jpg" />
 </div>
 
 

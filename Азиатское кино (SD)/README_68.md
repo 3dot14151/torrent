@@ -1,3 +1,81 @@
+###  Публикация: 1762018   (36406) от 23.11.2024
+
+Остров / Seom / The Isle (2000) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36406.jpg" />
+</div>
+
+
+###  Подробнее
+
+По безмятежной глади озера дрейфуют плавучие рыбацкие домики. Их хозяйка, загадочная и молчаливая Хи-джин, днём продаёт рыбакам еду, а ночью – своё тело. Она покорно терпит издевательства своих гостей, не подозревающих, что их жизнь целиком зависит от её воли и капризов. Но когда в одном из домиков поселяется бывший полицейский, убивший свою подругу, между ним и (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, Myung FilmsЖанр: драма, триллерРежиссер: Ким Ки ДукАктеры: Чон Со, Ю Сок Ким, Сун Хи Пак, Чжэ Хён Чо, Хан Сон Чан, Ким Ё Чжин, Вон Со, Да Хён Хан, Ё Чжин КимПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C67934AB61B12FDF877549CFF969E47EC83A76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762242   (36271) от 24.11.2024
+
+V.I.P. / V.I.P. / Beuiaipi (2017) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36271.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2008 году в Северной Корее группа сынков высокопоставленных членов партии убивает молоденьких девушек, предварительно поиздевавшись над ними. Ошалев от собственной безнаказанности, они вырезают семью одной из жертв, включая маленьких детей. Начальник следственной группы, пытавшийся расследовать массовое убийство, "попал под раздачу" — он и вся его команда (   Читать дальше...   )Производство: Южная Корея / Goldmoon Film, Peppermint & CompanyЖанр: криминал, боевик, триллерРежиссер: Хун Чжон ПакАктеры: Дон Гон Чан, Мён Мин Ким, Хи Сун Пак, Чон Сок Ли, Петер Стормаре, У Джин Чо, Ин Хо Тэ, Дэ Хван О, Чжэ Мён Ю, Сон Ун Пак, Чжон Хак Сон, Ён Гю Сон, Чжин Мо Чу (II), Чон У ЧхвеПеревод: профессиональный многоголосый, любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (ФСГ 'МАНИЯ'), английскиеПродолжительность: 02:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F73ABBCF058282E3B1FF6167279B098DF730993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762396   (36174) от 25.11.2024
+
+Томиэ / Томие / Tomie (1998) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейскому достаётся довольно запутанное расследование таинственной смерти старшеклассницы по имени Томие Каваками. В ходе расследования он выясняет, что после её смерти несколько учеников и учитель или покончили с собой, или сошли с ума. Подняв архивы, полицейские находят странную вещь. За несколько лет до этого некая Томие Каваками была убита в деревенской глуши. (   Читать дальше...   )Производство: Япония / Art Port Inc., Daiei StudiosЖанр: ужасы, детективРежиссер: Атару ОикаваАктеры: Мами Накамура, Михо Канно, Ёрико Догути, Томорово Тагути, Кота Кусано, Каэ Минами, Кэндзи Мидзухаси, Руми, Икко Судзуки, Дзюндзи ИтоПеревод: авторскийЯзык озвучки: русский, японскийСубтитры: русские (Oxana_L), английскиеПродолжительность: 01:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AEB817A6F99BD31893D3E6318D565D602F5A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762580   (36050) от 26.11.2024
 
 Я жду / Ore wa matteru ze (1957) BDRip [H.264] [VO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36050.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35963.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35751.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35645.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35256.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35200.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34964.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34886.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34696.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34557.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34436.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33903.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33662.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33421.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32929.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32825.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32821.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30736.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30312.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30299.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29024.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28915.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28700.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C15853C84B3B514E9160357B7C38C3CC3BD7C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762845   (28434) от 07.02.2025
-
-Операция "Кровавая охота" / Operation Blood Hunt (2024) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годы Второй мировой войны на один из островов в Тихом океане американское командование отправляют команду отчаянных головорезов. Их задача выяснить, почему пропала связь с военным лагерем морских пехотинцев. Есть подозрение, что случилось это в результате нападения японцев. Но ещё более вероятно, что с крутыми солдатами справиться смогли только оборотни, населяющие (   Читать дальше...   )Производство: Таиланд / Hillin Entertainment, BGG Capital, Benetone FilmsЖанр: ужасы, боевикРежиссер: Луис МэндилорАктеры: Куинтон Джексон, Луис Мэндилор, Джонатан Риз Майерс, Соня Кулинг, Майлс Клохесси, Гари Кейрнс II, Питер Добсон, Чанте Эванс, Мэверик Кан Мл., Эмма ЛундПеревод: Дублированный (Марафон)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AEC83A731E8F336A9C1447387ECA25102197BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777899   (28329) от 08.02.2025
-
-Провал во времени / Sengoku Jieitai (1979) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28329.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета лежит роман Рё Ханмуры... Во время учений группа солдат японской армии в процессе ночной передислокации попадает в аномальную зону, из-за чего оказывается в самурайской Японии периода междоусобных войн. Объединившись с одним из правителей, командир подразделения решает с помощью современного оружия завоевать всю страну...Производство: Япония / Kadokawa Haruki JimushoЖанр: фантастика, боевик, приключенияРежиссер: Мицумаса СайтоАктеры: Сонни Чиба, Дзюн Это, Тоситака Ито, Харуки Кадокава, Хироси Камаяцу, Кэндзо Каварадзаки, Асао Койкэ, Кэнтаро Кудо, Ко Курайси, Масао Кусакари, Ёити Миура, Нобору Накая, Микио Нарита, Исами Нацуки, Исао НацуягиПеревод: профессиональный многоголосый закадровый (Инис / ТВ-3), авторский(Сергей Кузнецов; Александр Смирнов)Язык озвучки: русский, японскийСубтитры: русскиеПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F422A1D14D8505E25FAECED37FA21E9D47A29F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780171   (27370) от 17.02.2025
-
-Сломленная ярость / Broken Rage (2024) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилой наёмный убийца по прозвищу Мышь получает от загадочного М конверты, в которых содержится информация о его «клиентах». Однажды полицейские ловят киллера и вынуждают внедриться в группировку якудза, контролирующую продажу наркотиков в Токио.Производство: Япония / Amazon MGM Studios, T.N Gon CompanyЖанр: комедия, криминалРежиссер: Такеши КитаноАктеры: Такеши Китано, Таданобу Асано, Нао Омори, Сидо Накамура, Хакурю, Такаси Нисина, Сёхэи Уно, Масато Яно, Адзуса Бабадзоно, Масанори ХасэгаваПеревод: Многоголосый профессиональный (1Win Studio)Язык озвучки: русский, японскийСубтитры: русские, английские, японскиеПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5888BA8F5E1C57BD384199C9F621BC32CE482714
 ```
 
 https://mybot314.ru/tekegram_catalog/

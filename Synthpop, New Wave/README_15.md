@@ -1,3 +1,61 @@
+###  Публикация: 1755709   (40090) от 17.10.2024
+
+Lusa - The Colour Of Space (2024) [MP3|320 Kbps] <Electronic, Synthpop, Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TMAAS (with Beth Malcolm) (4:37)
+02. Probably (with Beth Malcolm) (3:55)
+03. Hawea (6:06)
+04. Crosses (with Beth Malcolm) (5:51)(   Читать дальше...   )Жанр: Electronic, Synthpop, PopПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5F840C059C2FF1B34DE68265A10EC9447D2191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759087   (38086) от 06.11.2024
+
+Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Punk, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In The Sun [00:03:49]
+02 - X Offender [00:03:05]
+03 - Hanging On The Telephone [00:02:04]
+04 - Detroit 442 [00:02:50](   Читать дальше...   )Жанр: New Wave, Punk, Synth-popПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19DFFE8897D729B208F53FA7DEDEB8AEBE73B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763841   (35312) от 03.12.2024
 
 Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
@@ -6,7 +64,7 @@ Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35312.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33034.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Yuri Sosnin - Travel into Space (2024) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33031.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31736.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ EhRah - Beyond The Sky (2024) [MP3|320 Kbps] <Synthwave, 80s Retrowave, Disco Ho
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29592.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27303.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Kraftwerk - At The Cirkus (2004) Remastered, 2025, LEFTFIELD MEDIA [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26068.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Cosmic Force - Future Mind (2024) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24895.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Declaration - Behind Your Smile (2025) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23631.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Pet Shop Boys - Discography - Complete Singles Collection (1991) [MP3|320 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12137.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Sequence Vogue - Perspectives (2025) [MP3|320 Kbps] <Synthpop, Futurepop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3318.jpg" />
 </div>
 
 

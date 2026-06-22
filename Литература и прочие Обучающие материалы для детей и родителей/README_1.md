@@ -1,3 +1,133 @@
+###  Публикация: 1864279   (1064618) от 
+
+А.П. Ершова, В.В. Голобородько | Геометрия. 7 класс (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник для 7 класса общеобразовательных учебных заведений с обучением на русском языке.Жанр: МатематикаИздательство: РанокФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3C447ACA1B5A14BB4186066307B354B1EE14B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864283   (1064617) от 
+
+А.П. Ершова, В.В. Голобородько | Геометрия. 8 класс (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник для 8 класса общеобразовательных учебных заведений с обучением на русском языке.Жанр: МатематикаИздательство: РанокФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21DF8D784643F853ECCB54FE4112087E80AA1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864285   (1064616) от 
+
+А.П. Ершова, В.В. Голобородько | Геометрия. 9 класс (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник для 9 класса общеобразовательных учебных заведений с обучением на русском языке.Жанр: МатематикаИздательство: РанокФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0046CC370CAE793975745FD2A8E3F988DC78A8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864292   (1064609) от 
+
+В.В. Казаков | Геометрия. 9 класс (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для 9 класса учреждений общего среднего образования с русским языком обучения.Жанр: МатематикаИздательство: Народная асветаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A174D35BBEB68816FEDEBD728B3C20FE9388E1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864289   (1064608) от 
+
+В.В. Казаков | Геометрия. 7 класс (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для 7 класса учреждений общего среднего образования с русским языком обучения.Жанр: МатематикаИздательство: Народная асветаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748B122B189A1F96D7B439C24C3702A69807866E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864328   (1064586) от 
 
 Г.Н. Солтан и др. | Геометрия. 8 класс (2018) [PDF]
@@ -6,7 +136,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064586.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064583.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064582.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064578.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064572.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064567.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064565.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064239.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063564.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063127.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062996.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062995.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062994.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062738.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062268.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062267.jpg" />
 </div>
 
 
@@ -428,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061981.jpg" />
 </div>
 
 
@@ -454,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061894.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061849.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061680.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061650.jpg" />
 </div>
 
 
@@ -543,138 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755533632CC7103F1E11FC7F61C7EADD37196EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859670   (1061246) от 17.03.2026
-
-Книжная серия | Страницы истории [5 книг] (2016-2022) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избранные исторические рассказы о героических страницах русской истории и выдающихся русских полководцах. Юным читателям предстоит узнать много интересного о правлении царя Ивана Грозного и других русских царей и самозванцев в начале XVII века, о войне царя Петра Первого со шведами за выход к Балтийскому морю, о славных победах генералиссимуса Александра Васильевича (   Читать дальше...   )Жанр: История, детскоеИздательство: Детская литератураФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5D7C271A126B04F3131E6FB1087D3EEAC6C1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859259   (1060801) от 15.03.2026
-
-Дуань Чжан Цюй И | Планеты Солнечной системы (2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Солнечной системе восемь планет, и у каждой из них свои особенности! Хочешь узнать какие? Тогда открывай эту книгу и проведи 24 часа в космосе вместе с летательными аппаратами, которые отправились в путешествие к планетам Солнечной системы! Ты прочтёшь о том, что такое пояс астероидов и из чего состоят кольца Нептуна, выяснишь, почему Марс красного цвета, как называется (   Читать дальше...   )Жанр: Астрономия, энциклопедии, детскоеИздательство: АзбукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8086428569BA91BB85EE6D6CFF6FEAA57CB0BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859260   (1060800) от 15.03.2026
-
-Александр Острошабов | Змеи, ящерицы, черепахи (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга биолога, герпетолога, популяризатора науки и художника-иллюстратора Александра Острошабова, рассказывает о тех рептилиях, которых мы можем увидеть в дикой природе нашей страны или уезжая на отдых в другие части мира. Надеемся, что, прочитав книгу, дети запомнят и перестанут боятся этих животных, тем самым спасая часто незаслуженно отвергаемых из-за необычной (   Читать дальше...   )Жанр: зоология, энциклопедии, детскоеИздательство: Аванта (АСТ)Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30237A690185AD3C62133C7E578A5DC13A1B07BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857904   (1060036) от 07.03.2026
-
-Л.П. Шелгунова (пер.) | Тысяча и одна ночь. Сказки Шахерезады. Самая полная версия (2020) [PDF, FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди памятников мировой литературы очень мало таких, которые могли бы сравниться по популярности со сказками “Тысячи и одной ночи”, завоевавшими любовь читателей не только на Востоке, но и на Западе. Трогательные повести о романтических влюбленных, увлекательные рассказы о героических путешествиях, забавные повествования о хитростях коварных жен и мести обманутых (   Читать дальше...   )Жанр: Арабский восток, Арабский мир, Древневосточная литература, Мифология, Сказки, Сказки для взрослых, Сказки народов мираПеревод: Л.П. ШелгуноваИздательство: АлгоритмФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D7AFF4F37A899D5A00FDD9BD817251170CC0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857537   (1059704) от 06.03.2026
-
-Наталья Хозяинова | Нейросети и искусственный интеллект (2026) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы каждый день пользуетесь искусственным интеллектом, даже не замечая этого! Умные рекомендации в тик-токе, голосовые помощники вроде Алисы и Сири, даже крутые фильмы со спецэффектами – везде работает ИИ.
-Но как же устроен этот загадочный искусственный интеллект? Кто его придумал и может ли он действительно мыслить как человек?
-Эта книга – ваш первый шаг к пониманию (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA9A4D29C8F3641245A86543DFDD547C1F5DD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

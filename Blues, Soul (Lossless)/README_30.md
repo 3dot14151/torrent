@@ -6,7 +6,7 @@ Ben Granfelt - Another Day (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, O
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907201.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gary Moore - Greatest Hits (2010) 2CD [APE|Lossless]<Rock, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906595.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Howlin' Wolf - The London Howlin' Wolf Sessions (Deluxe Edition) 2CD (1971) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905362.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Andy Taylor Group - Loose Cannon (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905318.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Curtis Matheson - A Particular Blue (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905139.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Teskey Brothers - Half Mile Harvest (2017) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905073.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Luther Snake Boy Johnson - Born In Georgia (1972) [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903446.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blueside - Sinister Mister (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901882.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Blue Gators - Amazing Blue (2015) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901875.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Patty Reese - Let In The Sun (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901804.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Marc Eric - They (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901789.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Blue Stones - How's That Sound? (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901780.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Roberto Morbioli Trio - Acoustic Me (2015) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901760.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lucky 3 Blues Band - Blues Time (2015) [FLAC|Lossless|image + .cue] <Blues Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901074.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dustin Massey - Matter of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900466.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dan Schinhofen - My Kind of Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900464.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Vincent Gross - Vincent Gross Sings the Music (2021) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900460.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dag - Apartment #635 (1998) [FLAC|Lossless|image + .cue] <Funk / Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900426.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Savage - Remember Me (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contempor
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899996.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tramp - 2 Album (1969, 1974) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899756.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Nelsen Adelard - South By Southwest (2008) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898111.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Rob Tognoni - Rock and Roll Live (2010) 2CD [APE|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898088.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Byther Smith - Hold That Train (1981) [FLAC|Lossless|tracks + .cue] <Blues, Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898076.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Rob Tognoni - 4 Album (2012 - 2016) [FLAC|Lossless|image + .cue] <Heavy Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898012.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Eric Clapton - Eric Clapton (1997) [FLAC|Lossless|image + .cue] <Blues Rock, Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897959.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Eric Clapton - Backtrackin': 22 Tracks Spanning The Career Of A Rock Legend (198
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897945.jpg" />
 </div>
 
 

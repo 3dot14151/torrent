@@ -1,3 +1,90 @@
+###  Публикация: 453078   (230725) от 07.06.2022
+
+VA - Happy Baby Series: For The New Arrival (1999) [MP3|192 kbps]<Музыка для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230725.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Au Clair de la Lune
+2. Ich Liebe Dich So Wie du Mich
+3. All the Pretty Little Horses
+4. Wiegenlied(   Читать дальше...   )Жанр: Музыка для детейПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D411F681D8932B91D822D02A8A3A12CE05598C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832993   (230287) от 31.10.2025
+
+Давид Самойлов | Приключения Слонёнка (Инсценировка) (2008) [MP3, Георгий Вицин, Николай Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям, Сказки Давида Самойлова.
+Давид Самойлов (1920–1990) – русский советский поэт, переводчик.
+Вашему вниманию предлагается сборник стихотворных пьес-сказок Давида Самойлова о приключениях Слонёнка.
+Автор музыки Борис Чайковский.(   Читать дальше...   )Жанр: Русская литература для детей, сказочная пьеса в стихахИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57887FCD0FFFAE59F2F23EE09B8FE729BE50731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657110   (230004) от 15.11.2020
+
+VA -Золотые хиты для детей - (2CD) (2003) [MP3|320 кб/с]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230004.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.	А Может Быть Ворона
+02.	Ничего На Свете Лучше Нету
+03.	Песенка Винни-Пуха(   Читать дальше...   )Жанр: Детские песниПродолжительность: 04:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EE434BBD4F2249F88CCA37CE523C08878085F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424416   (229575) от 16.11.2020
 
 Николай Носов | Бобик в гостях у Барбоса (1977) [MP3]
@@ -6,7 +93,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229575.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ VA - Очарование Детства (2014) 4CD, Мульт Мелодии [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228413.jpg" />
 </div>
 
 
@@ -61,7 +148,7 @@ VA - Песни на стихи А.Барто. Игрушки (2011) [MP3|320 к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226591.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226565.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226401.jpg" />
 </div>
 
 
@@ -146,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226228.jpg" />
 </div>
 
 
@@ -172,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225845.jpg" />
 </div>
 
 
@@ -198,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225794.jpg" />
 </div>
 
 
@@ -225,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225727.jpg" />
 </div>
 
 
@@ -251,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225691.jpg" />
 </div>
 
 
@@ -280,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225647.jpg" />
 </div>
 
 
@@ -306,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225588.jpg" />
 </div>
 
 
@@ -334,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225579.jpg" />
 </div>
 
 
@@ -363,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225409.jpg" />
 </div>
 
 
@@ -391,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224743.jpg" />
 </div>
 
 
@@ -420,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224440.jpg" />
 </div>
 
 
@@ -449,7 +536,7 @@ VA - Jazz For Kids (2022) [MP3|320 Kbps] <Джаз для детей>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224118.jpg" />
 </div>
 
 
@@ -478,7 +565,7 @@ VA - Новый Год 2020 (Песни для деток) (2019) [MP3|320 Kbps]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223507.jpg" />
 </div>
 
 
@@ -507,7 +594,7 @@ VA - Фантазёры. Новые детские песни (2017) [MP3|320 Kb
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223466.jpg" />
 </div>
 
 
@@ -536,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222844.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222761.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222741.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222538.jpg" />
 </div>
 
 
@@ -636,86 +723,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E5C1347E60F50DCF537D5B7EBAC37AC5F31749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585278   (222508) от 21.10.2022
-
-Виталий Губарев | Королевство кривых зеркал (2022) [MP3, Александр Клюквин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может произойти, если в один из дней непослушная девочка Оля, забавы ради, решит поболтать с Волшебным зеркалом? А вот что: в результате она окажется в королевстве Кривых зеркал, которым правит глупый король, где богатые угнетают бедных, а в зеркалах отражается только неправда. Познакомится со своим отражением Яло, отправится в полное опасностей приключение, (   Читать дальше...   )Жанр: Детские приключения, СказкиПродолжительность: 02:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C87F8BE8F0C0C0EB4C8E6F006F941CFBFA41244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585250   (222414) от 21.10.2022
-
-Эрнст Гомбрих | Маленькая всемирная история (2022) [MP3, Артур Агаджанян]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222414.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Это было давным-давно» – так начинаются все лучшие истории в мире, в том числе и «Маленькая всемирная история», написанная великим историком и искусствоведом Эрнстом Гомбрихом в 1936 году, когда он еще совсем не был великим и только стал историком.
-Вместо того чтобы пичкать своего юного или не особенно юного читателя датами и фактами, эта увлекательная аудиокнига (   Читать дальше...   )Жанр: детская познавательная и развивающая литератураПродолжительность: 09:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD923F37FEB976F2D0B93AE4B7137E432BFF0BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029472   (222367) от 20.11.2020
-
-Зинаида Миркина | Тихие сказки (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки Зинаиды Миркиной написаны и для детей, и для взрослых.
-Тысячи лет людей волнует вопрос, почему в мире, созданном Любовью, так много зла? И в сказке этот вопрос ставится со всей детской серьезностью. Если «все хорошо, все очень-очень хорошо», как говорит скрипка Белого Зайца, то почему волки терзают свою добычу? Этот вопрос волновал Зинаиду Александровну еще (   Читать дальше...   )Жанр: СказкаПродолжительность: 10:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6155BBB043B7954AE78253A5AEDC6FC6CC624C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Disk Expert 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765754.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ScreenFlow 7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765748.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ BookReader 5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765722.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Iridient Developer 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765721.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Ummy Video Downloader 1.65 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765708.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Receipts 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765468.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ WonderPen 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765467.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ TunesKit Audio Converter 3.0.1.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765407.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Artpaper: new daily wallpapers 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765406.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ TunesKit Audio Capture 2.0.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765404.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ TunesKit Audible Converter 2.0.0.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765402.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Transmit 4.4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765293.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Quiver: The Programmer's Notebook 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765247.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Rhinoceros 5 v5.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765158.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ PDF Expert 2.4.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764997.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ BetterZip 4.1 (1305) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764973.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ BlueHarvest 7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764929.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Macgo Mac Blu-ray Player Pro 3.2.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764871.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Inboard 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764653.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PDFpenPro 9.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764644.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Downie 2.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764621.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764620.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ NetWorker - Advanced Network Information App 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764619.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Network Speed Monitor 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764615.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ TrashMe 2.1.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764593.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Camtasia 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764568.jpg" />
 </div>
 
 

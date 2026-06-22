@@ -1,29 +1,3 @@
-###  Публикация: 1819606   (1328) от 23.09.2025
-
-Осторожно, бабушка! (1960) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма - молодая девушка-комсомолка и ее бабушка, не уступающая внучке в активности, энтузиазме и целеустремленности. Вместе им удается организовать комсомольцев (и не только!) на строительство нового Дома культуры.Производство: СССР / ЛенфильмЖанр: мюзикл, комедияРежиссер: Надежда КошевероваАктеры: Фаина Раневская, Ариадна Шенгелая, Леонид Быков, Людмила Маркелия, Светлана Харитонова, Нина Ургант, Юлиан Панич, Сергей Филиппов, Ролан Быков, Елизавета Уварова и др.Субтитры: русскиеПродолжительность: 01:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2097E0D8DE8AA7117A7F2D59CBE89E0ABB5278AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820165   (786) от 26.09.2025
 
 Случай с Полыниным (1970) WEBRip [H.264/1080p]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_786.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_652.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_338.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_331.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119.jpg" />
 </div>
 
 

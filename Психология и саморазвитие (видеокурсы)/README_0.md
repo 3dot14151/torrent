@@ -1,3 +1,29 @@
+###  Публикация: 1859314   (1061070) от 15.03.2026
+
+Вячеслав Дубынин | Мозг: дофамин, движение и новизна (2022) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061070.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лекции речь пойдёт о дофамине - ключевом нейромедиаторе нашей нервной системы.Жанр: видеоурок, лекция, нейрофизиология, психологияЯзык озвучки: русскийПродолжительность: 02:05:45Реклама: наложение на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53767CB749127053F3375D093BE7D1E277B0D968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859297   (1061067) от 15.03.2026
 
 Вячеслав Дубынин | Мозг: стресс и выгорание (2022) PCRec [AD] [RU]
@@ -6,7 +32,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061067.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061065.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mindvalley, Мэй Маск, Мари Даймонд и др. | Годовая �
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061004.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060540.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Level One, Никита Петров | Ключ к памяти (2021) WEB-DL [R
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059810.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Level One, Анастасия Беляева, Екатерина Гресь, А�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059803.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059436.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Inna de Almeida | В отношения на шпильках (2023) WEB-DL [AD]
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059175.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Inna de Almeida | Перезагрузка подсознания (2023) WEB-DL 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059174.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Inna de Almeida | Стань Ближе к нему (2023) WEB-DL [AD] [RU]
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059173.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Level One, Анна Кигай | Чему учат философы Древне
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058911.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ TutorPlace, Эрика Байрамова | Когнитивно-поведен�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058910.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058909.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058879.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058878.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058877.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058876.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058875.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058874.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058873.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058829.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Level One, Татьяна Смирнова | Как использовать в�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058776.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058757.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ EduNote, Наталья Вяземская | Кризис самоценност
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058756.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058604.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09FFB1BE92B018298C2033AAF161319523672D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855763   (1058603) от 25.02.2026
-
-МИФ.Курсы, Ирина Гиберманн | 7 конфликтов бессознательного (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058603.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 психодинамических конфликтов — система, на которую опираются психоаналитики, чтобы «читать» бессознательное. Вы тоже можете «читать» себя. Модель OPD, которую изучим, помогает распознать свои конфликты и — может быть, впервые — не повторить. Каждая реакция — послание психики. И если его расшифровать, увидишь, что внутри. Почему мы смеёмся, когда внутри всё обрывается? (   Читать дальше...   )Производство: МИФ.КурсыЖанр: видеокурс, обучающий курс, психология, философия, саморазвитиеЯзык озвучки: русскийПродолжительность: 13:04:37Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3417CA89D48BD4DF64AF51F3203E1D5612FD3960
 ```
 
 https://mybot314.ru/tekegram_catalog/

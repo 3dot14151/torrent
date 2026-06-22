@@ -1,3 +1,57 @@
+###  Публикация: 1746031   (45289) от 29.08.2024
+
+Роберт Т. Кийосаки | Прежде чем начать свой бизнес (2015) [MP3, Алексей Мужицкий]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами уникальное пособие от всемирно известного бизнес-тренера, автора бестселлера «Богатый папа, бедный папа» Роберта Кийосаки «Прежде чем начать свой бизнес»!
+Прослушав ее, вы получите 10 важнейших жизненных уроков, которые помогут вам бросить скучную работу и начать свой бизнес. Последовав советам и рекомендациям «богатого папы» Роберта Кийосаки, вы станете (   Читать дальше...   )Жанр: БизнесИздательство: AB PublishingПродолжительность: 10:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3586607F4F718FBC79571426DD91A6F3B6822593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746232   (45126) от 30.08.2024
+
+Бен Хоровиц | Сложные решения (2021) [MP3, Павел Дягилев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен Хоровиц, один из самых опытных и уважаемых предпринимателей в Кремниевой долине, делится своими рекомендациями по построению и развитию стартапов. Советы автора касаются сложнейших проблем, которые обычно не обсуждаются в бизнес-школах.
+Очень многие любят рассуждать о том, как здорово иметь свой бизнес. Единицы говорят о том, что это очень сложно. Бен Хоровиц (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 09:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FEF77F2E862323A180BF92AACADF04018BB0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748292   (44077) от 09.09.2024
 
 Петр Панда | Копирайтинг в Instagram (2021) [MP3, Дмитрий Пименов]
@@ -6,7 +60,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44077.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44007.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43803.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43445.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42612.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42406.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41784.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41560.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40798.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40465.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39387.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39269.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39012.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38607.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36773.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36676.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35750.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31672.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31509.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29994.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27351.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27347.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27328.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27321.jpg" />
 </div>
 
 
@@ -634,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B7F63DF4525E2A100A396DF3FE21367D740DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780281   (27314) от 17.02.2025
-
-Алексей Минкевич, Сергей Дерцап | Проджект-менеджмент. Как быть профессионалом (2021) [MP3, Роман Рассказов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27314.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ну что нового можно сказать об управлении проектами!» – недоверчиво подумает кто-то, увидев обложку. В опутанном информационной паутиной мире сказать что-то новое вообще становится всё труднее. Поэтому так ценны теоретические знания, отлично систематизированные и пропущенные через личный опыт. У авторов книги на двоих – более 20 лет боевой практики управления проектами. (   Читать дальше...   )Жанр: организационный менеджмент, управление бизнесом, управление проектамиИздательство: Альпина ДиджиталПродолжительность: 08:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96DD236BC9D710138605F96A2DE07965C6B3A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781970   (26353) от 26.02.2025
-
-Дамир Халилов | Метод скользкой горки. Сторителлинг для Reels, Stories, TikTok-роликов и других форматов социальных сетей (2022) [MP3, Дамир Халилов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждую минуту больше трёх миллиардов людей делятся в соцсетях сотнями миллионов видео, сообщений, твитов, аудиозаписей, фотографий и картинок. Когда контента так много, конкуренция между брендами за внимание пользователей становится всё сильнее, и успех маркетинговой кампании зависит от того, как быстро вы успеваете адаптироваться к изменениям и предсказывать тренды. (   Читать дальше...   )Жанр: SMM / маркетинг в соцсетях, контент-маркетинг, копирайтинг, реклама, сторителлингИздательство: Альпина ДиджиталПродолжительность: 10:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C5BE176D11B57BC173A7D13B6E1D1C249C389B
 ```
 
 https://mybot314.ru/tekegram_catalog/

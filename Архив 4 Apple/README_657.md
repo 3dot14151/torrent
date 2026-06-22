@@ -1,3 +1,56 @@
+###  Публикация: 1679253   (140517) от 24.11.2023
+
+Menuwhere 2.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственная цель Menuwhere - вывести на экран меню самого переднего приложения в текущем местоположении мыши.Тип издания: macOS SoftwareРелиз состоялся: 14.11.2023Разработчик: © 2023 Many TricksПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0DC8B30481BFE5B85A77544C9F8BB766906EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679309   (140506) от 24.11.2023
+
+n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5E2F070785BC72AA5CC090642F86F3B036E87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679268   (140456) от 24.11.2023
 
 Master of Typing 3 - Practice 15.13.25 [Multi/Ru]
@@ -6,7 +59,7 @@ Master of Typing 3 - Practice 15.13.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140456.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Wondershare Recoverit 10.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140403.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Luminar Neo 0.9.1 (Early Access) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140377.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140356.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140290.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ CleanMyMac 3.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140242.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Adguard 1.4.0 (372) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140124.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Yate 5 v5.0.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140115.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ PullTube 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140077.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Rumpus PRO 8 v8.2.10 + Tether Client 1.0.6  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140062.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ NeoOffice 2017.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140041.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ Parallels Desktop for Mac Business Edition 11.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140006.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ Wondershare Recoverit 8 v8.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139917.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ Feeder 4 v4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139880.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ RH Timer 2.4.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139853.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ Adguard 1.5.3 (437) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139837.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ Cardhop 1.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139813.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ Moment - Every Day Counts! 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139741.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ PDF to Word&Document Converter 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139559.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ Soulver 3 v3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139488.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ Amadine 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139467.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ Permute 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139362.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ Mac FoneTrans for iOS 9.0.30 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139248.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ ChronoSync 4.7.2 & ChronoAgent 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139219.jpg" />
 </div>
 
 
@@ -637,58 +690,6 @@ ChronoSync представляет собой приложение для Mac, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0A241989156178FDA770FCB19ADB3DD6213844B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436100   (139170) от 30.12.2020
-
-Room Arranger 9 v9.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Jan AdamecПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1356DCBE19F523EE2B4FB0F754ECB822EF63803C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679336   (138572) от 25.11.2023
-
-Doppler for Mac 2.1.17 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175C2A677D9E5457FA6A6F4A6523CAB53662B3B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

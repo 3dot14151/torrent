@@ -1,3 +1,423 @@
+###  Публикация: 1196887   (818541) от 05.01.2018
+
+Бегущий по лезвию 2049 / Blade Runner 2049 (2017) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818541.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей — держать репликантов под контролем в условиях нарастающего напряжения… Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Венгрия, КанадаЖанр: Фантастика, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F415A68F6D69E9E78B2AA5D4F21AA82F7E526CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196976   (818535) от 05.01.2018
+
+Бегущий по лезвию 2049 / Blade Runner 2049 (2017) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818535.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей — держать репликантов под контролем в условиях нарастающего напряжения… Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Венгрия, КанадаЖанр: Фантастика, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42694F74680A2B07B5A5F38860F51007C4B0615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117382   (818460) от 22.03.2017
+
+Другой мир: Войны крови / Underworld: Blood Wars (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воительница-вампир Селена вступает в свой последний и решающий бой между оборотнями и кланом вампиров, который предал ее.Производство: СШАЖанр: Ужасы, боевикРежиссер: Анна ФерстерАктеры: Кейт Бекинсейл, Тео Джеймс, Тобайас Мензис, Лара Пулвер, Чарльз Дэнс, Джеймс Фолкнер, Петер Андерссон, Клементайн Николсон, Брэдли Джеймс, Дэйзи Хэд, Оливер СтаркПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9C33A1F829D9CB3012C501FAB15BF0AE808BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117270   (818403) от 22.03.2017
+
+Другой мир: Войны крови / Underworld: Blood Wars (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воительница-вампир Селена вступает в свой последний и решающий бой между оборотнями и кланом вампиров, который предал ее.Производство: СШАЖанр: Ужасы, боевикРежиссер: Анна ФерстерАктеры: Кейт Бекинсейл, Тео Джеймс, Тобайас Мензис, Лара Пулвер, Чарльз Дэнс, Джеймс Фолкнер, Петер Андерссон, Клементайн Николсон, Брэдли Джеймс, Дэйзи Хэд, Оливер СтаркПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467FD32A020D80F646DB4D87EF7508EA5C6BCE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776520   (818001) от 12.04.2014
+
+Венера в мехах / La Venus a la fourrure (2013) HDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь день Тома проводил прослушивания, выбирая актрису для пьесы по знаменитому роману Леопольда фон Захера-Мазоха «Венера в мехах». Режиссер в отчаянии, пока не появляется Ванда — настоящий сгусток энергии, разнузданная и развязная. Она воплощает собой все, что Тома ненавидит: вульгарна, взбалмошна и не остановится ни перед чем, чтобы получить роль. Вдруг все, что (   Читать дальше...   )Жанр: ДрамаВ ролях: Эмманюэль Сенье, Матье АмальрикПеревод: Авторский (одноголосый закадровый) (А.Матвеев)Язык субтитров: АнглийскийКачество: HDRipПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2F809FCF6B419EC78688A0DDD947B6AF47679F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503818   (817984) от 20.10.2021
+
+VA - Inner Awen Vol. II (2020) [AAC|~330 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maook - Asteroids (8:20)
+02. Biotech Patagonia - Antartida (Vocal Edit) (8:39)
+03. Karada - The Passion (7:52)
+04. Apo Tulup - Land Van Vuur (8:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36540CA82E9BA7769F7816C85BDD416E106A7147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503816   (817983) от 20.10.2021
+
+VA - Inner Awen (2019) [AAC|~327 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeancy - Early Beats (Rafael Cerato Remix) (8:28)
+02. Blade&Beard - Aphrodite (Remains of Silence Remix) (6:26)
+03. Mila Journée - Lux (8:10)
+04. Bertech - The Sun (Manuel Ro RemIx) (8:04)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9019D3BEAB14D94140CD13D9B1B7E6639BAB3C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503834   (817982) от 20.10.2021
+
+VA - Inner Awen Vol. V (2021) [AAC|~320 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeancy - Survive (Paul Anthonee Remix) (7:26)
+02. Nohak - Ghost of the Note (Dizharmonia Remix) (6:16)
+03. Joseph Carlo - Prego (7:10)
+04. Shamans - Ares (7:21)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4F0C8649BDD4EE544FD33136B18DFAFE694B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503832   (817981) от 20.10.2021
+
+VA - Inner Awen Vol. IV (2021) [AAC|~324 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kobbaia - Lunar Phases (The Intro) (2:32)
+02. Jeancy - Energetic Stability (Vanita Remix) (7:43)
+03. WO-CORE - While Painting (6:43)
+04. Elena Kulstof, Pandora's Diary - Lust for You (6:49)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433E6FBCA7163BB5295D6229DED993EBC86A88AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503828   (817980) от 20.10.2021
+
+VA - Inner Awen Vol. III (2020) [AAC|~320 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vita V - Pessimistic (OIBAF&WALLEN, Mia Mendi Remix) (7:44)
+02. Yad, Riggel - The Sad Mirror (6:32)
+03. OIBAF&WALLEN - My Blame (Jeancy Remix) (7:22)
+04. Ryan Hill - Acacia (8:23)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2DC415C8CC8CEF63BD08D89224788D1B5B26AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503871   (817978) от 20.10.2021
+
+VA - Chill House Vibes Vol 1: Ultimate Chill House Collection (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brass, Ohluna - Love Satisfaction (4:39)
+02. Magmatunes - Flying High (4:30)
+03. Jay Nemor - Music Suite Soul (Forteba Remix) (7:14)
+04. D'Joe - Passing By (Kanedo Rmx) (6:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A626FF93230BDF957E9DB575D74BB5DDAFC615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503867   (817977) от 20.10.2021
+
+Гарин и Гиперболоиды - Экстрада (2021) [AAC|~342 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Движение (4:30)
+02. Работа не волк (5:00)
+03. Песни восточных славян (3:32)
+04. Бездельник (3:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC55B619778A5EA610B8161182F6E8AB980E8327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503688   (817879) от 20.10.2021
+
+Коча, Сашка, Янка - Квартирник в Харькове 23.06.1989 (2020) [AAC|~375 Kbps] <Rock>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817879.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Сергей Кочерга - Тост. За тех, кого... (3:05)
+1.02. Александр Чернецкий - Это (4:48)
+1.03. Янка Дягилева - Reggae (2:01)
+1.04. Сергей Кочерга - Хот-джаз (4:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5DD78E42D0BC81FD24DE73AF0372A9A3EDD28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503836   (817793) от 20.10.2021
+
+Cerrone - The Classics (Best of Instrumentals) (2021) [AAC|~352 Kbps] <Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerrone's Paradise (Long Version Instrumental) (16:59)
+02. Je suis Music (Long Version Instrumental) (7:47)
+03. Give Me Love (Long Version Instrumental) (7:21)
+04. Midnite Lady (Long Version Instrumental) (7:30)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD8B76A7B72B50167AD3DCDDA62FBA00C5D5F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503690   (817788) от 20.10.2021
+
+Янка Дягилева - Акустика (1996) [AAC|~361 Kbps] <Rock, Acoustic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По трамвайным рельсам (2:09)
+02. Рижская (1:34)
+03. Особый резон (2:37)
+04. Берегись (3:00)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576100FEDCA4B408C8F16D16565EE6B86F968047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503694   (817648) от 20.10.2021
 
 Янка - Не Положено (2021) [AAC|~361 Kbps] <Rock>
@@ -6,7 +426,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817648.jpg" />
 </div>
 
 
@@ -35,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817644.jpg" />
 </div>
 
 
@@ -64,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817637.jpg" />
 </div>
 
 
@@ -90,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817435.jpg" />
 </div>
 
 
@@ -116,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817397.jpg" />
 </div>
 
 
@@ -142,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817298.jpg" />
 </div>
 
 
@@ -168,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817247.jpg" />
 </div>
 
 
@@ -194,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817238.jpg" />
 </div>
 
 
@@ -220,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816936.jpg" />
 </div>
 
 
@@ -249,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816844.jpg" />
 </div>
 
 
@@ -278,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816842.jpg" />
 </div>
 
 
@@ -292,423 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0EEE411015B92A78FFBD830D2C5E1B895E8C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791416   (816841) от 12.05.2020
-
-Ария - Армагеддон (2006) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последний Закат
-02. Меченый Злом
-03. Страж Империи
-04. Новый Крестовый Поход(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AF0BECE1425879E86540D063ED2D130F258DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791411   (816837) от 12.05.2020
-
-Ария - Кровь за кровь (1991) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прощай, Норфолк!
-02. Зомби
-03. Антихрист
-04. Не Хочешь, Не Верь Мне(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BB914EDB875B6CD0C8F17262A90512B1AB73B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117367   (816794) от 23.03.2017
-
-Дэйв Волвертон | Становление силы (2017) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оби-Ван в отчаянии: он еще не научился сдерживать свой гнев и страх. Именно поэтому великий звездный рыцарь Куай-Гон не хочет взять его в ученики. Но судьба сводит великого джедая и воспитанника Храма звездных рыцарей на звездолете, держащем свой путь к опаснейшей планете Бендомир. Неожиданно на звездолет нападают космические пираты. Куай-Гон и двенадцатилетний мальчик (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 04:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEDA2A571ECC1C46F95A7DA2582301DAE4B1AEE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791414   (816709) от 12.05.2020
-
-Ария - Химера (2001) [ALAC|Tracks]<Heavy Metal>
-
->>Аудио и Видео
->>Музыка Lossless (ALAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Химера
-02. Небо Тебя Найдёт
-03. Я Не Сошёл С Ума
-04. Вампир(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A340A449E4D705DA7D12CF02CFBE4F5587868CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882733   (816622) от 29.03.2015
-
-Вселенная Стивена Хокинга / The Theory of Everything (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816622.jpg" />
-</div>
-
-
-###  Подробнее
-
-История отношений между известным физиком Стивеном Хокингом и его женой.Производство: ВеликобританияЖанр: Драма, мелодрама, биографияРежиссер: Джеймс МаршАктеры: Эдди Редмэйн, Фелисити Джонс, Чарли Кокс, Дэвид Тьюлис, Эмили Уотсон, Максин Пик, Саймон МакБерни, Эбигейл Круттенден, Гарри Ллойд, Майкл Маркус МорганПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 02:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301A5B6DEAF61B956403B0C9BFB06604EEA431FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503883   (816136) от 21.10.2021
-
-VA - Sacred Journey, Vol. 1 (2021) [AAC|~300 Kbps] <Electronic, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gemela Grando - Tejat Prior (3:02)
-02. Zed Furud - Meditation in Blue (2:31)
-03. Teslikus - Expansion (2:28)
-04. Sarala Rati - The Pleiads (3:53)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07BBA214AA89488362D6B85933D5FAE784B42950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503873   (816135) от 21.10.2021
-
-VA - Chill House Vibes Vol 2: Ultimate Chill House Collection (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DMTunes - Love That Feeling (Original Mix) (4:29)
-02. Darles Flow, Marga Sol - Alive (Original Mix) (5:23)
-03. Beamy - Twisted Soul (Jero Nougues Organic Sunset Mix) (6:44)
-04. Nenad J. - Island Memories (Original Mix) (6:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6C68CC105420A327B78CAD682D6DCA0F1F5916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503884   (816134) от 21.10.2021
-
-VA - Sacred Journey, Vol. 2 (2021) [AAC|~297 Kbps] <Electronic, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunplena - Paqal (2:29)
-02. Poseidon - Sound of Agharti (2:36)
-03. Ruga Giganto - Zaurak the First (2:35)
-04. Kasita Vero - Esus (3:02)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE82E1CA60F8F7EC0E4A7EE3BFCDBE97EC398339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503878   (816129) от 21.10.2021
-
-VA - New Power Eurodance Hits 2021: Workout Collection (2021) [AAC|~343 Kbps] <Eurodance, Euro-House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxxima - No Regrets (Airplay Mix) (3:16)
-02. Eurotronic, Timi Kullai, Zooom - Here I Go (Mykotank Eurodance Radio Mix) (4:25)
-03. Loft - Mallorca 2k21 (Bmonde Radio Mix) (3:56)
-04. B.G. The Prince Of Rap, Timi Kullai, Chrizz Morisson - Sugar (Newborn 90s Remix) (4:05)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 02:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E789AD79CC82554B822B7240854FD97497DE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503931   (816063) от 21.10.2021
-
-Zivert - Vinyl #1 (2019) [AAC|~335 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Безболезненно (4:13)
-02. Beverly Hills (3:40)
-03. Zivert, M'Dee - Двусмысленно (3:05)
-04. Fly (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3372AD047FAE313699A0B33C100F2D67537E523E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503934   (815964) от 21.10.2021
-
-Zivert - Vinyl #2 (2021) [AAC|~325 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рокки (2:58)
-02. CRY (3:46)
-03. DEL MAR (3:41)
-04. Тебе (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0352F347EE9199F012620507FDFA1B5263D3FD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197494   (815506) от 07.01.2018
-
-Максимальный удар / Maximum Impact  (2017) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшим агентам ФСБ и ЦРУ предстоит совместная миссия — остановить преступного лидера, похитившего внучку госсекретаря США, который прибыл в Москву с тайным визитом. В случае провала миру грозит взрывоопасный кризис.Производство: Россия, СШАЖанр: Боевик, комедияРежиссер: Анджей БартковякАктеры: Александр Невский, Евгений Стычкин, Дэнни Трехо, Кит Пауэрс, Том Арнольд, Марк Дакаскос, Эрик Робертс, Бай Лин, Келли Ху, Полина БуторинаПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E037A2E615E22E1986EB9B384123798F49BDEF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197500   (815433) от 07.01.2018
-
-Максимальный удар / Maximum Impact  (2017) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшим агентам ФСБ и ЦРУ предстоит совместная миссия — остановить преступного лидера, похитившего внучку госсекретаря США, который прибыл в Москву с тайным визитом. В случае провала миру грозит взрывоопасный кризис.Производство: Россия, СШАЖанр: Боевик, комедияРежиссер: Анджей БартковякАктеры: Александр Невский, Евгений Стычкин, Дэнни Трехо, Кит Пауэрс, Том Арнольд, Марк Дакаскос, Эрик Робертс, Бай Лин, Келли Ху, Полина БуторинаПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F32A2D20F6F20ACC573473E9863041C6CDBFF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383014   (815310) от 13.05.2020
-
-Эмма. / Emma. (2020) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Англия, XIX век. 21-летняя провинциалка Эмма Вудхаус красива, богата, остроумна и считает, что прекрасно разбирается в людях. Девушка решила, что никогда не выйдет замуж и не оставит отца одного. Когда её подруга в связи с собственным замужеством переезжает в дом супруга, Эмма находит себе новую компаньонку — сироту Гарриет Смит — и теперь, используя все свои хитрости, (   Читать дальше...   )Производство: Великобритания / Working Title Films, Blueprint Pictures, Perfect World PicturesЖанр: Комедия, мелодрамаРежиссер: Отем де УайлдАктеры: Аня Тейлор-Джой, Джонни Флинн, Миа Гот, Джош О’Коннор, Билл Найи, Каллум Тернер, Миранда Харт, Эмбер Андерсон, Руперт Грейвз, Джемма УиланПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full) Английские (Full)Продолжительность: 02:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67FC26685E533CBA7819F58F1987ACFE6016535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383016   (815296) от 13.05.2020
-
-Эмма. / Emma. (2020) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Англия, XIX век. 21-летняя провинциалка Эмма Вудхаус красива, богата, остроумна и считает, что прекрасно разбирается в людях. Девушка решила, что никогда не выйдет замуж и не оставит отца одного. Когда её подруга в связи с собственным замужеством переезжает в дом супруга, Эмма находит себе новую компаньонку — сироту Гарриет Смит — и теперь, используя все свои хитрости, (   Читать дальше...   )Производство: Великобритания / Working Title Films, Blueprint Pictures, Perfect World PicturesЖанр: Комедия, мелодрамаРежиссер: Отем де УайлдАктеры: Аня Тейлор-Джой, Джонни Флинн, Миа Гот, Джош О’Коннор, Билл Найи, Каллум Тернер, Миранда Харт, Эмбер Андерсон, Руперт Грейвз, Джемма УиланПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full) Английские (Full)Продолжительность: 02:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DE84E4C4F8D8EDF28006224B7FBF7FAED466DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

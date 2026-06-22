@@ -6,7 +6,7 @@ Elmo Hope Ensemble - Sounds From Rikers Island (1963) 2003, Fresh Sound Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033795.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Thelonious Monk - Greatest Jazz (1992) [FLAC|Lossless|image + .cue] <Bop, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033794.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Coltrane - Impressions (1963) 1987, Impulse! [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033774.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lionel Hampton - Jumpin' With Hamp (1951) 2001, Ocium [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033711.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Fats Waller - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033689.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MSM Schmidt - Life (Laika Records) (2017) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033318.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Miles Davis - Three Classic Albums Plus (1956 - 1961) 2019, 2CD, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033302.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dinah Washington - Newport '58 (1958) 1993, Nippon [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033224.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Bonner Party - Lights Out (2004) Akashic Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033223.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ James Brandon Lewis Trio - Eye of I (2023) [FLAC|Lossless|tracks + .cue] <Avant-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033216.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Yussef Dayes Trio - Welcome to the Hills (2020) [FLAC|Lossless|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033042.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fats Waller - 1942 - 1943 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033012.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Al Sears - Swing's The Thing (1960) 1994, Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033011.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ U-Nam - Sunshine of Mine (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, SmoothJazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033006.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jimmy Mundy - 1937 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032782.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gene Ammons - 1949 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032781.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Eddie Condon - 1944 - 1946 (1998) Classics [FLAC|Lossless|image + .cue] <Dixiela
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032780.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Anthony Braxton - Five Compositions (1986)1993, Black Saint [APE|image+.cue]<Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032729.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jimmie Noone - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032599.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mary Lou Williams - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032594.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mildred Bailey - 1945 - 1947 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032593.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mary Lou Williams - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032592.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Richard M. Jones - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Ea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032550.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032345.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixiel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032343.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032337.jpg" />
 </div>
 
 

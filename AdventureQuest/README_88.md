@@ -1,3 +1,133 @@
+###  Публикация: 1750026   (43310) от 17.09.2024
+
+Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43310.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пятом эпизоде ​​Fears to Fathom вы играете за Сидни Харпер, 23-летнюю девушку, работающую в консалтинговой фирме, которая планирует провести выходные в арендованном доме в Вудбери со своими друзьями из колледжа. Они и представить себе не могли, что произойдет во время их пребывания. Сидни выжила, потому что приняла правильный выбор. Эта игра в первую (   Читать дальше...   )Тип издания: RepackРазработчик: Rayll StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7920D7C3884E5E3929DE6D69C1D4EBCAA13C9353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750139   (43196) от 18.09.2024
+
+Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и песок (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abnormal1999:The Compass and the Sand - это загадочная головоломка, в которой геймеры погружаются в роль Энн, персонажа, изгнанного мистическим компасом. Тут юзерам предстоит раскрыть секреты изгнанной земли и активировать компас, чтобы спастись. Повествование разворачивается в далекой и незнакомой стране, где Энн движет непоколебимая решимость найти дорогу назад.Тип издания: SceneРазработчик: QZQ StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EA3732CCE2A4619266FF8E36B2161B3FC8E657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750294   (43099) от 19.09.2024
+
+The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOGE
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43099.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Plucky Squire - это очаровательная экшен-адвенчура, действие которой разворачивается в мире сказок. Игроки берут на себя роль Йота, героя книги сказок, которого выгнал из своей книги злобный Хамгрумп. Протагонист и его друзья открывают трехмерный мир и должны перемещаться между 2D и 3D царствами, чтобы спасти своих товарищей и восстановить хороший финал истории. (   Читать дальше...   )Тип издания: SceneРазработчик: All Possible FuturesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE67F1C338BD3DD073322AE365EF1BAD5EBE6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750278   (43023) от 19.09.2024
+
+The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43023.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Plucky Squire - это очаровательная экшен-адвенчура, действие которой разворачивается в мире сказок. Игроки берут на себя роль Йота, героя книги сказок, которого выгнал из своей книги злобный Хамгрумп. Протагонист и его друзья открывают трехмерный мир и должны перемещаться между 2D и 3D царствами, чтобы спасти своих товарищей и восстановить хороший финал истории. (   Читать дальше...   )Тип издания: RepackРазработчик: All Possible FuturesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83529A12474F7D9DF867014E1D9AEBC7BAB5BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750450   (43010) от 20.09.2024
+
+Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subnautica – это своеобразная и удивительная компьютерная игра, выполненная в инновационном жанре, который состоит из частей песочницы, кинематографической игры, исследовательской адвенчуры и неповторимого квеста, что в целом и составляет эту игру. Кроме того, разработкой игры занимались титулованные и именитые игроделы из студии под названием Unknown Worlds. Поэтому, (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Adventure (Survival), 1st Person, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B667279723F520ED36A99128B1D85D758B4F5278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748582   (43006) от 20.09.2024
 
 The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s [Deluxe Edition]
@@ -6,7 +136,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43006.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Gunk (2021) [Ru/Multi] (1014.1.6.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42893.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Smells Like a Mushroom (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42885.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ AMEDAMA (2024) [Multi] (2.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42842.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42805.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Portal Reloaded (2021) [En] (1.0.1HF) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42795.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ DREDGE (2023) [Ru/Multi] (2879/dlc) License GOG [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42792.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42763.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Spiral (2024) [Multi] (20240920PC-01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42684.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Copycat (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42588.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42543.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42541.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42463.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42176.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42171.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42152.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42116.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Farewell North (2024) [Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42105.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Paper Ghost Stories: Third Eye Open (2024) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42079.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.2a) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42077.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42058.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB26D982FCD545334A0CA6EEFF7801A66D0B2279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752237   (42023) от 29.09.2024
-
-Trap for the Heir (2024) [Ru/En] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trap for the Heir – что вы скажете насчет исследований удивительного фэнтезийного мира? Где вам предстоит управлять опытной наемницей-оборотнем по имени Гвен, которую ожидает неожиданно выгодный заказ. Все берет начало с интриг, секретов, неожиданных поворотов и заканчивается тем, что на кону будут стоять не только деньги, но и жизнь! Попросту говоря, вы должны узнать (   Читать дальше...   )Тип издания: SceneРазработчик: MariLuzariaЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9C34D49C4FF27497A08FF179CBEB75CA209D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389298   (41962) от 30.09.2024
-
-Resolutiion (2020) [Ru/Multi] (1.3.0.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resolutiion - это динамичная игра в жанре action-adventure, созданная двумя злобными братьями из Германии. Присоединяйтесь к группе бродяг в игре с прекрасной пиксельной графикой, грязными шуточками, глубокими идеями и крутым саундтреком на 20 часов игрового времени. Вас ждут жестокие битвы, исследования, награды и непростая история. Кем вы станете? Игроком или игрушкой? (   Читать дальше...   )Тип издания: LicenseРазработчик: Monolith of MindsЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B5E0F64E407F9F05AC4DCB915C0F88677DE6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752236   (41945) от 30.09.2024
-
-Murder On Space Station 52 (2024) [Multi] (1.13.5) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Murder On Space Station 52 - это остросюжетное мистическое приключение, действие которого разворачивается в стенах космической станции. Вы играете за Эдварда Локка, человека, попавшего в ловушку к печально известному убийце, известному как Убийца с брелоком. Тайтл вращается вокруг разгадки тайны, собирая улики, допрашивая подозреваемых и решая головоломки. Космическая (   Читать дальше...   )Тип издания: LicenseРазработчик: Made From StringsЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F720DEF5AE6EFD4E2A995C8C19EB7F8280845910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752544   (41846) от 01.10.2024
-
-DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединитесь к охоте как один из агентов, в этой многопользовательской игре Co-op & PVP о ужасе и обмане. Один из вас будет одержим и затем станет призраком, а остальные должны пережить преследование! Играйте в одиночку, или с вашими приятелями агентами до 4 игроков.Тип издания: RepackРазработчик: Digital HappinessЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Индонезийский, Испанский и другиеЯзык интерфейса: Русский, Английский, Индонезийский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C69B734C1BC968D274499FBE4F3318D85594403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752546   (41814) от 01.10.2024
-
-The Invincible (2023) [Ru/Multi] (44.475) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41814.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Invincible представляет собой приключенческую игру с видом от первого лица. Проект использует антураж ретрофутуризма и отсылает к космической гонке между США и СССР в 20 веке. Тайтл выполнен в сеттинге атомпанка. Он может понравиться тем, кто любит атмосферу научно-фантастических триллеров. В основу нелинейного сюжета The Invincible лег роман "Непобедимый" (   Читать дальше...   )Тип издания: RepackРазработчик: Starward IndustriesЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06287E658DDE9E373B090691E1C0D3E0F54A4B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

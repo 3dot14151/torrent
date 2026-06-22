@@ -1,3 +1,32 @@
+###  Публикация: 1044824   (563553) от 21.08.2016
+
+Гандбол. Олимпийские игры 2016. Женщины. Финал. Франция - Россия (20.08.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563553.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 августа 2016 года, суббота. 21:30 МСК
+Женщины. Финал. Франция - Россия
+
+Арена: Фьюче Арена (Рио-де-Жанейро, Бразилия)Телекомпания: 1 HDЖанр: СпортПродолжительность: 01:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350D4DF07B16472223D05C0936C344CEC6CC48D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530429   (563305) от 02.08.2012
 
 [En] History Channel: Святой Грааль в Америке / Holy Grail in America (2009) TVRip
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563305.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563286.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563243.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562540.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562539.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562330.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561914.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561912.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561910.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561908.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561906.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561902.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561900.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561897.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561894.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561822.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561821.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561811.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_561805.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_561775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_561775.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561764.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561743.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561686.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561685.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561659.jpg" />
 </div>
 
 
@@ -698,35 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C15AC6C80C12279FB9CCCF3687F33F2A1C5A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045128   (561540) от 22.08.2016
-
-Волейбол. Олимпийские игры 2016. Мужчины. Матч за 3-е место. Россия - США (21.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561540.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 августа 2016 года, воскресенье. 15:30 МСК.
-Волейбол. Мужчины. Матч за 3-е место. США - Россия.
-
-Арена: Мараканазиньо (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Стецко, Аксенов)Продолжительность: 02:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570DD9D2EBFAD7878D099A27EFFCDB462AA2AC92
 ```
 
 https://mybot314.ru/tekegram_catalog/

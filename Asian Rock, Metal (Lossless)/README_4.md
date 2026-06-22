@@ -1,3 +1,32 @@
+###  Публикация: 352193   (74077) от 04.02.2012
+
+A-Mei - 17 albums (1996-2011) Complete discography [FLAC|Lossless]<Chinese,Mandopop,C rock,R&B>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_74077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 给我感觉
+ 02. 日出
+ 03. 给我感觉(unplugged)
+ 04. 给我感觉(弦乐版)1996-2011Жанр: Chinese,Mandopop,C rock,R&BПродолжительность: 00:18:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799149   (66540) от 25.05.2025
 
 Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Edition [WavPack|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Editio
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66540.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, C
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66083.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65486.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Prompts - Fracture (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54690.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Sigh - I Saw The Worlds End / Hangman's Hymn MMXXV (2025) Japanese Edition [FLAC
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3445.jpg" />
 </div>
 
 

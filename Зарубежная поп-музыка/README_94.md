@@ -6,7 +6,7 @@ Samantha Fox - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39392.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Baccara - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39381.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Smokie - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Pop Rock, Rock, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39379.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gazebo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39168.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - HITS WE ALL KNOW (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39092.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pupo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38922.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37064.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36703.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35807.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Greatest Love Songs (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35298.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Roxette - Crash! Boom! Bang! (1994) 30th Anniversary Edition, Reissue, 2024, War
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35010.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34403.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33871.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33865.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33807.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31876.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Best Disco In Town (2007) 3 CD [OGG Vorbis|480 Kbps] <Funk / Soul, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31577.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Secret Service - Top Secret* (*Greatest Hits) (2000) [OGG Vorbis|480 Kbps] <Elec
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31565.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Zucchero - DISCOVER II (2025) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31264.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - 50s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30945.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - 60s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30943.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Pop Hits 2000 - 2024 - 100 Best Songs (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30783.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Dance Classics Gold (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29905.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Dance Classics Gold (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29888.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - MegaHits 2025 - Die Erste [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29399.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Dance Classics Vol. 6 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29376.jpg" />
 </div>
 
 

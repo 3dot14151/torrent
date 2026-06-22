@@ -1,3 +1,29 @@
+###  Публикация: 795436   (687461) от 13.06.2014
+
+Хищник / Predator (1987-2010) [1080p] BDRip [hand made 60fps] [Director's Cut] [Антология]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наемник Ройс невольно вынужден возглавить группу профессионалов, выполняющих загадочную миссию на неизвестной планете. За исключением опального доктора все они — хладнокровные убийцы: наемники, гангстеры, осужденные и участники отрядов смерти — людские «хищники». Но когда их начинает систематически преследовать и истреблять невообразимое чудовище, становится очевидно, (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Фантастика, БоевикРежиссер: Нимрод АнталАктеры: Эдриан Броуди, Тофер Грейс, Алиси Брага, Уолтон Гоггинс, Олег Тактаров, Лоренс Фишбёрн, Дэнни Трехо, Луис Одзава Чангчьен, Махершала Али, Кэри ДжонсПеревод: ДублированныйЯзык субтитров: Rus (полные), Eng (полные)Продолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAEAC3287FBA36A919AA1C934FEB4CAAD06D3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289478   (686233) от 16.03.2019
 
 Крид 2 / Creed II (2018) BDRip [H.264/1080p-LQ] [hand made 16:9]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686233.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686034.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685256.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677898.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677109.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676337.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675042.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674494.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673797.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672839.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672719.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671717.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671186.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671086.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670995.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670993.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670987.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670899.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670425.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668965.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668823.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Claude Francois - Video Collection от ALEXnROCK (2019) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668595.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668486.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ C.C. Catch - Video Collection от ALEXnROCK (2018) DVDRip [H.264/720p-LQ] [Upsc
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668004.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666351.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69178C5232208424732C95AD7F64A0B5FD71F144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137675   (666323) от 27.05.2017
-
-Логан / Logan (2017) BDRip [H.264/1080p] [handmade 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666323.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем уставший от жизни Логан заботится о больном профессоре Икс, который прячется неподалеку от мексиканской границы. Но Логан больше не сможет скрывать свое прошлое, когда встретится с юным мутантом, которого преследуют темные силы.Производство: СШАЖанр: Боевик, Фантастика, Триллер, ДрамаРежиссер: Джеймс МэнголдАктеры: Хью Джекман, Патрик Стюарт, Дафни Кин, Бойд Холбрук, Стивен Мерчант, Элизабет Родригес, Ричард Э. Грант, Эрик Ла Салль, Элиз Нил, Куинси ФаусПеревод: Дублированный (iTunes)Субтитры: русские (форсированные, полные), английские (полные)Продолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659B2F908E9CE7C166BA7BF86EFEC32FC794A2B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

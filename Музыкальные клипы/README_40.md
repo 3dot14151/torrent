@@ -1,3 +1,211 @@
+###  Публикация: 1764205   (35020) от 06.12.2024
+
+will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35020.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Scream & Shout» — песня американского рэпера will.i.am, записанная при участии Бритни Спирс и выпущенная 20 ноября 2012 года в качестве третьего сингла из альбома #willpower. Премьера клипа на песню «Scream & Shout» состоялась в США во время прямого эфира шоу The X Factor 28 ноября 2012 года и была доступна для просмотра на Vevo сразу после трансляции шоу (   Читать дальше...   )Жанр: Данс-попПродолжительность: 00:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4152ED94568DC19247109C53A573E7A3070D6AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764199   (35007) от 06.12.2024
+
+Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35007.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Godzilla» — песня американского рэпера Эминема при участии американского рэпера Juice WRLD из одиннадцатого студийного альбома Эминема Music to Be Murdered By (2020). Песня является первым посмертным релизом Juice WRLD после его смерти в декабре 2019 года. 6 марта 2020 года Эминем выпустил фрагмент музыкального клипа в сотрудничестве с Lyrical Lemonade. Музыкальный (   Читать дальше...   )Жанр: Хардкор-хип-хоп, хорроркорПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315856E3788C608FE20AF8619EA266DC4585FD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764198   (35005) от 06.12.2024
+
+Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35005.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Berzerk» (c англ. «Берсерк») — песня, которую написал американский рэпер Эминем, выпустил в качестве первого сингла из своего восьмого студийного альбома The Marshall Mathers LP 2. В начале ролика зритель видит стоящий на крыше многоэтажного дома бумбокс с лежащей на нём кассетой. Дом стоит в окружении более высоких. Далее к бумбоксу подходит Eminem и наклонившись (   Читать дальше...   )Жанр: рэп-рокПродолжительность: 00:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A743CECBCC602B01B0D3D40E1F0BA08A307357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764204   (35002) от 06.12.2024
+
+Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35002.jpg" />
+</div>
+
+
+###  Подробнее
+
+«We Are Never Ever Getting Back Together» (с англ. — «Мы никогда больше не будем вместе») — сингл американской кантри и поп-певицы Тейлор Свифт, изданный 13 августа 2012 года лейблом Big Machine Records и ставший первым с нового 4-го альбома Red, выход которого состоялся позднее, 22 октября 2012 года. Премьера клипа на песню состоялась на каналах CMT, (   Читать дальше...   )Жанр: бабблгам-поп, поп-рок, электро-фолкПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8074FABB78E0F7DBB86CDDE70580650148F86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764203   (35001) от 06.12.2024
+
+Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35001.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Rap God» (с англ. — «Бог рэпа») — третий сингл американского рэпера Эминема из его восьмого студийного альбома. Премьера песни состоялась 14 октября 2013 года. Песня занесена в Книгу рекордов Гиннесса как хит с самым большим количеством слов (1560). 27 ноября 2013 года, как и планировалось, клип был выпущен на Vevo. В клипе Эминем пародирует Max Headroom. (   Читать дальше...   )Жанр: хип-хопПродолжительность: 00:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54657164CAA39109FA0A2A3F6145A58CE3FC1C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764200   (34990) от 06.12.2024
+
+Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34990.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Love the Way You Lie» (с англ. — «Мне нравится, как ты лжёшь») — песня американского рэпера Эминема, записанная при участии барбадосской певицы Рианны, и второй сингл его седьмого студийного альбома Recovery, выпущенный в июне 2010 года лейблами Shady Records, Interscope Records и Aftermath Entertainment. Официальная премьера клипа на YouTube-канале (   Читать дальше...   )Жанр: поп-рэпПродолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8623DEB9542F51FC799359B3326A14450E70E76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764383   (34908) от 07.12.2024
+
+Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34908.jpg" />
+</div>
+
+
+###  Подробнее
+
+«The Monster» — четвёртый сингл американского рэпера Эминема с его восьмого студийного альбома The Marshall Mathers LP 2. Клип был представлен 17 декабря 2013 года на сайте YouTube. На протяжении всего видеоклипа Эминем перевоплощался в героев своих предыдущих видеоклипов и выступлений периода 1999—2002 годов.Жанр: Хип-хопПродолжительность: 00:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5ABF80C9A24CD500B2D2560001ED2EFAA9289A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764381   (34907) от 07.12.2024
+
+Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34907.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Wonderful Life» — песня британского дуэта Hurts из дебютного альбома группы «Happiness». В клипе Wonderful Life прослеживается влияние фильма «Восемь с половиной» Федерико Феллини, как несколько перекликающихся идей, так и внешнее сходство главных героев. Релиз клипа: 24 июля 2010 года.Жанр: синтипоп, электроникаПродолжительность: 00:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF0A20227E337D1DA2D07DFDFF0D17D6F8789B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764388   (34902) от 07.12.2024
 
 Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +214,7 @@ Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34902.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34901.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34896.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34895.jpg" />
 </div>
 
 
@@ -112,7 +320,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34885.jpg" />
 </div>
 
 
@@ -138,7 +346,7 @@ Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33685.jpg" />
 </div>
 
 
@@ -164,7 +372,7 @@ Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33684.jpg" />
 </div>
 
 
@@ -190,7 +398,7 @@ Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33670.jpg" />
 </div>
 
 
@@ -216,7 +424,7 @@ Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33669.jpg" />
 </div>
 
 
@@ -242,7 +450,7 @@ Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33664.jpg" />
 </div>
 
 
@@ -268,7 +476,7 @@ Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33660.jpg" />
 </div>
 
 
@@ -294,7 +502,7 @@ The Black Eyed Peas - Don't Stop The Party (2011) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33654.jpg" />
 </div>
 
 
@@ -320,7 +528,7 @@ The Black Eyed Peas feat. Shakira - Girl Like Me (2020) WEB-DLRip [H.265/2160p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33650.jpg" />
 </div>
 
 
@@ -346,7 +554,7 @@ The Weeknd feat. Daft Punk - I Feel It Coming (2017) WEB-DLRip [AV1/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32746.jpg" />
 </div>
 
 
@@ -372,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32721.jpg" />
 </div>
 
 
@@ -398,7 +606,7 @@ Scooter - Video collection - Chapter 6 (2019 - 2022) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29259.jpg" />
 </div>
 
 
@@ -424,7 +632,7 @@ Scooter - Video collection - Chapter 5 (2014 - 2017) WEBRip [H.265/2160p] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29258.jpg" />
 </div>
 
 
@@ -450,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29119.jpg" />
 </div>
 
 
@@ -464,219 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD6930E68398B3AA17529D297AF2F849CF371B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778237   (28242) от 08.02.2025
-
-Полина Гагарина – Танец перед зеркалом (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не бойся теней. Они означают, что рядом есть свет.
-В начале 2025 года Полина представила песню «Танец перед зеркалом».
-Танец перед зеркалом — мне хорошо,
-Танец перед зеркалом — вальс нагишом...Производство: РоссияЖанр: ПопСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 00:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB5B7B88BE9363E83825BAE3923B0845FBD5C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778868   (28042) от 10.02.2025
-
-Джизус & Юлия Савичева – Лето без тебя (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Савичева в последнее время тяготеет к утяжелённому звучанию, но продолжает всё сильнее углубляться в эту стилистику. Теперь дело дошло до дуэта с Джизусом, которого певица считает рок-звездой нового поколения.
-Для Джизуса этот фит – возможность выйти на новый уровень, рассказать о себе и своей музыке более широкой аудитории.Производство: Россия | SEVER Production CoЖанр: Поп-рокРежиссер: Константин ЧерепковАктеры: Саша Колесникова, Олег КузнецовЯзык: РусскийПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA09B0B65B61FA098C2F5EFFC47D823480613160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778924   (28030) от 10.02.2025
-
-Юлия Савичева – Девочка (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песня «Девочка» задумывалась Юлией Савичевой как мотивационный гимн, призывающий девочек, девушек, женщин любить себя и не плакать из-за мелочей. После выхода mood video стало очевидно, что певица обращается в первую очередь к себе, может быть, поэтому Юля постеснялась называть «Девочку» клипом и считает ролик «настроенческим видео».Производство: Россия | SEVER Production Co.Жанр: ПопРежиссер: Константин ЧерепковАктеры: Варвара Макарова, Татьяна Романова, Глеб Замлелый, Даналаки Ион, Куликова Олеся, Пакалов АндрейЯзык: РусскийПродолжительность: 00:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B78F407050D8990763F3B0167B0367BFBDE20FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779183   (27835) от 12.02.2025
-
-NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий «NЮ» Николаенко примерно раз в два месяца выпускает потрясающие лирические произведения и не думает останавливаться . После трогательных воспоминаний о первой любви в «18» Юра представил песню «Некуда бежать» - теперь уже о зрелых отношениях, закончившихся расставанием, и запоздалом раскаянии героя.Производство: Россия | «Союз Мьюзик»Жанр: Поп-музыка («Умная лирика»)Режиссер: Дмитрий ПекшинЯзык: РусскийПродолжительность: 00:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D41D977158A73C3272A3CB671BE9EB4E29DA020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779357   (27831) от 12.02.2025
-
-Полина Гагарина – Обезоружена (2017) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клип на песню "Обезоружена" снимался в Москве. Певица доказала, что не просто так заканчивала школу-студию МХАТ. Полина показала себя настоящей актрисой, отразив в клипе всю душевную боль, переживаемую ее лирической героиней.
-«В видео соединились самые разные краски и настроения – романтические и мечтательные, задумчивые, грустные, счастливые. Жизнь полна (   Читать дальше...   )Производство: Россия | Hoodyakov ProductionЖанр: ПопРежиссер: Алексей КуприяновЯзык: РусскийПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAAD9D148D92B262F39D0DBAA7FB67CE43B9404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790487   (21260) от 16.04.2025
-
-STAYC - GPT (On the Spot) (2024) UHDTVRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: K-PopПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AAA56B1FB10C709A54BC38AE3F85CBFF67EF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792800   (20815) от 20.04.2025
-
-Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopРежиссер: BRTHRПродолжительность: 00:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFC582600C36218FE6F9EB5A9FC0D4B9D4F6621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796706   (17884) от 18.05.2025
-
-Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopРежиссер: Danny KimПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353938B9021BEE1AE0784D3786936E30FAFFF37F
 ```
 
 https://mybot314.ru/tekegram_catalog/

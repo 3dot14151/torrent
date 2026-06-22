@@ -1,3 +1,107 @@
+###  Публикация: 1730041   (53339) от 14.06.2024
+
+Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodstained: Ritual of the Night – это смесь готического хоррора, экшна, платформера и RPG в атмосфере Англии XIX века. Сверхъестественные силы призвали на Землю замок, населенный демонами, и кристаллы-осколки, полные магической силы. Играйте за Мириам - сироту, чье тело медленно превращается в кристалл из-за алхимического проклятия.Тип издания: LicenseРазработчик: Inti Creates, Dico Co., Ltd., ArtPlay, MonobitЖанр: Экшны, Ролевая игра, MetroidvaniaЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Японский и другиеЯзык интерфейса: Русский, Английский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC2A520855F3F2276EC176D3CE94E9CB5E0E493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683161   (53287) от 15.06.2024
+
+Born of Bread (2023) [Multi] (r3.2.4d) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этому миру и его обитателям грозит опасность! Существа из другого века пришли, чтобы сеять хаос. Спасти всех и раскрыть тайну длиной в тысячу лет предстоит необычному герою - голему из теста и муки. Вместе с друзьями он побывает в необычных местах и встретит забавных персонажей. Хотя наш сдобный герой и выглядит не очень грозно, он еще покажет, из какого он теста.Тип издания: LicenseРазработчик: WildArts Studio Inc.Жанр: Приключение, Ролевая играЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DC0B9676F5FDC29AE748C44397D8BFB41C500C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730502   (53135) от 16.06.2024
+
+Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freedom Force vs. the Third Reich – изометрическое ролевое приключение, наполненное юмором практически доверху и повторяющее стилистику золотого века для супергеройских комиксов в мельчащих деталях, создавая иллюзию того, что всё вокруг – ожившие страницы журнала. Вторая часть серии Силы Свободы. Сюжет стартует сразу после временного парадокса, вызванного Блицкригом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730482   (53117) от 16.06.2024
+
+Freedom Force (2002) [En] (1.3) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ролевая стратегическая игра - Freedom Force - стала комически смешным олицетворением команды супергероев, которые будут защищать базу Патриот Сити. Бороться мы будем непосредственно с мутантами, чудовищами и всякими прочими угрозами. Вся игра построена на визуализации старых комиксов, которые в более-менее современной графике выглядят достаточно смешно. Первые сюжетные (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819EE5EB1E247D3DEC3246B5056CD35646D15DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669098   (52755) от 20.06.2024
 
 Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Edition]
@@ -6,7 +110,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52755.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52591.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52495.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52480.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52432.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52402.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52396.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52180.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52110.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51880.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51720.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51714.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Ludus Mortis (2024) [Multi] (1.0.8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51355.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51215.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51156.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Black Pool (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51055.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51044.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Scars of Mars (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50916.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.08) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50872.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50860.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50811.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Digimon Survive (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50806.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Digimon Survive - тактическая JRPG, разработанная по �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE83DAA3B6244FFC51A39E4409557AC472D40C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735545   (50720) от 08.07.2024
-
-Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в пустынный мир, где и люди, и демоны страдают от острой нехватки воды, - SAND LAND. Познакомьтесь с дьявольским принцем Вельзевулом, его сопровождающим Вором и бесстрашным шерифом Рао и отправляйтесь вслед за командой в необычное приключение на поиски легендарного источника, спрятанного в пустыне. Конец - это только начало, ведь за пределами этой засушливой (   Читать дальше...   )Тип издания: SceneРазработчик: ILCA, Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D52C76544B3EDD10CB8F50C9604BD02EAEE636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713494   (50709) от 08.07.2024
-
-Islands of the Caliph (2023) [En] (1.2.8) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Islands of the Caliph - это ролевая игра в жанре Action RPG, которая черпает вдохновение из древней мореходной ближневосточной цивилизации. Она представляет собой уникальное сочетание олдскульных РПГ, восточного фольклора и исламских духовных традиций. Приготовьтесь к путешествию по вымышленной островной цивилизации, где вы встретите мифических зверей, спрятанные (   Читать дальше...   )Тип издания: LicenseРазработчик: Schmidt WorkshopsЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD7FB42E54607360CB8C4677CBD8889778D8F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728104   (50702) от 08.07.2024
-
-The Leviathan's Fantasy (2023) [Multi] (2.1.4/dlc) Scene Tenoke [Ultimate Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50702.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Leviathan's Fantasy - это игра-симулятор, в которой вам предстоит управлять собственным облачным городом на спине гигантского чудовища. Вы можете нанимать искателей приключений из разных культур и слоев общества и отправлять их исследовать таинственные плавучие острова, хранящие истории и секреты из разных мест.Тип издания: RepackРазработчик: Star Chess StudioЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354B51E2785E9785ED4D6FC79B60C5EF7D56B493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736284   (50420) от 11.07.2024
-
-Robin Hood: Sherwood Builders (2024) [Ru/Multi] (2.01.31.01) Scene DINOByTES
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robin Hood - Sherwood Builders – это приключенческая ролевая игра с элементами градостроительства, в которой вам предстоит воплотиться в классического героя, борющегося с тиранией и несправедливостью, царящими в Шервуде. В роли Робина вы будете сражаться, охотиться, созидать, воровать у богатых и, конечно же, помогать местным жителям, чтобы противостоять шерифу Ноттингема (   Читать дальше...   )Тип издания: SceneРазработчик: MeanAstronautsЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2C2A955FDDED911D190ECE4267315D7AC09849
 ```
 
 https://mybot314.ru/tekegram_catalog/

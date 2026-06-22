@@ -1,3 +1,81 @@
+###  Публикация: 1400961   (714553) от 07.08.2020
+
+Fast & Furious Crossroads (2020) [Ru/Multi] (1.0) License CODEX
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в опасном мире организованной преступности, трое владельцев гаражей оказываются на распутье. В поисках мести их судьбы сталкиваются с командой знакомых героев, чтобы объединиться перед лицом общего врага.Тип издания: LicenseРазработчик: Slightly Mad StudiosЖанр: Action, Adventure, RacingЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1298ACC4EB47D488336FB82B7279FB47216B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400983   (712621) от 08.08.2020
+
+Fast & Furious Crossroads (2020) [Ru/Multi] (1.0/dlс) Repack ElAmigos [Digital Deluxe Edition]
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в опасном мире организованной преступности, трое владельцев гаражей оказываются на распутье. В поисках мести их судьбы сталкиваются с командой знакомых героев, чтобы объединиться перед лицом общего врага.Тип издания: RepackРазработчик: Slightly Mad StudiosЖанр: Action, Adventure, RacingЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD32B2C3FA4E829770684F19D3B95FC7DDA51863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025413   (711064) от 11.06.2016
+
+Driver: San Francisco (2011) [Ru/En] (1.0.04.1114) Repack =nemos=
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над солнечным Сан-Франциско нависла страшная угроза в лице таинственного и коварного преступника Чарльза Джерико. Противостоять этому злодею способен только один человек по имени Джон Таннер, который за свою жизнь исколесил дороги сотен городов и упрятал за решетку целую армию головорезов всех мастей. Однако, одержать верх в схватке с Джерико не так-то просто. Джон, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft ReflectionsЖанр: Action, Racing (Cars), 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71BFE86E736DB8AC9CF7ED7DFC8A6A3E5E4E9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 792972   (705709) от 04.06.2014
 
 Euro Truck Simulator / С грузом по Европе (2008) [Ru/Multi] (1.3) SteamRip R.G. Games
@@ -6,7 +84,7 @@ Euro Truck Simulator / С грузом по Европе (2008) [Ru/Multi] (1.3)
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705709.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.08/dlc) Repack =nemos= [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704912.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.08/dlc) Repack xatab [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704686.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Automobilista 2 (2020) [En] (1.0.2.1/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697209.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ MX vs ATV Supercross Encore (2015) [Multi] (1.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694764.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ KRAZ / КРАЗ [Ru] (RePack) 2010 | R.G.Spieler
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693224.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ Death Rally (2012) [En] (1.00.20.141) Repack R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686678.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ Coffin Dodgers (2015) [Ru/Multi] (1.2.4) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683765.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ DiRT Rally (2015) [Ru/En] (1.23) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674209.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ Bang Bang Racing (RePack/1.0) [Multi5\-] 2012 | VANSIK
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674123.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ V-Rally 4 (2018) [Ru/Multi] (1.08/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673729.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Need for Speed: The Run (2011) [Ru] (1.1.0.0) Portable PortGamPC
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673526.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ Project CARS (2015) [Ru/Multi] (11.0.0.0.1235/dlc) Repack by xatab [Year Edition
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671561.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ Trailblazers (2018) [Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667965.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ Danger Zone (2017) [En] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662942.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ MXGP3 - The Official Motocross Videogame (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662935.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Mad Riders [Ru] (RePack/1.0.1.0) 2012 l Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661110.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Ridge Racer Unbounded + 4 DLC [Multi6/+] (RePack/1.13) 2012 l Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660926.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ Hover : Revolt Of Gamers (2017) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660873.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ F1 2017 (2017) [Ru/En] (1.13/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657439.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ Need For Speed Rivals (2013) [Ru/En] (1.4.0.0) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655354.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655352.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Xenon Racer (2019) [Ru/Multi] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650122.jpg" />
 </div>
 
 
@@ -595,88 +673,6 @@ Xenon Racer – футуристическая гоночная аркада, с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C27362258E0CB27BB37E6FFE0BDF1FB8749F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250956   (648168) от 28.03.2019
-
-Dakar 18 (2018) [En] (1.13/dlc) Repack xatab
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648168.jpg" />
-</div>
-
-
-###  Подробнее
-
-DAKAR 18 — симулятор ралли в Южной Америке с отличной графикой и множеством техники: мотоциклы, автомобили, грузовики, квадроциклы, SxS. Соревнуйтесь по сети или практикуйтесь в одиночку.Тип издания: RepackРазработчик: Bigmoon EntertainmentЖанр: Racing, Arcade, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6112B904A1B668B8EDED446B5FBFBF6151BA3A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292866   (642531) от 31.03.2019
-
-Xenon Racer (2019) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальная федерация гонщиков ввела перерыв в соревнованиях, чтобы дать командам время освоить летательные аппараты. В этом перерыве производители автомобилей организовали чемпионат для начинающих гонщиков. Автомобили, работающие на электричестве и ксеноне, обеспечивают сумасшедшую скорость. Садитесь за руль и не забывайте следить за уровнем адреналина, мчась по (   Читать дальше...   )Тип издания: RepackРазработчик: 3DClouds.itЖанр: Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8307185BF437E916A9A007739FD42A6688DA9207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 427443   (640461) от 04.07.2012
-
-FlatOut 3: Chaos & Destruction [Ru/En/Multi7] (L/1.04) 2011 l R.G. Origins
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описать игру можно буквально в трех словах: «ТрэшЪ, АдЪ и УгарЪ». Под каждым словом этого определения готовы подписаться тысячи поклонников серии по всему миру. Некогда маленькая финская студия BugBear cотворила увлекательную аркаду FlatOut, где в пух-и-прах можно было раскурочить свой пепелац, зашвырнуть водятла в длинну или высоту на рекорд, и вообще, увлекательно провести время. И всё было хорошо, пока издательство Empire Interactive не склеило ласты, и не распродало бренды с молотка.
-
-     И вот, разработкой игры занялись укурки-абортмахеры из "Team 6 Game Studios". Дунув забористого голландского гашиша, быдлокодеры студии выдали в свет лютое, 11 гигабайтное нечто, заставившее несчастных игроков рыдать кровавыми слезами.
-
-В Steam за это нечто, оказывается, ещё просят денег. R.G. Origins восстанавливает справедливость и предлагает ознакомится с этой, простигоспади, "игрой" совершенно бесплатно.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Team 6Жанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Не требуетсяЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

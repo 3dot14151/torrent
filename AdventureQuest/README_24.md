@@ -1,3 +1,107 @@
+###  Публикация: 1204781   (784265) от 07.02.2018
+
+Silent Descent (2018) [En] (1.03) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silent Decent — очень захватывающая игра ужасов от первого лица с богатой и привлекательной атмосферой. Вы играете за попавшего в ловушку дьявола Сэмюэля Харриса (Samuel Harris), который бродит в бесконечной временной петле, состоящей из тоски, боли и страданий. Сможете ли вы найти способ спасти измученную душу человека?Тип издания: LicenseРазработчик: Deceptive Games Ltd.Жанр: Adventure, (Horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C860DF5A9F7AEC059F69B1F96FF3D37DAA0E1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389833   (783843) от 12.06.2020
+
+The Light Remake (2020) [Ru/En] (1.01) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть только вы, заброшенные останки былой жизни и расцветающая природа, отлично чувствующая себя в отсутствие человека. Этот мир одновременно мрачен и пуст, но так невероятно красив. Свет - это ремейк оригинальной игры 2012 года, атмосферное авторское высказывание о нашем месте в этом мире, жизни и смерти. Исследуйте загадочную территорию, наполненную разнообразными (   Читать дальше...   )Тип издания: LicenseРазработчик: Носков СергейЖанр: Adventure, Simulator, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23D2722ADACA2FEA2AB586950F277CE3F0FCF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389731   (783826) от 12.06.2020
+
+Deck of Ashes (2020) [Ru/Multi] (1.4.55057) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deck of Ashes — это приключенческая игра с тактическими карточными боями. Одного за другим, ведите банду антигероев по пути искупления. Исследуйте мрачный фантастический мир и собирайте карты в уникальную боевую колоду. Проверьте свое умение выживать и управлять ресурсами, улучшая лагерь союзников. От любого выбора — куда идти, какие ресурсы собирать, на какой риск (   Читать дальше...   )Тип издания: LicenseРазработчик: AYGamesЖанр: Adventure, StrategyЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92112CC64DE469A7EB091E307015AE94B2986F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389724   (783822) от 12.06.2020
+
+Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однопользовательская игра в стиле приключенческого повествования, в которой мы оказываемся в пульсирующем голубом сердце нашей планеты. Игрок переносится в ближайшее будущее и познаёт тайны океана, обозревая подводный мир глазами Мирай — ученой и исследовательницы океанических глубин. Ваша недавно сформированная исследовательская группа, вооруженная инновационными (   Читать дальше...   )Тип издания: LicenseРазработчик: E-Line MediaЖанр: 3rd Person, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16BB7A519C9581CAF06031E9783CE0B8A30AC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205341   (783743) от 09.02.2018
 
 Lost God (2018) [En] (1.0) License PLAZA
@@ -6,7 +110,7 @@ Lost God (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783743.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783731.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781768.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Samorost 2 / Саморост 2: Звезданутое Приключение [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780622.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ MonteCrypto: The Bitcoin Enigma (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780029.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ Sherlock Holmes: Crimes and Punishments / Шерлок Холмс - Престу
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779844.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ Far Out (2018) [Ru/En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779841.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Award Room of fear (2018) [Ru/En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778425.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ Sylvio Remastered (2016) [En] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_778215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_778215.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) License GOG [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778173.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ The Walking Dead: Michonne - Episode 1-3 (2016) [Ru/Multi] (1.0.0.0) Repack R.G.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778136.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ The Raven: Legacy of a Master Thief (2013) [En/Ge] (3.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778055.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Sylvio Remastered (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777807.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ Life is Strange: Before the Storm (2017) [Multi] (1.0/dlc) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777691.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Distortions (2018) [En/Br] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777378.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ I’m Lost (2018) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776625.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ Kathy Rain (2016) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776355.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ Lost Horizon 2 (2015) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776238.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776038.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ Soul Axiom (2016) [En] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775958.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ Fragments of Him (2016) [En] (1.20) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775906.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ A Golden Wake (2014) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775521.jpg" />
 </div>
 
 
@@ -573,111 +677,6 @@ A Golden Wake - адвенчура от независимого разрабо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02ECA6BBE55CA2D1BDCA8E69EFD24254E45A3462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269295   (775501) от 21.01.2019
-
-Lucius III (2018) [Ru/Multi] (1.190118112744.a) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люциус (Lucius) вернулся. В этот раз он прибывает в окрестности Уинтер-Хилл. Проходя испытания и невзгоды, мы наконец увидим, куда ведет его дорога. Это будет непросто. Впервые его выбор поставится под сомнение. Настало ли время положить конец всему этому?Тип издания: LicenseРазработчик: Shiver GamesЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BC7047648DF7DA1EA08C51F72C4B729FEA9804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014957   (775417) от 09.05.2016
-
-Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775417.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «Мор. Утопия» игрок попадает в захолустный городок, построенный у древних скотобоен. Город охвачен загадочной эпидемией. Симптомы болезни известны, но ее происхождение остаётся загадкой... Кажется, неумолимая чума поражает не только тела, но и души. Pathologic Classic HD - это финальное издание оригинальной «Мор. Утопии», культовой психологической игры про выживание (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick Lodge и General ArcadeЖанр: Action, Adventure, RPG, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650CC6E514F87D9085595C51C66D5753B6148EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195408   (774893) от 13.03.2018
-
-Life is Strange: Before the Storm (2017) [Ru] (1.3.0.2/dlc) Repack xatab [Episode 1-3]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам уготована роль необычной мятежницы в мрачном приквеле к популярной игре Life is Strange, выпущенной студией Dontnod в 2016 году. Before the Storm, новая глава, действие которой происходит за три года до драматических событий оригинальной игрыТип издания: RepackРазработчик: Deck NineЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9A32B79B91C570486402348F747F85B10C69A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015256   (774695) от 10.05.2016
-
-Pathologic Classic HD / Mор Утопия HD (2015) [Ru/Multi] (1.03) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pathologic Classic HD — это окончательное издание оригинальной survival adventure
-«Мор. Утопия», где вам предстоит отправиться в затерявшийся на задворках древней степи городок, бывший некогда скотоводческим поселением. Теперь же культура степняков сохраняется только под колоссальным куполом Боен — но, впрочем, отголоски её слышны по всему городу; во всех его равноудалённых (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-pick Lodge, General ArcadeЖанр: Action, Adventure, RPG, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, ПольскийЯзык интерфейса: Русский, Английский, Итальянский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFBC970C7DEAAC09E0C919B03D012589CCE39D00
 ```
 
 https://mybot314.ru/tekegram_catalog/

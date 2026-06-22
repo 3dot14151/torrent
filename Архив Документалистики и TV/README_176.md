@@ -1,3 +1,31 @@
+###  Публикация: 916808   (590459) от 09.07.2015
+
+Время покажет с Петром Толстым (09.07.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попрошайки заполонили улицы российских городов. Они бьют на жалость, используют маленьких детей или рассказывают истории о страшных болезнях, и многие люди подают им милостыню.
+Но зачастую выясняется, что все эти истории вымышленные, а если и реальные, то попрошайки не имеют к ним никакого отношения – просто распечатывают из интернета.
+В первой части программы эксперты (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233AAE3431F1E6125A7EE0897BB4AE71256AFD11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917275   (589560) от 11.07.2015
 
 Пресс-конференция Президента РФ Владимира Путина в Уфе на саммите ШОС и БРИКС (2015.07.10) SATRip
@@ -6,7 +34,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589560.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589117.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589072.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588211.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ BBC: Путешествия по Южной Африке с Джулией Бр�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588098.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ MotoGP. Этап 9/18. Гран-При Германии Заксенринг. Г
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587931.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587554.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587553.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587552.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587551.jpg" />
 </div>
 
 
@@ -276,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587550.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587549.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587528.jpg" />
 </div>
 
 
@@ -362,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587525.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587519.jpg" />
 </div>
 
 
@@ -420,7 +448,7 @@ BBC: Шкала времени. Год без лета / Time watch. The Year Wi
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587256.jpg" />
 </div>
 
 
@@ -446,7 +474,7 @@ History Channel: Криминалистическая экспертиза: По
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587174.jpg" />
 </div>
 
 
@@ -472,7 +500,7 @@ FIA World RallyCross (WRX) Championship. Обзоры этапов 1-6 из 13 (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586840.jpg" />
 </div>
 
 
@@ -498,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586579.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586578.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586576.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586575.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586574.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586553.jpg" />
 </div>
 
 
@@ -672,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586552.jpg" />
 </div>
 
 
@@ -686,35 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80BC761FFA9C2457DAB1E7D99A866E1C463A2137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040495   (586551) от 05.08.2016
-
-Футбол. Олимпийские игры 2016. Мужчины. Группа C. 1-й тур. Фиджи - Южная Корея (04.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586551.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 августа 2016, пятница. 02:00 МСК
-Группа C. 1-й тур
-
-Стадион: Арена Фонте-Нова - Отавиу Мангабэйра (Салвадор, Бразилия) , вместимость: 52048(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Серов)Продолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024A41B747F80C8E4F4A69B34E4B34B10599B06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

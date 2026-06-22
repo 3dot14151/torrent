@@ -1,3 +1,82 @@
+###  Публикация: 401996   (205267) от 06.10.2022
+
+Игорь Тальков. Я точно знаю, что вернусь (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это случилось 6 октября 1991 года в Санкт-Петербурге. Во дворце спорта "Юбилейный" прозвучал роковой выстрел. Выстрел, который оборвал жизнь певца, поэта, композитора и актёра Игоря Талькова на самом пике его популярности. К памятной доске на стене "Юбилейного" до сих пор приходят люди и оставляют цветы перед портретом музыканта.
+Прошло уже двадцать (   Читать дальше...   )Телекомпания: ТВЦЖанр: Биографический, документальныйПродолжительность: ~00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F2A47F16A63F075C1F90520BC2364D77621A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655016   (204752) от 23.08.2023
+
+Музейные истории / Museum stories (2019) UHDTV [H.265/2160p] (серии 1-5 из ?)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествия по музеям Франции.Производство: Франция, Urubu FilmsЖанр: документальный, искусство, архитектураРежиссер: Грегори ШепардПеревод: одноголосый профессиональный (Audiovisit)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB103B2C0097DFEB03E4C8D0BF298513A5417DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655198   (204646) от 24.08.2023
+
+Ингрид Бергман: В её собственных словах / Jag ar Ingrid (2015) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204646.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2011 году режиссер Стиг Бьëркман встречает Изабеллу Росселлини, дочь Ингрид Бергман, которая предлагает ему «снять фильм о Маме». С помощью Изабеллы Стиг сможет представить историю Ингрид, рассказанную ее собственными словами с ее собственными образами. У Ингрид Бергман было семь номинаций на премию Оскара, и три награды. Она признана одной из самых талантливых (   Читать дальше...   )Производство: Швеция, Chimney, Mantaray FilmЖанр: документальный, история, биографияРежиссер: Стиг БьёркманУчастники: Пиа Линдстрем, Роберто Росселлини, Изотта Росселлини, Ингрид БергманПеревод: двуголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: английские (полные, на шведскую речь)Продолжительность: 01:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488CE9E72ECE7FE23CC12610185175F4F0440BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655838   (203950) от 28.08.2023
 
 Пищеблок: Экстра (2023) WEBRip [H.264/1080p] (серии 1-5 из 5)
@@ -6,7 +85,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203950.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203907.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203900.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203883.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Racionais MC’s: с улиц Сан-Паулу / Racionais MC's: From the Stree
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203874.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203847.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203773.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203758.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203739.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203699.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203678.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203657.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203628.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203596.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203589.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203368.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203350.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201718.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201680.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201564.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201302.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200822.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200453.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1537FBECCD752D4AA2B1085388ADCE11E2DBCB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624739   (200259) от 07.04.2023
-
-Беспечные ездоки и бешеные быки, или Как поколение секса, наркотиков и рок-н-ролла спасло Голливуд / Easy Riders, Raging Bulls: How the Sex, Drugs and Rock 'N' Roll Generation Saved Hollywood (2003)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1969 году малобюджетный байкерский фильм «Беспечный ездок» потряс Голливуд невероятным прокатным успехом и возвестил о начале новой эры. Это было время, когда молодые и талантливые режиссеры Скорсезе, Коппола и Спилберг вместе с новым поколением актеров, среди которых Де Ниро, Пачино и Николсон, стали влиятельными фигурами в кинематографе и создали современную (   Читать дальше...   )Производство: Великобритания, Канада / BBC Television Centre, Cactus ThreeЖанр: документальныйРежиссер: Кеннет БаузерПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203D11ABA95AB23FF6F7E52C062A6F66A457DD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633402   (198519) от 14.05.2023
-
-Жизнь с Чаки / Living with Chucky (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франшиза «Детские игры» стала культовой в мировом кинематографе. Неудивительно, что зрители с нетерпением ждали фильм, раскрывающий все секреты работы над куклой, которая пугала детей и взрослых с экранов телевизоров по всему миру. Кинопродюсер, выросший вместе с куклой-убийцей Чаки, ищет другие семьи, окружающие фильмы о кукле-убийце, чтобы поделиться своим опытом (   Читать дальше...   )Производство: США, Chucky DocumentaryЖанр: документальный, история, киноматографРежиссер: Кира Элиз ГарднерПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645DA33C7044D71CF579A88B34913C054EFE38A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633614   (198407) от 16.05.2023
-
-Проклятые фильмы / Cursed Films (2020-2022) WEB-DL [H.264/1080p] (сезоны 1-2, серии 1-10 из 10)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о создании и интервью с людьми, принимавшими участие в производстве таких культовых хорроров, как «Экзорцист», «Полтергейст», «Омен», «Ворон» и «Сумеречная зона» (1-й сезон) + "Волшебник страны Оз", "Ребенок Розмари", "Сталкер", "Змей и радуга" и "Ад каннибалов" (2-й сезон).Производство: Канада, США, Low End, Muse Entertainment Enterprises / ShudderЖанр: документальный, история, ужасы, кинематографРежиссер: Джей ЧилПеревод: многоголосый профессиональный (Ozz.tv)Язык озвучки: русскийСубтитры: русские (Ozz.tv, forced + full), украинские (Ozz.tv, forced + full), английские (full + SDH)Продолжительность: 5x ~00:30:00 + 5x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B8DB58414802B4C4F85FCBB6BFEC0933F9F7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

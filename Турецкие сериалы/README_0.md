@@ -1,3 +1,29 @@
+###  Публикация: 1616517   (1036414) от 02.03.2023
+
+Меня зовут Фарах / Adim Farah (2023) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1 из ??) AveTurk (обновляемая)
+
+>>Зарубежные сериалы
+>>Турецкие сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фарах сбежала из Ирана и вынуждена остаться в Стамбуле узнав, что беременна, начинает работать уборщицей, хотя по профессии является хирургом. Фарах успела стать и матерью, и врачом для своего сына Керимшаха, у которого врожденная болезнь. Нет ничего, что бы она не сделала для своего сына и необходимого для него лечения.Производство: Турция / О3 MedyaЖанр: криминал, драма, триллерРежиссер: Реджаи КарагозаАктеры: Демет Оздемир, Энгин Акъюрек, Фырат Таныш, Али Сюрмели, Лале Башар, Дерья Пынар Ак, Севги Бурджу Тюрюнз, Олимпиа Ахенк Доурмочев, Барыш Серкан Каракурт, Мустафа Авкыран, Сенан Кара, Октай Чубук, Мерт Доган, Озге Арслан, Кемаль Бурак Альпер, Фикрет Уруджу и др.Перевод: Двуголосый любительский (AveTurk)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5217FFA488667578996FEDDC8FD81A220E1DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443148   (1032170) от 11.02.2021
 
 50 m2 / 50 квадратных метров / 50M2 (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) TVShows
@@ -6,7 +32,7 @@
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032170.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030559.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021486.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020398.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018729.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018547.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017806.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014766.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014096.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013418.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011887.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011866.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011375.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010941.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009621.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008498.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004470.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002704.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908479.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883570.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882357.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880285.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880274.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878605.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878602.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA530B74994C9D40C9F37012F21C673EA154B89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871467   (877060) от 23.02.2015
-
-Курт Сеит и Александра / Kurt Seyit ve Sura (2014) HDTVRip (сезон 2, серии 1-8 из 8)
-
->>Зарубежные сериалы
->>Турецкие сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пронзительная история любви… Любви двух молодых людей, офицера русской царской армии Курта Сеита Эминова и Шуры (Александры), девушки из аристократической семьи. Казалось бы, все против них: родители, друзья и подруги, светское общество, национальные обычаи. Курт Сеит – красавец и пожиратель женских сердец с длинным донжуанским списком. И хотя его семья давно живет (   Читать дальше...   )Производство: Турция, Ay YapimЖанр: драма, мелодрама, военный, историческийРежиссер: Хилаль СаралАктеры: Кыванч Татлытуг, Фара Зейнеп Абдулла, Берк Ергер, Сердар Гёкхан, Седа Гувен, Сарп Кан Кёроглу, Биркан Сокуллу, Сергей Тэсслер и др.Перевод: Одноголосый любительский (озвучка - Ирина Котова, автор перевода - Melike Nehir, Ekaterina Celik, Алена Мартиросян, Milena GuseinovaПродолжительность: ~01:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840291EF578F933D1B3D8266C045F7085A28D7CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

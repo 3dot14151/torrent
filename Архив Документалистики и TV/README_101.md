@@ -1,3 +1,30 @@
+###  Публикация: 1281019   (753490) от 07.02.2019
+
+Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 8 (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 27.01.2019
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1D1F4C38ADF9D186409140B6B5632DFC298499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018928   (752473) от 22.05.2016
 
 Футбол. Чемпионат России 2015-2016. 30 тур. Терек - Ростов (21.05.2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +33,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752473.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752470.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752467.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752430.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752429.jpg" />
 </div>
 
 
@@ -151,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752428.jpg" />
 </div>
 
 
@@ -177,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752427.jpg" />
 </div>
 
 
@@ -203,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752426.jpg" />
 </div>
 
 
@@ -232,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752425.jpg" />
 </div>
 
 
@@ -261,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752424.jpg" />
 </div>
 
 
@@ -290,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752423.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752419.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752414.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752412.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752344.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752340.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ BBC: Гений Чарльза Дарвина [3 серии] / The Genius of Cha
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752291.jpg" />
 </div>
 
 
@@ -490,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752281.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752200.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752189.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752180.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ BBC. Великие природные явления / BBC. Nature's Great Even
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752140.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752098.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751923.jpg" />
 </div>
 
 
@@ -684,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_751922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751922.jpg" />
 </div>
 
 
@@ -696,33 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C80EB5D1589841BC35AB18ABAA24A76D6B0738B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499850   (751639) от 22.05.2016
-
-Спокойная природа. Естественный темп / Smooth Nature. Natural Pace (2011) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасные виды в сопровождении прекрасных звуков, будь то музыкальные произведения или голоса природы.
-Эти фильмы формата HD – верный помощник в борьбе со стрессом и усталостью!Жанр: ВидовойПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 02:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398E484A27BB9B4F0F918A28F629CEE3441317D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

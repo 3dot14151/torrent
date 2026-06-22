@@ -1,3 +1,138 @@
+###  Публикация: 1502617   (826611) от 15.10.2021
+
+Хелло, Жанин / Hallo Janine! (1939) BDRip [H.264] [DVO]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция. Весь Париж собирается в варьете смотреть танцевальное ревю с участием длинноногих красоток. Одна из них - Жанин, одарённая танцовщица, исполняющая степ. Однажды она узнаёт, что её лучшую подругу обманул и бросил некий граф Рене. Она решает познакомиться с этим негодяем, влюбить в себя, а потом хладнокровно сказать ему "прощай" и тем самым отомстить (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: мюзиклРежиссер: Карл БезеАктеры: Марика Рёкк, Иоханнес Хестерс, Руди Годден, Мади Раль, Эльза Эльстер, Эрих Понто, Кёте Кюль, Хуберт фон Майеринк, Ernst Dumcke, Эдит МайнхардПеревод: любительский двухголосый (Светла)Субтитры: немецкиеПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA616CC418DCD34EAB62174F07CD90244D24E41E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115699   (826153) от 18.03.2017
+
+Тина Кароль - Цветы жизни DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выше облаков
+02. Шиншилла
+03. Пупсик
+04. Не бойся(   Читать дальше...   )Производство: УкраинаЖанр: МузыкальныйАктеры: Тина КарольПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2EEAA35A77675DF34AF72A90CF4383D4C6292D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196006   (825553) от 01.01.2018
+
+Главный новогодний концерт (2017.12.31-2018.01.01) SATRip (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все звезды на одной сцене! Большинство звезд специально объединятся в дуэты и трио, чтобы хиты в их исполнении зазвучали по-новому.Телекомпания: Первый каналЖанр: КонцертАктеры: Ольга Кормухина, Интарс Бусулис, Валерия, Юрий Антонов, Варвара, "Бурановские бабушки", "Иванушки Int.", "Фабрика", Олег Газманов, Александр Буйнов, Егор Крид, Полина Гагарина, DJ Smash, "А-студио", Александр Панайотов, Светлана Лобода, Вахтанг, Владимир Пресняков, Александр Иванов, Александр Ревва, Глюкоза, Нюша, Ани Лорак, (   Читать дальше...   )Субтитры: ОтсутствуютПродолжительность: ~ 03:46:08Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5495B2617CBB664863FCB852D784DE7C007287C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196401   (825214) от 28.04.2010
+
+Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шикарный концерт группы Foreigner с лучшими хитами 70 - 80 годов...Смотрим, слушаем, наслаждаемся мелодичным хард-роком.
+
+Universally hailed as one of the most popular rock acts throughout the 70s and 80s, Foreigner still puts on an absolutely thrilling and sensational show thirty years later. This episode of Soundstage is packed with smash hits like Cold As Ice, (   Читать дальше...   )Жанр: Hard RockРежиссер: Joe ThomasПеревод: ОригинальныйПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196477   (824119) от 02.01.2018
+
+Песня года Беларуси (2017) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный фестиваль собрал популярных артистов, которые занимают вершины хит-парадов.Телекомпания: Беларусь / ОНТЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0358C8F19F69BA28E116D18EF6C946AFF2B906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196217   (823883) от 02.01.2018
 
 Песня года 2017 (01-02.01.2018) SATRip (части 1-2 из 2)
@@ -6,7 +141,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823883.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823474.jpg" />
 </div>
 
 
@@ -63,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823394.jpg" />
 </div>
 
 
@@ -92,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823382.jpg" />
 </div>
 
 
@@ -121,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822920.jpg" />
 </div>
 
 
@@ -147,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822506.jpg" />
 </div>
 
 
@@ -173,7 +308,7 @@ ZZ Top - Live at Bonnaroo (2014) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821686.jpg" />
 </div>
 
 
@@ -202,7 +337,7 @@ Blue Man Group - How to Be a Megastar 2.0! (2008) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821492.jpg" />
 </div>
 
 
@@ -231,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820493.jpg" />
 </div>
 
 
@@ -260,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820414.jpg" />
 </div>
 
 
@@ -286,7 +421,7 @@ The War Of The Worlds - The New Generation (2013) BDRip [H.264/1080p] [EN / RU S
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820411.jpg" />
 </div>
 
 
@@ -313,7 +448,7 @@ Wax Audio (видеография) (2004-2007) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819998.jpg" />
 </div>
 
 
@@ -342,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819982.jpg" />
 </div>
 
 
@@ -372,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819938.jpg" />
 </div>
 
 
@@ -402,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819255.jpg" />
 </div>
 
 
@@ -432,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818820.jpg" />
 </div>
 
 
@@ -460,7 +595,7 @@ The ABBA Story - The Winner Takes It All (1999) TVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818229.jpg" />
 </div>
 
 
@@ -488,7 +623,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) Blu-
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818151.jpg" />
 </div>
 
 
@@ -518,7 +653,7 @@ Masters Of The Country Blues: / Son House & Bukka White - 1960 (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817957.jpg" />
 </div>
 
 
@@ -547,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817256.jpg" />
 </div>
 
 
@@ -573,7 +708,7 @@ Kylie Minogue - Kiss Me Once (Live at the Sse Hydro) (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816775.jpg" />
 </div>
 
 
@@ -590,147 +725,6 @@ Kylie Minogue - Kiss Me Once (Live at the Sse Hydro) (2014) BDRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56DD6320EC296174DB8AE0C233AB8D513B4F1AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233763   (816702) от 12.05.2020
-
-Бит- квартет "Секрет" - Снова вместе, 25 лет спустя! (Телеверсия концерта) (2007) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Домой
-02. Ничего не исчезает
-03. Привет
-04. Твой папа был прав(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24D5C911FCB6A8D9BF2C028A17EC6F0E9013878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882586   (816624) от 29.03.2015
-
-Shania Twain - Still The One: Live From Vegas (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия шоу популярной канадской исполнительницы кантри Шанайи Твейн «Shania: Still the One Live From Las Vegas», с которым она выступала в зале Colosseum отеля Caesars Palace целых два года, вплоть до декабря 2014-го.
-Съемки 22 и 23 июля 2014 года.За рип благодарим BLUE_LIFE01. Opening
-02. I'm gonna getcha good!
-03. You win my love
-04. Don't be stupid (You know I love you)(   Читать дальше...   )Жанр: Country, Country PopПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143AE18AE3BD58DBA14BD57C8175D846C9F1B1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882583   (816619) от 29.03.2015
-
-Мама-кот (2013) DVBRip [H.264]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли кот высидеть яйцо? А уж тем более научить птенца летать? Конечно же, нет! Но чего не сделаешь, если дал кому-то обещание…
-Однажды прекрасным утром кот Зорбас сидел на балконе, любовался морским пейзажем и мечтал о том, как будет жить в свое удовольствие. И тут на его голову в буквальном смысле свалилась чайка. Силы чайки были на исходе, и она взяла обещание (   Читать дальше...   )Производство: Россия, Московский театр им. Вл.Маяковского, кинокомпания "Дебют"Жанр: Мьюзикл, СемейныйРежиссер: Полина СтружковаАктеры: Алексей Дякин, Нияз Гаджиев, Макар Запорожский, Игорь Евтушенко, Максим Глебов, Вера Панфилова, Мария Фортунатова, Даша Колотинская, Владимир Гуськов, Всеволод МакаровПродолжительность: 01:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C95030CAC47C5A05CE3DBB6D65A6B78718940E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382661   (816596) от 12.05.2020
-
-Бит-квартет "Секрет" - Концерт на платформе МТС Live (2020) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-концерт группы «Секрет» который состоялся 3 мая 2020 года на площадке МТС Live. Группу «Секрет» часто называли русскими "Битлз". Пик популярности коллектива пришелся на конец 80-х годов. Песни «Алиса», «Именины у Кристины», «Моя любовь на пятом этаже» стали всенародными хитами. В 2014 году после продолжительной паузы группа «Секрет» выпустила новый (   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9DDBFD5762391784258E40D89F890EC874DBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754523   (815392) от 21.10.2021
-
-Легенды Ретро FM (2013) HDTV [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815392.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Первом канале большая премьера - международный фестиваль "Легенды Ретро FM" 201301. Лариса Долина - Темп
-02. Лев Лещенко - До свидания, Москва
-03. Алёна Апина - Ксюша
-04. Алёна Апина - ЛёхаЖанр: Концерт, PopПродолжительность: 04:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC81F0ABE6C68996D988D587AC61373B709DE515
 ```
 
 https://mybot314.ru/tekegram_catalog/

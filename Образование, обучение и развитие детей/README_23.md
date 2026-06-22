@@ -1,3 +1,107 @@
+###  Публикация: 1499895   (843921) от 04.10.2021
+
+Дэвид Уитни | Программирование для детей. Учимся создавать сайты, приложения и игры. HTML, CSS и JavaScript (2020) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаешь, программировать - это сложно? Вовсе нет! Профессор Бейрстоун и доктор Дэй (и, конечно, Эрнест) играючи научат этому всего за шесть увлекательных приключений! Создавать собственные сайты, игры или приложения с помощью HTML, CSS и javascript - это весело и увлекательно. Учитесь вместе с юными программистами из Young Rewired State, создающими технологии будущего (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EB2A97818B489983D18FE892DE7114A2FC8C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112138   (843001) от 08.03.2017
+
+Эксмо | Великие русские путешественники [15 книг] (2013 - 2015) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Великие русские путешественники» состоит из 15 книг, которые содержат тексты дневников великих русских географов и путешественников, рисунки и фотографии членов экспедиции, оригинальные авторские иллюстрации. Красочно оформленные тома серии рассказывают о том, как на протяжении столетий были открыты новые страны и целые континенты, как менялась карта мира, (   Читать дальше...   )Жанр: Биографии и Мемуары, Книги о Путешествиях, История, ГеографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25542C6D0ABE13F659552F906109F56A8CCFF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111685   (843000) от 08.03.2017
+
+Я. И. Перельман | Не верь своим глазам! (1926) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная книга Якова Исидоровича Перельмана "Не верь своим глазам!". Для школьников средних классов, студентов и учащихся техникумов, для всех желающих восполнить пробелы в своем образовании.Жанр: История, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE5568923148BB8518004B167190F7EBB572A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111642   (842925) от 08.03.2017
+
+Я. И. Перельман | Занимательная алгебра (1955) [DJVU, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не  следует  на  эту  книгу  смотреть,  как  на  легкопонятный учебник  алгебры  для  начинающих.  Подобно  прочим  моим сочинениям  той  же  серии, «Занимательная  алгебра»  —  прежде всего  не  учебное  руководство,  а  книга  для  вольного  чтения. Читатель,  которого  она  имеет  в  виду,  должен  уже  обладать некоторыми  познаниями  в  алгебре,  хотя  бы  смутно  усвоенными  или  полузабытыми.  «Занимательная (   Читать дальше...   )Жанр: История, науковедение, алгебра, математикаИздательство: ГостехиздатФормат: DJVU, PDFКачество: OCR без ошибок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117968CC7D9E0D26414FEBE851D2D4E334061F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003425   (842920) от 03.04.2016
 
 Мария Яковлева, Сергей Болушевский | 100 научных опытов для детей и взрослых в комнате, на кухне и на даче (2015) [FB2]
@@ -6,7 +110,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842920.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842472.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841527.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838387.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838201.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836314.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836151.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836060.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834574.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832468.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831821.jpg" />
 </div>
 
 
@@ -304,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831383.jpg" />
 </div>
 
 
@@ -332,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831252.jpg" />
 </div>
 
 
@@ -358,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829570.jpg" />
 </div>
 
 
@@ -384,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829062.jpg" />
 </div>
 
 
@@ -412,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825690.jpg" />
 </div>
 
 
@@ -438,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825668.jpg" />
 </div>
 
 
@@ -466,7 +570,7 @@ Hinkler Books | 365 научных экспериментов (2010) [PDF]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824991.jpg" />
 </div>
 
 
@@ -492,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824353.jpg" />
 </div>
 
 
@@ -518,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823303.jpg" />
 </div>
 
 
@@ -546,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823016.jpg" />
 </div>
 
 
@@ -572,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822831.jpg" />
 </div>
 
 
@@ -583,111 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEDAAC3DC5AA38602D4BA1B316C036034D3EBDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007720   (821400) от 15.04.2016
-
-С.И. Карантиров (сост.) | Этимологический словарь русского языка для школьников (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объясняется происхождение около 4 500 слов, входящих в лексический минимум школьника. Большинство из включённых слов имеют временную характеристику их появления в русском языке. Издательство надеется, что словарь будет полезен как школьникам, так и всем интересующимся русским языком.Жанр: Словарь русского языкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADFF4E58F1FF865C073809E417DA1CC25902772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007606   (821398) от 15.04.2016
-
-Георгий Дорофеев и др. | Алгебра. 8 класс [Учебник] (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание учебника позволяет достичь планируемых результатов обучения, предусмотренных ФГОС основного общего образования. Учебный текст разбивается на смысловые фрагменты специальными знаками и завершается вопросами, позволяющими проверить, как понято прочитанное. В систему упражнений включены такие виды де-ятельности, как анализ информации, наблюдение и рассуждение, (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EA1A5ECFAED8F5FF506AC26ED676012DC35E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007700   (821300) от 15.04.2016
-
-К.С. Горбачевич | Словарь эпитетов русского языка (2002) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпитеты играют важную роль в любом тексте, будь то роман, научный доклад или школьное сочинение. Удачный эпитет усиливает выразительность речи, делает высказывание более точным, подчеркивает индивидуальный признак предмета и ли явления. Выбор точного эпитета часто вызывает затруднения. Решить эту проблему поможет данный словарь. Он содержит почти 600 словарных статей, (   Читать дальше...   )Жанр: СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0548C1246F98369CF9EB56B4781A2A2CB7DFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007632   (821296) от 15.04.2016
-
-С. Зак | Все домашние работы к учебнику и задачнику Математика. 5 класс (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все домашние работы к УМК "Сферы". Математика. 5 класс (арифметика, геометрия). К учебнику и задачнику Е. А. Бунимовича
-Данное учебно-методическое пособие (решебник) подготовлено с учетом изменений, внесенных в новое издание учебника и задачника Е.А.Бунимовича и коллектива авторов МАТЕМАТИКА 5 КЛАСС (УМК "Сферы"), издательства "Просвещение". (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF11163060B9871BCBCD1BE605512A897F3FEDAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

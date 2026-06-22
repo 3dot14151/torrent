@@ -1,3 +1,32 @@
+###  Публикация: 1549046   (594867) от 05.05.2022
+
+Simple Plan - Harder Than It Looks (2022) [MP3|320 Kbps] <Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594867.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wake Me Up (When This Nightmare’s Over)
+2. Ruin My Life (feat. Deryck Whibley)
+3. The Antidote
+4. Million Pictures of You(   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1606F44A78B15E9990632D136360CD3BEFDCF305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549041   (594732) от 05.05.2022
 
 Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Rock>
@@ -6,7 +35,7 @@ Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594732.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Coldplay - Kaleidoscope (2017) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593924.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mono Inc. - Symphonies Of Pain: Hits And Rarities (2017) [MP3|320 Kbps] <Gothic 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593835.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Alabama Shakes - Sound And Color (2015) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593482.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Silverstein - Misery Made Me (2022) [MP3|320 Kbps] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593312.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Aranda - Aranda (2008) [OGG|496-533 кб/с]<Alternative, Modern Rock, Funk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591956.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Maren Elise - Mad Girl (2015) [MP3|320 кб/с]<Alternative Baroque Pop, Experim
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591900.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Tame Impala - Currents (2015) [MP3|320 кб/с]<Psychedelic Rock, Psychedelic Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591810.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Poets of the Fall - 41 Release (2004-2022) [MP3|320 Kbps] <Alternative rock, Sof
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591557.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Alanis Morissette - Havoc and Bright Lights (2012) [MP3|320 кб/с]<Pop/Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591358.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Ratatat - Magnifique (2015) [MP3|320 кб/с]<Alternative, Electronic Rock, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590393.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Veruca Salt - Ghost Notes (2015) [MP3|320 кб/с]<Alternative Rock, Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589971.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Tamara Williamson - Sister Mother Daughter Wife (2015) [MP3|320 кб/с]<Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589600.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Rachel Sermanni - Tied to the Moon (2015) [MP3|320 кб/с]<Alternative, Contemp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589598.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Ego Likeness - When The Wolves Return (2015) [OGG|453-540 кб/с]<Alternative, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589120.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Climates - 1 альбом + 1 EP + 2 Singles (2012-2014) [MP3|192-320 кб/с]<M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588074.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Skillet - Unleashed (2016) [MP3|320 Kbps] <Alternative Rock, Christian Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587215.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Coheed and Cambria - Vaxis II: A Window of the Waking Mind (2022) [MP3|204-230 k
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585779.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Nova Rise - Nova Rise (2015) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584936.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Celldweller - End Of An Empire (Chapter 04: Death) (2015) [MP3|320 кб/с]<Indu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584841.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Marilyn Manson - The Remix Collection (2014) 2CD [MP3|320 кб/с]<Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584771.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Gomez - 10 albums (1999-2011) [MP3|320 kbps]<Rock, Britpop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584127.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Tempo Bay - Tempo Bay (2016) EP [MP3|320 Kbps] <Indie Rock, Alternative Rock, Da
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583409.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Audra - Going to the Theatre (2002) 2CD, 20th Anniversary Edition, 2022, Remaste
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582963.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Wage War - 8 Relises (2015-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582962.jpg" />
 </div>
 
 
@@ -707,41 +736,6 @@ Wage War - 8 Relises (2015-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1295C325E001567EC63A28D57E40EE1337457AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357562   (580962) от 07.07.2011
-
-Random Hand - Seething is Believing (2011) [MP3|320 kbps]<Ska-core>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580962.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tales Of Intervention (2:41)
-2. Sons Of Robots (2:19)
-3. Not A Number (4:33)
-4. Three From Six (3:16)
-5. Floating Ghosts (4:14)
-6. Bones (3:07)
-7. Due To Circumstance (2:32)
-8. Start The Fans (2:20)
-9. Find What's Out There (3:30)
-10. Henchmen (3:43)(   Читать дальше...)Жанр: Ska-coreПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E089C74602E6D42AEF733435AFC607BE026BBD79
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1711931   (61117) от 01.04.2024
+
+Photomator for Mac 3.3.4 Patch [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photomator — это мощный инструмент для редактирования фотографий, предлагающий невероятные инструменты для улучшения, ретуширования и управления вашими фотографиями. Он включает в себя обширную коллекцию передовых настроек цвета, автоматический выбор с помощью искусственного интеллекта, мощные функции пакетного редактирования, инструменты клонирования и восстановления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2024Разработчик: © 2024 Pixelmator TeamПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280B5213D96C09A21128A297F66CD8974B01DFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712499   (61024) от 02.04.2024
+
+Adobe InDesign 2024 v.19.3.0 U2B [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для настольных систем Adobe InDesign представляет собой универсальное приложение для публикации контента, которое обеспечивает точный контроль над дизайном и типографикой на уровне пикселов. Скачав портативное приложение на вы сможете создавать стильные выразительные страницы для печати, планшетных ПК и других экранов. Удобная адаптация макетов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2024Разработчик: © Adobe SystemsПоддерживаемая ОС: macOS 11.0 и новееЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44501C69CDD2E12C136CB95A62B2348CB151F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712522   (60998) от 02.04.2024
 
 TechSmith Snagit for Mac 2024.2.3 [Multi]
@@ -6,7 +58,7 @@ TechSmith Snagit for Mac 2024.2.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60998.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Adobe Photoshop 2025 26.10.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4261.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Topaz Photo AI 4.0.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3040.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Capture One Pro 16.6.6.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2257.jpg" />
 </div>
 
 

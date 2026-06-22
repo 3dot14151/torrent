@@ -6,7 +6,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191312.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191218.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Eiga Yuru Camp | Лагерь на свежем воздухе (фильм) [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190827.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190820.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190623.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190616.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Saint Seiya | Рыцари Зодиака [1986, TV, 114 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190062.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Exception | Ошибка [2022, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189901.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189755.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189564.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187785.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187707.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187697.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187542.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187498.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187418.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187401.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187368.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185954.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Azur Lane: Queen's Orders | Лазурный путь: Приказы корол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185920.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу (2022) [2022, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185900.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185877.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Space Runaway Ideon | Densetsu Kyojin Ideon | Космический бегле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185859.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185856.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185821.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185341.jpg" />
 </div>
 
 

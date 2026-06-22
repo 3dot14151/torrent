@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1869489   (1068417) от 06.05.2026
+
+Desperados 2: Cooper's Revenge (2006) [En] (1.01) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1883 год. Дикий Запад. Пустынная глушь, жителей которой губит алчность и развращенность. Пройдите вместе с Джоном Купером по следу индейской легенды и пролейте свет на тайны его собственной биографии. Чтобы выжить в череде захватывающих приключений на Диком Западе, вам придется просчитывать все свои шаги и пускать в ход оружие.Тип издания: LicenseРазработчик: Spellbound EntertainmentЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B4E9267B9A4FE6ECBDDC0F37F5AB21E42432F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869488   (1068407) от 06.05.2026
 
 Desperados 2: Cooper's Revenge (2006) [Ru] (1.1) License
@@ -7,7 +33,7 @@ Desperados 2: Cooper's Revenge (2006) [Ru] (1.1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068407.jpg" />
 </div>
 
 
@@ -25,6 +51,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869486   (1068213) от 06.05.2026
+
+Desperados: Wanted Dead or Alive / Desperados: Взять живым или мертвым (2001) [Ru/Multi] (1.0.2) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Мексико, 1881 год - время, когда плохие парни стали невыносимо плохими, а хорошие парни продолжали исполнять свой долг. У всех на устах очередное громкое преступление - головорезы из банды Эль-Диаболо ограбили поезд. Вам предстоит отправиться за ними в погоню. Во что бы то ни стало негодяев надо настичь и отдать в руки правосудия - живыми или мертвыми!Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF1BB4C668E20DEAF75FEE81E4C7DBBDFE5DD5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869485   (1068209) от 06.05.2026
+
+Desperados: Wanted Dead or Alive / Desperados: Взять живым или мертвым (2001) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Мексико, 1881 год - время, когда плохие парни стали невыносимо плохими, а хорошие парни продолжали исполнять свой долг. У всех на устах очередное громкое преступление - головорезы из банды Эль-Диаболо ограбили поезд. Вам предстоит отправиться за ними в погоню. Во что бы то ни стало негодяев надо настичь и отдать в руки правосудия - живыми или мертвыми!Тип издания: LicenseРазработчик: Spellbound StudiosЖанр: СтратегииЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9249DEDD15ACC7F38AAF539CA3FFC25694D3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867484   (1066972) от 25.04.2026
 
 Gangland: Trouble in Paradise (2004) [Ru] (1.4) License
@@ -33,7 +111,7 @@ Gangland: Trouble in Paradise (2004) [Ru] (1.4) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066972.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050354.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050268.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049407.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Jagged Alliance 2: Wildfire (2005) [Ru/Multi] (6.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040671.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ UFO: Aftermath / UFO. Нашествие (2003) [Ru/Multi] (1.4 languages 2) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032413.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ M.U.L.E. / MULE (1983) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026678.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Shadow Watch [Ru] (P) 2000
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000372.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Police Quest: SWAT 2 (1998) [En] (1.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911789.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Heroes of Might and Magic IV: Complete (2004) [Multi] (3.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911500.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890531.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824326.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822192.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816482.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ UFO: Aftershock / UFO: Возмездие (2005) [Ru/Multi] (1.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800531.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.21.2.1256) License CODEX
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788280.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Heroes of Might and Magic V (2006) [Ru] (1.6/2.1/3.1) Repack xatab [Gold Edition
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787903.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768562.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Worms 4: Mayhem / Червячки: 4 Погром [Ru] (L) 2005
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763767.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Praetorians (2003) [En] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747477.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662654.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656477.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D5873E6298D6E688CEB3DCA93B3228937A763C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108398   (636781) от 03.04.2019
-
-X-COM: Apocalypse (1997) [En] (1.00) License GOG
-
->>След.
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зло нависло сегодня над городом... Землю опустошили людская невоздержанность, грязные войны и вторжение инопланетян. Жителей мира согнали в огромные города, первым из которых стал Мегапрайм. 2084 год. Утопия, а вместе с ней и социальный порядок в Мегапрайме, рухнули, в городе бушуют мятежи. Жутковатые инопланетяне терроризируют город. НЛО роями пролетают через пространственные (   Читать дальше...   )Тип издания: LicenseРазработчик: Mythos Games и MicroProseЖанр: Strategy (Manage, Busin., Real-time, Turn-based, Tactical), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD81764A5376E4541EB10270BB41D67F6E6794E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296254   (613296) от 16.04.2019
-
-Massive Assault (2003) [En/Fr] (1.2.204) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возьмите на себя командование силами Союза Свободных Наций и уничтожьте Темную Лигу на одной из шести удаленных планет. Повстанцы решили захватить Землю, начав с завоевания космических колоний, поставляющих важнейшие энергетические ресурсы. Война за мировое господство развернулась на земле, в море и в воздухе. Имея секретных союзников, вы можете открывать войска (   Читать дальше...   )Тип издания: LicenseРазработчик: Wargaming.netЖанр: Strategy (Turn-based, Wargame), 3DЯзык озвучки: ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853D61060B4C4F0AD57471DF4B140504FF85D370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296272   (613187) от 16.04.2019
-
-Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги (2005) [En] (2.0.164) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война между ССН и Темной лигой пока не закончена. Еще недавно казалось, что силы Темной лиги разбиты и ее войска отступают по всем фронтам. После блестящих побед ССН при Новом Раю и Гордой Ржави Лига ушла в подполье и вернулась в свои мрачные секретные лаборатории, где и разработала новое чудовищное оружие. Темная лига снова вступает в игру! Удары супероружия обрушились (   Читать дальше...   )Тип издания: LicenseРазработчик: Wargaming.netЖанр: Strategy (Turn-based, Wargame), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23168FED878019504FF5313C3C4CC8FBAD7AE627
 ```
 
 https://mybot314.ru/tekegram_catalog/

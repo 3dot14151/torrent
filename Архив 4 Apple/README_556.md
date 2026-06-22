@@ -1,3 +1,58 @@
+###  Публикация: 1651738   (221299) от 07.08.2023
+
+Professional Recorder & Editor 6.3.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Точность, простота и эффективность — вот три правила, реализованные в нашем профессиональном рекордере. Это приложение предлагает вам только самые необходимые функции, которых вполне достаточно для качественного редактирования. Элегантный интерфейс и мощные эффекты помогут вам открыть новые горизонты звука.
+Просто загрузите аудиофайл, и вы увидите его в виде волны. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D3000A505F5F6AE16BF713F152E99E2EA5569C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651695   (221289) от 07.08.2023
+
+Downie 4 v.4.6.24 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 07.08.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCB5F361CBCC7F62D0BA6485D9B5E15F029C562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342856   (221283) от 04.12.2019
 
 Sketch 61 [En]
@@ -6,7 +61,7 @@ Sketch 61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221283.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Adobe Photoshop 2021 v22.0.1 + Neural Filters [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221150.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ MacCleaner 3 PRO 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221122.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ PDF Expert 3.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221103.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ Get Backup Pro 3 v3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221023.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ NCH WavePad Mater 11.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221019.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ Studies 1.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221000.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Adobe XD 24.4.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220993.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Chaos Control Premium 1.10.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220988.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ Elmedia Player Pro 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220944.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ PDFpen Pro 12 v12.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220888.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ Photomatix Pro Standalone Program 6 v6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220843.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ VueScan Pro 9.5.63 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220813.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Pacifist 3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220801.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220728.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220521.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ Adobe Premiere Rush v1.5.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220468.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ Adobe InDesign 2020 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220453.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ Total Video Converter Pro 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220397.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ CrossOver 21.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220380.jpg" />
 </div>
 
 
@@ -542,7 +597,7 @@ Boom 2 v1.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220354.jpg" />
 </div>
 
 
@@ -569,7 +624,7 @@ CleanMyMac X 4.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220353.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ OmniGraffle Pro 7.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220301.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ Feeder 4 v.4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220276.jpg" />
 </div>
 
 
@@ -635,60 +690,6 @@ Feeder - это полнофункциональное приложение дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D5885AC6D109F724D81F9193359D128BD8572B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084272   (220268) от 18.12.2016
-
-Capto – Screen Recording, Screen Captures, and Editing 1.2.3 [Multi]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capto (was Voila) - профессиональная программа для захвата видео и изображений с рабочего стола.
-Приложение от Французских разработчиков прошло тернистый путь, от простого менеджера скриншотов, до полнофункционального редактора и каталогизатора. Менеджеры скриншотов относятся к узкоспециализированным программам для Mac, которые востребованы лишь у небольшого числа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Global Delight Technologies Pvt. LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324419633B9549E1512CA39A36F02610BE719020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425570   (220239) от 21.11.2020
-
-Capture One 21 Pro Beta 5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Phase OneПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса приложения зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A2FF96256D39B5DDD59141473A0B674DFF1798
 ```
 
 https://mybot314.ru/tekegram_catalog/

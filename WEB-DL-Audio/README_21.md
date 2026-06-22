@@ -6,7 +6,7 @@ Electric Gypsy - Dragoons Wander At Night (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117371.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117364.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117363.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Boris Blank (Yello) - Resonance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117287.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Love Romance Music Zone, Music to Relax in Free Time - Sexy Massage for Valentin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117215.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117204.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AC/DC - AC/DC: Live in Maryland, 1979 (2024) (Live) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117196.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ UMC - 80s in Metal (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117176.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy O
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117173.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Art Of Anarchy - Let There Be Anarchy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117167.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Manga Saint Hilare & MoreNight - Everything Is Under Control (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117162.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ David Aubaile - Trafiquants (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117149.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Idles - Tangk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117137.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jazz Sax Lounge Collection, Sexual Music Collection, Smooth Jazz Music Academy -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117062.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Romantic Jazz Music Club, Erotic Moods Music Club - Sensual Date Night: Set the 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117038.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Serena Forni - Rhythmic Nocturne (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117026.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jazz Instrumental Music Academy, Calming Jazz Relax Academy - Vintage Elegance: 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117023.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117006.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117005.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117001.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116891.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Durbin - Screaming Steel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116888.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116873.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116869.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116843.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Amba Shepherd - Superrlativ Collection II (2024) [FLAC 16/44.1; 24/44.1; 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116836.jpg" />
 </div>
 
 

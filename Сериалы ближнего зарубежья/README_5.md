@@ -1,3 +1,29 @@
+###  Публикация: 1377253   (853142) от 21.04.2020
+
+Дорога домой (2019) WEB-DLRip [H.264] (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853142.jpg" />
+</div>
+
+
+###  Подробнее
+
+В спокойную жизнь врача-кардиолога Антона Калинина врывается девушка по имени Алиса. Молодая стриптизерша умоляет мужчину о помощи: один из клиентов обвинил ее в краже огромной суммы денег, и теперь ее хотят убить бандиты. Антон, проникшись проблемой девушки, помогает Алисе и отвозит ее в родной город...Производство: Украина | Кинокомпания "УПС"Жанр: мелодрамаРежиссер: Павел ТупикАктеры: Александр Соколовский, Анастасия Евграфова, Александр Наумов, Инна Мирошниченко, Анна Сырбу, Борислав Борисенко, Полина Василина, Олег Волощенко, Василий Сивохоп, Виктор Жданов и др.Язык озвучки: РусскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79976E245FD99B70D22F29FC8A9AB2B5C83A623D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377049   (847548) от 24.04.2020
 
 Консультант / Эксперт (2020) WEB-DLRip [H.264] (сезон 1, серии 1-16 из 16)
@@ -6,7 +32,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847548.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842796.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839813.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839684.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839068.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835918.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835917.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835907.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835903.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832617.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826605.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826508.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824946.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824229.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824116.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823338.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822357.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822264.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820550.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815059.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813690.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807632.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801788.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801449.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801150.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04ECF68DF40162E963506348161ED4731A26898C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120384   (801124) от 01.04.2017
-
-Две жизни (2016) SATRip [H.264] (серии 1-12 из 12)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анжела  всю жизнь боялась и ненавидела своего отца Вадима Хроманского , влиятельного и богатого бизнесмена с криминальным прошлым. В детстве она стала случайным свидетелем ужасной гибели своей матери, в которой она винит отца. Хотя сейчас у Анжелы есть все, что она может пожелать - роскошный особняк, дорогая машина и огромный счет в банке, - обеспеченная жизнь не (   Читать дальше...   )Производство: Украина / FILM UAЖанр: криминал, мелодрамаРежиссер: Саша КириенкоАктеры: Елена Радевич, Виталий Кищенко, Кирилл Жандаров, Нодар Джанелидзе, Сергей Радченко, Алексей Гришин, Яна Соболевская, Олесь Кацион, Святослав Жмурко, Мальвина Салийчук и др.Язык озвучки: русскийПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAF60DD9A40E8E9A2254294B03AA8B7A42E2D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

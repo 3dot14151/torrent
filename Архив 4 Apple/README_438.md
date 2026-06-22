@@ -1,3 +1,59 @@
+###  Публикация: 1420042   (335818) от 30.10.2020
+
+FontExplorer X Pro 7 v7.2.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335818.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontExplorer X Pro предоставляет пользователю всевозможные средства и инструменты, которые позволяют проводить любые операции: сортировать старые шрифты, искать и импортировать новые, проводить выборку из любимых шрифтов и множество других функций.
+
+Программа интересна не только своими организационными возможностями, а они действительно неплохи и включают в себя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2020Разработчик: Linotype Corp., Woburn, MassachusettsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7BFC02DCFFFDA0DDBF985E52CCDBCADDE96121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420048   (335705) от 30.10.2020
+
+Wondershare UniConverter 12.0.6.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
+
+Самое быстрое универсальное решение для развлечений с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1AD8B1D8555566E480B742926507C34DD1A6479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181111   (335594) от 06.11.2017
 
 Debit & Credit - Учет финансов 2.5.1 [Multi/Ru]
@@ -6,7 +62,7 @@ Debit & Credit - Учет финансов 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335594.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Downie 3.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335591.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ VueScan Pro 9.5.91 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335471.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ Money Pro 1.8.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335460.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ MiniTube 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335366.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ Disk Drill Enterprise 4.0.130 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335355.jpg" />
 </div>
 
 
@@ -170,7 +226,7 @@ Beyond Compare 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335293.jpg" />
 </div>
 
 
@@ -199,7 +255,7 @@ Downcast 2.9.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335123.jpg" />
 </div>
 
 
@@ -227,7 +283,7 @@ PullTube 1.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335122.jpg" />
 </div>
 
 
@@ -253,7 +309,7 @@ Artstudio Pro 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335121.jpg" />
 </div>
 
 
@@ -279,7 +335,7 @@ Swinsian 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335120.jpg" />
 </div>
 
 
@@ -308,7 +364,7 @@ Amadeus Pro 2.6.2 (2217) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335119.jpg" />
 </div>
 
 
@@ -334,7 +390,7 @@ JixiPix Spektrel Art 1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335118.jpg" />
 </div>
 
 
@@ -360,7 +416,7 @@ VirtualHostX 8 v8.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335117.jpg" />
 </div>
 
 
@@ -388,7 +444,7 @@ Folder-Factory 5.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335115.jpg" />
 </div>
 
 
@@ -417,7 +473,7 @@ MacX MediaTrans 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335006.jpg" />
 </div>
 
 
@@ -445,7 +501,7 @@ RightFont 5 v5.7.0 (2726)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335005.jpg" />
 </div>
 
 
@@ -472,7 +528,7 @@ JixiPix Hand Tint Pro 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335003.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ iMazing 2.12.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334939.jpg" />
 </div>
 
 
@@ -525,7 +581,7 @@ Macsome iTunes Converter 2.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334856.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ Ummy Video Downloader 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334846.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ Commander One PRO Pack 2 v2.3 (3105) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334845.jpg" />
 </div>
 
 
@@ -607,7 +663,7 @@ SpamSieve 2.9.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334711.jpg" />
 </div>
 
 
@@ -635,7 +691,7 @@ Red Giant Magic Bullet Suite 12.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334710.jpg" />
 </div>
 
 
@@ -646,59 +702,6 @@ Magic Bullet Suite представляет собой набор из вось�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F69B130CCFC0733141F12CF117510DDCE934CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258780   (334688) от 31.10.2018
-
-Scrutiny 8 v8.1.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA8A570A0F1DC1FC9E1B7C749FF0A9FAD6B8BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258607   (334598) от 31.10.2018
-
-PDFelement Express 0.6.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и простой редактор PDF для Mac. Если вы хотите читать, редактировать или комментировать PDF-файлы, у PDFelement Express есть все, без ненужного наполнителя. Создавайте потрясающие документы и четко выражайте свои идеи. PDFelement Express для Mac предлагает бесшовные прокрутки. Независимо от того, с каким типом документа вы работаете, есть опция просмотра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2018Разработчик: Wondershare Technology Corp.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F05217473B72832FE23E0137EC3758AAB82478
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1854531   (1057672) от 20.02.2026
+
+Juiced (2005) [En] (1.0) License
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная цель игры - завоевать уважение восьми гоночных команд и всю территорию этих команд. Для этого нужно участвовать в уличных гонках. По задумке, для участия в них игрок должен иметь свою машину и свою команду - для командных заездов. Для участия во всех видах гонок нужно иметь команду, машины из каждого класса и уважение всех команд. Действие игры происходит (   Читать дальше...   )Тип издания: LicenseРазработчик: Juice GamesЖанр: Аркады, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D932C813FCEBF45E7DD3812069A6DF280A08D958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851050   (1054837) от 31.01.2026
+
+TRAIL OUT (2022) [Ru/Multi] (1.1/dlc) License GOG [Complete Edition]
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на фестиваль TRAIL OUT! Бесшабашные гонки по всему миру! Аварии, взрывы, разрушения и бесконечные крики водителей! Вас ожидают безбашенные гонки в разных уголках планеты, ваша главная цель дожить до финиша и взять главный кубок фестиваля! Аварии машин, крики вылетающих водителей, хайп от фанатов и невиданное разрушение всей трассы - всё это ожидает (   Читать дальше...   )Тип издания: LicenseРазработчик: GOOD BOYSЖанр: Экшены, Казуальные игры, Инди, ГонкиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC29E32E205FC75EB97F2016762573D92E606148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847930   (1052425) от 15.01.2026
+
+JDM: Japanese Drift Master (2025) [Ru/Multi] (1.2.157.1/dlc) Repack FitGirl
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте родину дрифта и погрузитесь в культовую автомобильную культуру Японии!
+JDM: Japanese Drift Master сочетает в себе реалистичную, тщательно выверенную физику в симуляторе, который работает так же плавно на контроллере, как и на гоночном оборудовании. Пройдите сотни километров дорог с открытым миром и откройте для себя сюжетные события и квесты. Оттачивайте (   Читать дальше...   )Тип издания: RepackРазработчик: Gaming FactoryЖанр: Казуальные игры, Гонки, Симуляторы, СпортЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9523199A7B713F0A636888473D29EF8A3869848B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846797   (1051625) от 09.01.2026
 
 Assetto Corsa Competizione (2019) [Ru/Multi] (1.10.4/dlc) Repack seleZen [VR]
@@ -6,7 +85,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10.4/dlc) Repack seleZen [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051625.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050537.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050304.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.874931) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050160.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ The Crew (2014) [Ru/Multi] (1.2.0.0/dlc) Repack dixen18 [Unlimited]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049532.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Heading Out (2024) [Ru/Multi] (1.047) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048768.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ F1 2021 (2021) [Ru/Multi] (1.18.1/dlc) Scene voices38
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048754.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ NASCAR 25 (2025) [En] (1.0/dlc) Scene Rune [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048509.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ First Racer (2023) [Ru/Multi] (1.1.9) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046859.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (1.0/dlc) License FLT
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044359.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0/dlc) License Razor1911
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041778.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.39.3.17s/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041235.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Street Legal Racing: Redline (2016) [En] (2.3.1/dlc) Scene TiNYiSO
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037964.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ WRC 9 FIA World Rally Championship (2020) [Ru/Multi] (1.0upd4/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036757.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Flashout 3 (2022) [Ru/Multi] (1.0.8/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035796.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034729.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.7.0/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032149.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.7.0/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031488.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Wreckfest (2018) [Ru/Multi] (1.27.0990/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031234.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ Total Immersion Racing / Жажда Скорости (2002) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029894.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ DiRT Rally 2.0 (2019) [Multi] (1.17.0/dlc) Repack  xatab [Super Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029431.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028138.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ Mini Motor Racing X (2020) [Multi] (1.3.1.2103021500) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028129.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ Mini Motor Racing X – аркадные гонки на микромашинк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56BED33E53EFC8304790A152BD274CA7198F52FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452864   (1027271) от 08.03.2021
-
-RIDE 4 (2020) [Ru/Multi] (2021.02.08/dlc) Repack xatab
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы сыграть в лучшую игру, о которой может мечтать любитель мотоциклов? RIDE 4 разожжет в вас дух соревнования благодаря сотням мотоциклов, десяткам треков и абсолютно новому уровню реализма. Выберите один из сотен мотоциклов с официальной лицензией и прокатитесь по десяткам невероятно детализированных треков со всего мира! С помощью чертежей CAD, лазерного (   Читать дальше...   )Тип издания: RepackРазработчик: Milestone S.r.l.Жанр: Гонки, Симуляторы, Спортивные игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08AC3505AC547F1433C8CB6CE68B92DD08237CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453279   (1026998) от 10.03.2021
-
-Arizona Derby (2019) [En] (2.0.5 C/dlc) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте бескрайние миры «Аризонского дерби» (Arizona Derby). Погрузитесь в захватывающие дух испытания бездорожья с множеством настроек и уникальных трюков. Развивайте, улучшайте и настраивайте свою машину, побеждайте членов банд и боссов на исключительных трассах.Тип издания: RepackРазработчик: Falcon InteractiveЖанр: Racing, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A39AB175B8C0B8B8DEA44CB90CE2342F6B9AE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313892   (1025874) от 17.03.2021
-
-RDS - The Official Drift Videogame (2019) [Ru/En] (1.0/dlc) Repack xatab
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025874.jpg" />
-</div>
-
-
-###  Подробнее
-
-RDS - The Official Drift Videogame - это официальная лицензионная версия Российской Дрифт Серии в киберспортивном мире! Станьте участником профессиональных соревнований по дрифту на известных трассах. Соревнуйтесь с реальными игроками по всему миру. Прочувствуйте реалистичную физику автосимулятора нового поколения, получившую в игре свежие улучшения и дальнейшее (   Читать дальше...   )Тип издания: RepackРазработчик: Drift Physics CrewЖанр: Гонки, Симуляторы, Спортивные игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EB2E2D6DD38390582FD2F818AEB9AD9705C786
 ```
 
 https://mybot314.ru/tekegram_catalog/

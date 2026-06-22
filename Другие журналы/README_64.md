@@ -1,240 +1,3 @@
-###  Публикация: 1180986   (337894) от 05.11.2017
-
-Журнал | Storica National Geographic [Italy] №11 (103) (ноябрь 2017) [PDF] [It]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337894.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic Italia e la rivista che ogni mese racconta le meraviglie del nostro pianeta con reportage esclusivi, fotografie mozzafiato e articoli sempre nuovi e sorprendenti. L’obiettivo e condurre il lettore nei piu reconditi segreti della natura, nei misteri della vita animale, tra popolazioni lontane e affascinanti, invitandolo ad apprezzare e a prendersi (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FCE7F6711A103B27DD8E53A25DC888B6D3E931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840050   (337785) от 11.11.2014
-
-Журнал | Тайны ХХ века [Украина] №43 (октябрь 2014) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C046912D69F50700BE1D4FDC389FA48198807D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954894   (337623) от 09.11.2015
-
-Журнал | Вооруженные силы стран мира №113 (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA216BDADDB49D2028A527F0EAED0D2D21FF5EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954928   (337621) от 09.11.2015
-
-Газета | Золотая коллекция АН. Тайны Вселенной №10 (октябрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда медицина бессильна, люди идут за помощью к целителям. Этот номер издания посвящен людям с феноменальными способностями, которым подвластны самые серьезные заболевания. Вы узнаете о самых знаменитых из них, об их жизни, личных трагедиях, способах леченияЖанр: Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847606BD851387597A32F41FFE43B801767C8C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954926   (337496) от 09.11.2015
-
-Газета | Золотая коллекция АН. Тайны Вселенной №11 (ноябрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема этого номера издания - тайны жизни во Вселенной. Вы узнаете о взглядах ученых на перспективы обнаружения различных форм жизни, как в нашей Солнечной системе, так и на экзопланетах у других звезд. Ознакомитесь с гипотезами о распространении "семян" жизни по всей Вселенной, версией о предполагаемых останках инопланетян. И с другой крайне любопытной информацией (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B359B423B1A72ECFB4FB1A640590884FF0B8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395405   (336330) от 17.11.2011
-
-Промо-серия | Официальный Star Wars архив №1-5 [2011] [PDF] Обновлено 17.11.2011
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя полную и захватывающую историю мира Star Wars.
-Прошло уже 23 года после уничтожения второй «Звезды Смерти». Новая республика, возвысившаяся на короткую эпоху тревожного мира, сталкивается с самой большой в своей истории угрозой со стороны юужань-вонгов, захватчиков из другой галактики. В эти беспокойные времена еще более важным, чем когда-либо ранее, (   Читать дальше...   )Жанр: ФантастикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D59DBCA2B82A0DC50961D91D98C9547E86107AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074762   (336038) от 20.11.2016
-
-Журнал | Психология и Я №11 (69) (ноябрь 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – взаимоотношения между мужчиной и женщиной, родителями и детьми. С помощью профессиональных психологов и жизненного опыта самих читателей Вы найдете ответы на сложные жизненные вопросы. В каждом номере Вас ждут советы и рекомендации, которые помогут (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA5C6C1954413301A322F892C2423A992B7F5FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074686   (335666) от 20.11.2016
-
-Подшивка газет | English Learner's Digest №1-24 (2007) [PDF] [En]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайджест для изучающих английский язык. В каждом номере вы найдете интересный материал для чтения, оригинальные задания на изучение и закрепление грамматических правил и идеоматических выражений, веселые упражнения для малышей, анекдоты и смешные истории и многое другое.Жанр: Изучение иностранных языковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB486069A9E074BDF1FFBEAC9D6A2B2C24C1F6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181275   (335601) от 06.11.2017
-
-Журнал | Medioevo Misterioso [Italian] №7 (2016) [PDF] [It]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335601.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Medioevo Misterioso" - Таинственное средневековье.
-Журнал посвящен средневековой медицине: что в средние века знали о теле человека? как интерпретировали симптомы и болезни? Как делали лекарства?
-Об этом и многом о мире средневековой медицины.Жанр: Исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59862280323C58EEBC47E6A6111E5664E6A06C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579319   (332140) от 30.09.2022
 
 Журнал | Таинственные истории №20 (2022) [PDF]
@@ -243,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332140.jpg" />
 </div>
 
 
@@ -269,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331782.jpg" />
 </div>
 
 
@@ -295,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331211.jpg" />
 </div>
 
 
@@ -321,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330378.jpg" />
 </div>
 
 
@@ -347,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330343.jpg" />
 </div>
 
 
@@ -373,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329885.jpg" />
 </div>
 
 
@@ -399,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328976.jpg" />
 </div>
 
 
@@ -425,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328973.jpg" />
 </div>
 
 
@@ -451,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328357.jpg" />
 </div>
 
 
@@ -478,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325842.jpg" />
 </div>
 
 
@@ -504,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325805.jpg" />
 </div>
 
 
@@ -530,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325189.jpg" />
 </div>
 
 
@@ -556,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323925.jpg" />
 </div>
 
 
@@ -583,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323830.jpg" />
 </div>
 
 
@@ -609,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323829.jpg" />
 </div>
 
 
@@ -635,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323824.jpg" />
 </div>
 
 
@@ -661,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323722.jpg" />
 </div>
 
 
@@ -673,6 +436,243 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12034026CF235E75075BA9C32A74F089DAFD2124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075556   (321284) от 22.11.2016
+
+Газета | Обереги для счастья в новом году №16 (120) (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас преследуют неудачи? Нет денег? Муж изменяет? Хотите найти новых друзей?
+Об этом и многом другом на страницах газеты.
+Сканирование и обработка Алёнка 007.Жанр: Магия, приворот, заговор, эзотерикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D08DA4154633607A80FEE0460C6C5E534590E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075579   (321164) от 22.11.2016
+
+Газета | Столетник №22 (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно ли вы оценивали свое жизненное пространство критическим взглядом? Попробуйте посмотреть на каждый уголок квартиры так, как будто вы пришли в гости к самим себе. Наверняка вы обнаружите уголки, которым нужны ваши заботливые руки. Наведите порядок в доме - и вы обнаружите, как посветлело на душе. Ведь ваш дом - продолжение вашей личности! И он точно, как и вы, (   Читать дальше...   )Жанр: Народная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2213EA3D516E46F4D337A62ECA76B95D4C7520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844109   (321081) от 24.11.2014
+
+Подшивка журналов | Hot English Magazine №143-151 (апрель-декабрь 2014) [PDF, MP3] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321081.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Hot English" – это ежемесячный журнал для учителей и изучающих английский. Журнал посвящен современному разговорному английскому языку в веселом и легком для освоения формате. Каждый журнал сопровождается аудио CD, чтобы читатели также могли прослушивать статьи, представленные носителями английского языка, в различных акцентах. Каждый выпуск журнала также (   Читать дальше...   )Формат: PDF, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FC43A547CE83ECA66CA6773C0D13C92AA19454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075550   (321012) от 22.11.2016
+
+Журнал | Военная история №44/С (2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематическое издание для всех интересующихся развитием военного дела от древних времен до наших дней. Масса интересного и познавательного не только для тех, кто любит историю. Знаменитые крепости, великие полководцы, ручное оружие, женщина на войне.Жанр: Военное дело, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C368BD2F7B286AF4CD869CF19585577A0442F10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075536   (320589) от 22.11.2016
+
+Журнал | Мир фантастики №12 (декабрь 2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320589.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мир фантастики» единственное издание в России, посвященное фантастике и фэнтези в самом широком смысле. В фокусе внимания — книги, кинофильмы, игры и все самое интересное в этой области.Жанр: Журнал фантастикиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2AE9F2B3ADD5DD89A40807A6EE20344F239AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318474   (319412) от 29.11.2012
+
+Подшивка | РБК  [2011-2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «РБК» – самый успешный российский деловой журнал. За неполных четыре года работы нам удалось найти своего читателя (по данным TNS, каждый номер «РБК» читает в среднем 800 тыс. человек) и сформировать команду профессионалов, которая трудится для того, чтобы каждый номер был интересным и непохожим на предыдущие.
+О чем мы пишем? Почти обо всем. Кто-то может усмехнуться, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957944   (319274) от 23.11.2015
+
+Подшивка журналов | World of Firepower (2015) [PDF] [EN]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о новинках оружейного рынка и амуниции. Соревнованиях, тюнинге оружия, советы по обращению.Жанр: ОружиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A01199A5447F3A666F2EC7FAF9745C9F74EBE1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180396   (318790) от 09.11.2017
+
+Подшивка журналов | Таинственные истории (2016-2017) [PDF, DJVU] [Обновлено 09.11.2017]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё самое таинственное и необычное из жизни простых людей, нас с вами. Рассказ от первого лица и немного о таинственном в биографиях знаменитых людей.Жанр: Популярный журналФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A2C89F84EBC51EDF4810E9E0BC5AF94854C382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582746   (318617) от 11.10.2022
+
+Журнал | Тайны СССР №2 (2022) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318617.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны СССР» — журнал о загадках советской истории. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C2E9889654E45D39C74B3BD1692E503652B9AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

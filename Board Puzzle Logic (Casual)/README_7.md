@@ -1,3 +1,29 @@
+###  Публикация: 1735141   (50876) от 06.07.2024
+
+KoroNeko (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50876.jpg" />
+</div>
+
+
+###  Подробнее
+
+KoroNeko – откройте двери для нашей предельно расслабляющей головоломки! Исследуйте кавайный мир, познакомьтесь с милыми персонажами и просто хорошо проведите свое время за успокаивающими путешествиям. Сможете ли вы помочь братьям и сестрам освободиться от гнета коварной ведьмы? Скорее возьмите эту великолепную банку с желе, чтобы катить ее как можно дольше и освободить (   Читать дальше...   )Тип издания: SceneРазработчик: NomadroidЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Английский, Немецкий, Арабский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Арабский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBEBE77D1BDE8195C039B2CB1006F8FA601457C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736363   (50269) от 12.07.2024
 
 Tabletop Simulator (2015) [En] (13.1.1/dlc) Scene Doge [VR]
@@ -6,7 +32,7 @@ Tabletop Simulator (2015) [En] (13.1.1/dlc) Scene Doge [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50269.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ World of Goo (2008) [Ru/Multi] (1.53a) Repack dixen18
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47466.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Dungeons & Degenerate Gamblers (2024) [Ru/Multi] (1.0a) Scene TinyISO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46865.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Meowsterpiece Museum (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46435.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ LightRay (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45675.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ LightRay (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44853.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Kanji Legends (2024) [En] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43701.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41735.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39056.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Tetris Forever (2024) [Multi] (1.00) Scene Skidrow
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37236.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Fritz 19 (2023) [En] (19.3) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36907.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Chess King 24 (2024) [Ru/Multi] (24.0.0.2400) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36901.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ ChessBase 18 (2024) [En] (18.2) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36796.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Wilmot's Warehouse (2019) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36165.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Golf Peaks (2018) [Ru/Multi] (3.60) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35048.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ inbento (2019) [Ru/Multi] (2.51) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34993.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34616.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Chess King 25 (2024) [Ru/Multi] (25.0.0.2500) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34191.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Chess Assistant 25 (2024) [En] (12.0.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33708.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Trans Neuronica (2023) [En] (1.0.13) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33154.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Shotgun King: The Final Checkmate (2022) [Ru/Multi] (1.515g) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29449.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Tetris Forever (2024) [Multi] (1.06) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20037.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Wilmot Works It Out (2024) [Multi] (1.039) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17701.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Contraption Maker (2014) [En] (1.4.11/dlc) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15703.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12822.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0250D0C00F2A5DCF2CCD3BBFD447EFE70EC344C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657098   (7554) от 16.08.2025
-
-Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытайте радость от ведения собственного уютного малого бизнеса: создавайте стикеры, упаковывайте заказы и слушайте истории своих клиентов. Пришло время создать самый симпатичный магазин в Интернете! Если вы когда-либо мечтали окунуться в мир, где главная валюта - это не золото или доллары, а именно клейкая субстанция, то вас ждет нечто особенное. Разработчики представляют (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellgarden GamesЖанр: Казуальные игры, СимуляторыЯзык субтитров: Английский, Французский, Китайский, Японский и другиеЯзык интерфейса: Английский, Французский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F74BDE77B2A9C14D00808D461C2587056AF259
 ```
 
 https://mybot314.ru/tekegram_catalog/

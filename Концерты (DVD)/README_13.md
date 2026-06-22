@@ -1,3 +1,61 @@
+###  Публикация: 1653037   (192663) от 03.09.2023
+
+Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192663.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD-1 I Believe
+DVD-2 Only Time Will Tell
+DVD-3 Holy War
+DVD-4 Never Again(   Читать дальше...   )Производство: Frontiers Records – FR CDVD 580, ItalyЖанр: Pop Rock, Prog RockРежиссер: Bernhard BaranАктеры: Asia: Steve Howe, Carl Palmer, Geoffrey Downes, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5932C622218B41B7A633D93AE0BCC0BDDDE9CEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653108   (192586) от 03.09.2023
+
+Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency Ballroom)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192586.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD-1 Introduction
+DVD-2 Only Time Will Tell
+DVD-3 Wildest Dreams
+DVD-4 Face On The Bridge(   Читать дальше...   )Производство: Frontiers Music SRL – FR CDVD 694, ItalyЖанр: Pop Rock, Prog RockРежиссер: Paul BillingsАктеры: Geoffrey Downes, Steve Hove, Carl Palmer, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0DD003D230BD470273967FE3C3226202D280EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361310   (159684) от 23.12.2022
 
 Воскресение - Не торопясь. Live (2003) DVD9
@@ -6,7 +64,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159684.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156501.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155442.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148897.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148001.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147663.jpg" />
 </div>
 
 
@@ -198,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134544.jpg" />
 </div>
 
 
@@ -228,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134538.jpg" />
 </div>
 
 
@@ -254,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_134532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134532.jpg" />
 </div>
 
 
@@ -280,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134472.jpg" />
 </div>
 
 
@@ -307,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_134412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_134412.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131847.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130632.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124844.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98113.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90867.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Chloe Agnew (Celtic Woman) Walking In The Air (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90425.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87978.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87234.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ ABBA - Number Ones (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87227.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87197.jpg" />
 </div>
 
 
@@ -630,7 +688,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87167.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Nightwish -End Of Innocence (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86612.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85725.jpg" />
 </div>
 
 
@@ -698,59 +756,6 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
  08. Orjan Nilsen – Between The Rays (Armind)
  09. Setrise vs Johann Stone – Icesave (Original Mix)
  10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475623   (85395) от 30.03.2012
-
-Пикник - 30 световых лет (2012 ) DVD9
-
->>След.
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцатилетний юбилей группы Пикник - хороший повод, чтобы «вспомнить все», а точнее исполнить все те песни, которые составили не только квинтэссенцию творчества Пикника, но и вошли в золотой фонд Русского рока. На юбилейном концерте, состоявшемся в Ледовом дворце, на глазах восьми тысяч зрителей, ожили фантастические персонажи песен Эдмунда Шклярского. Это и Гигант на ходулях, и Кукла с человеческим лицом, и Танцующий шаман. Не обошлось и без эксклюзивных инструментов, таких как Живая виолончель (в песне «Глаза (   Читать дальше...   )Жанр: RockФормат: DVD VideoПродолжительность: 02:14:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473432   (84515) от 26.03.2012
-
-Iron Maiden - En Vivo! (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84515.jpg" />
-</div>
-
-
-###  Подробнее
-
-EMI 26 марта выпускают новый концертный релиз IRON MAIDEN, "En Vivo!", который будет доступен на Blu-Ray, 2-DVD и 2-CD. Его съемки состоялись на выступлении 10 апреля в Сантьяго перед 50 000 поклонниками, которое проходило в части "Round The World In 66 Days" из "The Final Frontier World Tour", достойно запечатлев как небывалый энтузиазм и самоотдачу чилийских поклонников, так и отразив всю суть IRON MAIDEN образца 2011 года.
-Концерт снимался на 22 HD-камеры и октокам (летающая камера над толпой перед сценой), записан в стерео и 5.1-формате, сведение которого осуществил Kevin "Caveman" Shirley, каждый из них только подчеркивает невероятную атмосферу выступления. Особым моментом релиза станет возможность близкого наблюдения за каждым музыкантом на разделенном экране, а сет-лист плавно варьируется от классических произведений до номеров с последнего альбома.Жанр: Heavy MetalПродолжительность: 01:27:53
 
 ## Скачать торент
 ```bash

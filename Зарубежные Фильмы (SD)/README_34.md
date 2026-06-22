@@ -1,3 +1,133 @@
+###  Публикация: 1457421   (1024282) от 26.03.2021
+
+Каджиллионер / Kajillionaire (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главную героиню на протяжении последних 26 лет упорно тренируют обманывать, красть и мошенничать, причём её собственные родители. Сами они, понятное дело, промышляют тем же, и дочка становится без преувеличения главной звездой их странной волосатой банды. Но внезапно идеально отлаженный механизм даёт сбой, когда к семейству присоединяется горячая и дико милая незнакомка...Производство: США / Annapurna Pictures, Plan B EntertainmentЖанр: Драма, криминалРежиссер: Миранда ДжулайАктеры: Ричард Дженкинс, Дебра Уингер, Эван Рэйчел Вуд, Патриша Белчер, Ким Эстес, Да’Вин Джой Рэндольф, Рэйчел Редлиф, Рэнди Райан, Марк Иванир, Бланка АраселиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42E94CA3A256E7D3E36E1AF82BB5EE53E826F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457431   (1024275) от 26.03.2021
+
+Кровные узы / Let Him Go (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший шериф Джордж Блэкледж вместе с супругой Маргарет наслаждается спокойной жизнью на ранчо в горах Монтаны. Трагическая гибель их сына навсегда разрушает размеренный уклад жизни благочестивой семьи. ​​​​​​​Теперь все, что у них осталось – это внук, который волей случая попал в руки жестокой и опасной семьи Уибой. Ради (   Читать дальше...   )Производство: США / Mazur / Kaplan CompanyЖанр: Триллер, драма, криминалРежиссер: Томас БезучаАктеры: Дайан Лэйн, Кевин Костнер, Кэйли Картер, Райан Брюс, Otto Hornung, Брэм Хорнунг, Лесли Мэнвилл, Уилл Бриттейн, Джеффри Донован, Коннор МакКэйПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4C17C834C5DF21AE660763633FCF3DD80831F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457425   (1024269) от 26.03.2021
+
+Грань времени / Synchronic (2019) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два закадычных друга Стив и Деннис работают врачами скорой помощи в Новом Орлеане. Последнее время они сталкиваются со странными несчастными случаями и не менее загадочными смертями, как-то связанными с новым синтетическим наркотиком под названием Synchronic. Приехав на очередной вызов, друзья выясняют, что дочь-подросток Денниса тоже попробовала модный наркотик, (   Читать дальше...   )Производство: США / Patriot Pictures LLC, Pfaff & Pfaff Productions, Love & Death Productions (LDP), Rustic FilmsЖанр: Фантастика, ДрамаРежиссер: Джастин Бенсон, Аарон МурхедАктеры: Энтони Маки, Джейми Дорнан, Элли Иоаннидес, Кэтрин Аселтон, Рамиз Монсеф, Билл Оберст мл., Бетси Холт, Брэйди, Эдейр, Мэттью АндервудПеревод: Дублированный (iTunes)Субтитры: Русские (отдельно)Продолжительность: 01:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316FB57C2FB6EE327BA1F5C91A3661E0998E0B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457854   (1024123) от 27.03.2021
+
+Летний лагерь / A Week Away (2021) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудный подросток Уилл Хокинс должен провести каникулы в христианском летнем лагере вместо тюрьмы для несовершеннолетних. Сначала Уилл чувствует себя чужим среди местной молодежи, но неожиданно для него самого именно здесь герой находит лучшего друга, любимую девушку и обретает новый смысл своей жизни в вере и музыке.Производство: США / Monarch Media, Rove ProductionsЖанр: Мюзикл, драма, семейныйРежиссер: Роман УайтАктеры: Бэйли Мэдисон, Дэвид Кокнер, Шерри Шеперд, Кевин Дж. Куинн, Goria Cunningham, Kat Conner Sterling, Mari Kasuya, Эд Аматрудо, Brooke Maroon, Jahbril CookПеревод: Дублированный (Netflix)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BE149BA3D71F86F6AB60E80B87C99FD3E38470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457822   (1024106) от 27.03.2021
+
+Бэд трип / Приколисты в дороге / Bad Trip (2020) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия о двух друзьях, которые отправляются в дорожное путешествие через всю страну, чтобы устраивать грандиозные и безумные пранки.Производство: США / Orion Pictures, BRON Studios, Creative Wealth Media FinanceЖанр: КомедияРежиссер: Китао СакурайАктеры: Эрик Андре, Микаэла Конлин, Лил Рел Ховери, Тиффани Хэддиш, Gerald Espinoza, Kaleila Johnson, Michael Starr, Ивет Такер, Аллан Граф, Кевин КэссидиПеревод: Дублированный (Netflix)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D83B0A33CDDFEB9D26D050D3984DDDF4D5DAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457770   (1024105) от 27.03.2021
 
 Адский ад (Чёртов ад) / Bloody Hell (2020) WEB-DLRip [MVO]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024105.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024043.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023946.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023939.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023897.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023896.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023895.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023728.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023721.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023717.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023643.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023635.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023626.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023600.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023589.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023585.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023574.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023573.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023547.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023539.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023490.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67C3F263B24E1371F282FC3E914C5C3890B4AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452634   (1023443) от 31.03.2021
-
-Странные игры / Ransum Games (2021) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любящая жена Дениз должна принять судьбоносное решение, будет ли она платить выкуп за своего состоятельного мужа, которого похищает банда уличных преступников.Производство: США, C.L.A.S. ProductionsЖанр: Криминал, триллерРежиссер: Паррис РивзАктеры: Элиз Нил, Вуд Харрис, Эрик Лэйн, Девин Уэсли, Томми Филлипс, Джонни Кулаут Старкс, Хадиджа ФриманПеревод: Двуголосый любительский (Mallorn)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95E21C12DBA03819569E9A751F3147DFEFFC04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458950   (1023433) от 31.03.2021
-
-Иногда. Всегда. Никогда / Sometimes Always Never (2018) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портной Алан провел много лет в поисках своего сына Майкла, сбежавшего однажды из дома прямо посреди игры в «Эрудита». Однако у него есть и другая проблема — он не ладит с младшим, Питером. Чтобы двигаться дальше, Алану нужно найти общий язык с Питером и разгадать загадку онлайн-игрока, который, как ему кажется, может быть Майклом.Производство: Великобритания / Hurricane Films, Goldfinch, BondIt Media CapitalЖанр: Драма, комедия, детективРежиссер: Карл ХантерАктеры: Билл Найи, Сэм Райли, Элис Лоу, Дженни Агаттер, Тим Макиннерни, Джон Доннелли, Луис Хили, Элла-Грэйс Грегуар, Алан УильямсПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE8A06DF31AB78DB1B2A6B5B72E22BEA77C5AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458963   (1023420) от 31.03.2021
-
-Злодей / Villain (2020) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023420.jpg" />
-</div>
-
-
-###  Подробнее
-
-После очередной отсидки уголовник Эдди Фрэнкс решает завязать с криминальным миром, наладить отношения с дочерью и привести в порядок совместный бизнес с братом. Однако, несмотря на все его усилия, попытки оказываются тщетными, и водоворот преступной жизни затягивает его обратно.Производство: Великобритания / Ascendant FilmsЖанр: Боевик, триллер, драма, криминалРежиссер: Фил БарантиниАктеры: Крэйг Фэйрбрасс, Джордж Руссо, Идзука Хойл, Марк Монеро, Томислав Стоянович, Элуиз Ловелл Андерсон, Taz Skylar, Николас Аарон, Роберт Гленистер, Майкл Джон ТрианорПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F400978EA9812BF7F5042EF14F7AE3CA024DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459166   (1023399) от 31.03.2021
-
-Охотник на монстров / Monster Hunter (2020) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Параллельно нашему миру существует иной: мир, где правят крайне опасные и наделенные невероятной силой монстры, яростно оберегающие свои владения от чужаков. Именно сюда через пространственный портал попадают лейтенант Артемис и ее отряд элитных бойцов. И теперь им предстоит проверить себя на прочность перед лицом невиданной ранее угрозы. В попытке выжить и найти (   Читать дальше...   )Производство: США, Китай, Германия, Япония / Constantin Film, Impact Pictures, Capcom CompanyЖанр: Фэнтези, боевик, приключенияРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Тони Джа, Рон Перлман, Ти-Ай, Диего Бонета, Миган Гуд, Джош Хелман, Джин О-Юн, Хирона Ямадзаки, Янник ШуманнПеревод: Дублированный (iTunes)Субтитры: Русские, украинские, английские (отдельно)Продолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C24A3585EB40B32D51C7EE5B26BC196934B41D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459093   (1023386) от 31.03.2021
-
-Святая Мод / Saint Maud (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Религиозная девушка Мод работает сиделкой. Её новой подопечной становится смертельно больная бывшая танцовщица Аманда, в одиночестве проживающая в большом особняке. Мод выполняет свои обычные обязанности, но после того как Аманда называет её своей спасительницей, девушка решает, что только она может избавить душу женщины от вечных мук.Производство: Великобритания / Escape Plan Productions, Film4, BFI Film FundЖанр: Ужасы, драмаРежиссер: Роуз ГлассАктеры: Морфидд Кларк, Дженнифер Эль, Лили Найт, Лили Фрайзер, Тёрло Конвери Рози Сэнсом, Маркус Хаттон, Карл Прекопп, Ноа Боднер, Такацуна МукаиПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD1A78A037247300BAC5FC7F43B4C7F32F1100B
 ```
 
 https://mybot314.ru/tekegram_catalog/

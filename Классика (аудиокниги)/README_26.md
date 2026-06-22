@@ -1,3 +1,56 @@
+###  Публикация: 1235373   (558589) от 12.07.2018
+
+Антон Чехов и др. | Десять рассказов русской классики (2018) [MP3, Дмитрий Коврижных и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды, ранней весной, шли мы в Батум из Порт-Саида. В Стамбуле были чумные случаи, дела наш грузовик там не имел; мы решили миновать Золотой Рог, а рассвета дождаться в Коваках, у входа в Черное море: ночью из Босфора не выпускают. И вот отправили с нами из Дарданелл двух турок, двух карантинных стражей, дабы они удостоверили, придя в Коваки, что остановки на Босфоре (   Читать дальше...   )Жанр: КлассикаИздательство: ИНДИ, Орловский Институт КультурыПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9779CB4D9F3F5ADE81C86021A0083D677D537E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045325   (558028) от 24.08.2016
+
+Лесли Поулс Хартли | Посредник (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наиболее известный роман Лесли Поулса Хартли "Посредник" отличается тонким психологизмом, напряженным сюжетом и прекрасным стилем.
+"Прошлое - это другая страна: там все иначе". Герой блистательного романа классика английской литературы XX века Л.П.Хартли (1895-1972) вспоминает о днях, проведенных в июле 1900 года в поместье своего друга, о запутанных (   Читать дальше...   )Жанр: РоманПродолжительность: 10:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCD23C1F5C8ADE5E8B7CCED7C696B68C9C015B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153524   (557980) от 27.07.2017
 
 Эдгар Аллан По | Ворон (2017) [MP3, Николай Станишевский]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557980.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557934.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557779.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553244.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552791.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550929.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550169.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549364.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547925.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547422.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546528.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542774.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542583.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542249.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542102.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541857.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537704.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535199.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534541.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534216.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533771.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530069.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528861.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528013.jpg" />
 </div>
 
 
@@ -620,62 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B572D21570905852821308442ADEAC7FA2801FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559053   (527843) от 23.06.2022
-
-Иван Тургенев | Холостяк (2022) [MP3, Николай Пастухов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по пьесе И.С. Тургенева.
-Продолжая в «Холостяке» гоголевские традиции и предвосхищая пьесы из чиновничьего быта А. Н. Островского, Тургенев сумел показать, без сатирического пафоса, без нарочито обнаженной тенденциозности, но с беспощадной трезвостью реалиста, своих Мошкиных, фон Фонков и Вилицких в примитивной домашней обстановке, обусловленной социальным (   Читать дальше...   )Жанр: Классика, РадиоспектакльПродолжительность: 01:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDACD8658284B3435A0686CFE05A727D10E71886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558994   (527793) от 23.06.2022
-
-Антон Чехов | Избранные повести и рассказы (2021) [MP3, Дмитрий Филимонов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избранные произведения классика юмористической и психологической прозы.
-
-Особый шарм и синергию придает чтение двух замечательных актеров – Дмитрия Филимонова (Марти МакФлай, Джорах Мормонт, экс-голос эфиров «Первого канала»); и Всеволода Полищука (диджей и брэндвойс «Европы плюс» и «ТНТ»).
-(   Читать дальше...   )Жанр: КлассикаПродолжительность: 05:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F7B50C9A752753E9C2014914240B954576DCD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

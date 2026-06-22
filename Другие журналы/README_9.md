@@ -1,3 +1,83 @@
+###  Публикация: 598321   (1000006) от 04.01.2013
+
+Журнал | The English Home [февраль 2013] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено классическому и современному английскому дизайну интерьеров (жилых и нежилых помещений).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA94213DFFB3549A543D2D4D71C6E4A88E81339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599244   (999361) от 06.01.2013
+
+Журнал | Свой бизнес №11 [декабрь 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перспективные эко-рынки, нюансы налогообложения, секреты грамотного маркетинга, советы по общению с инвесторами, стратегия построения команды - эти и другие темы обсуждают на страницах журнала "Свой бизнес" владельцы предприятий, которые добились высоких темпов развития.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA290393050EB1CD8217035A03DDBC244B1CA47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599807   (998584) от 09.01.2013
+
+Подборка журналов | Сверхновая американская фантастика №№ 1, 2, 3, 7-9 [1994...1996]  [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Сверхновая американская фантастика - это русская версия знаменитого американского журнала The Magazine of Fantasy and Science Fiction.
+Здесь печатаются новые рассказы, повести, романы, а также произведения, написанные после 1973 года (которые в СССР практически не издавались).
+В журнале в целом сохранена структура американского издания.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FDD46E8A5838FE1C8F93D5D331266228589C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593133   (998510) от 09.01.2013
 
 Подшивка журнала| "Если" [1991-2012] (Обновлено 9 января 2012)[FB2, PDF, DOC, RTF, DJVU]
@@ -6,7 +86,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998510.jpg" />
 </div>
 
 
@@ -38,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998071.jpg" />
 </div>
 
 
@@ -64,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998065.jpg" />
 </div>
 
 
@@ -94,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997554.jpg" />
 </div>
 
 
@@ -128,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997529.jpg" />
 </div>
 
 
@@ -154,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997511.jpg" />
 </div>
 
 
@@ -186,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997491.jpg" />
 </div>
 
 
@@ -212,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997278.jpg" />
 </div>
 
 
@@ -238,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997029.jpg" />
 </div>
 
 
@@ -264,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996531.jpg" />
 </div>
 
 
@@ -290,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996479.jpg" />
 </div>
 
 
@@ -316,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995325.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995301.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995291.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995275.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995231.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995201.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994933.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994913.jpg" />
 </div>
 
 
@@ -542,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994847.jpg" />
 </div>
 
 
@@ -571,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994210.jpg" />
 </div>
 
 
@@ -597,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994181.jpg" />
 </div>
 
 
@@ -623,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994166.jpg" />
 </div>
 
 
@@ -634,91 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A12967F4F5D8F3F479A46C41ADA34879BABD72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608014   (994129) от 24.01.2013
-
-Журнал | Интерьер + дизайн №7 [июль-август 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерьер + дизайн - Красочное издание, предлагающее свое оригинальное решение дизайна интерьера, на его страницах советы профессионалов, интересные новинки рынка, обзор ярких готовых проектов. Практические советы и свежие решения для оформления квартиры.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688FAA6E045DE3E8374406CF972BBA54CA6C7810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607979   (994053) от 24.01.2013
-
-Газета | Социалистическая индустрия № 1 (1) [1 июля 1969] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994053.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Социалисти́ческая индустри́я» — ежедневная (6 раз в неделю) газета, орган ЦК КПСС. Утверждалось, что «Социалистическая индустрия» освещает вопросы развития советской промышленности, научно-технического прогресса, совершенствования системы управления производством, организации социалистического соревнования в СССР, а также опыт экономической интеграции социалистических стран, социально-экономические последствия научно-технической революции в капиталистических странах, экономические связи СССР с зарубежными странами.
-
-Газета юридически прекратила своё существование в 1989 году по решению учредителя — ЦК КПСС (после января 1990 года возобновила выход под новым брендом — «Рабочая трибуна», позднее — просто «Трибуна». По концепции, оформлению и позиционированию это были совершенно разные издания. Общим был лишь почтовый адрес. Однако поскольку в медиаиндустрии традиции ценятся превыше всего, новые издания акцентировали свою правопреемственность.)
-
-Газета основана 1 июля 1969 г. В раздаче - первый вышедший (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C132D4347996A35EF00B67C5AD84AE453F81D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607994   (994010) от 24.01.2013
-
-Газета | Новости разведки и контрразведки № 09-10 (203) [2005] [PDF/DjVu]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международная независимая газета.
-В газете использованы материалы спецслужб и информационных агентств мира.
-
-В номере 16 страниц формата А3, собственный скан.Формат: PDF/DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846D0311FE65FDDBCE11BBF58D060CC10ADA83BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

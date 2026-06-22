@@ -1,3 +1,29 @@
+###  Публикация: 1061579   (798566) от 04.01.2019
+
+Syndrome (2016) [Ru/Multi] (1.06f) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Syndrome является научно-фантастической игрой в жанре survival horror (выживание), где вы оказываетесь на борту звездолета, обреченного на погибель и попадаете в настоящий ад. Выясните, что случилось с вашей командой. Убегайте. Прячьтесь. Сражайтесь.Тип издания: RepackРазработчик: Camel 101Жанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE0B554BD1F36E73CBB597BE835BDA2C7C1D57B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507604   (798202) от 05.11.2021
 
 Distorted World (2021) [Ru/En] (1.0) License PLAZA
@@ -6,7 +32,7 @@ Distorted World (2021) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798202.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.35.63118/dlc) License CODEX [Season 01: 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798043.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Get Even (2017) [Ru/En] (1.0/u1) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797847.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Death Slayer V (2021) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797827.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797062.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795360.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) License PLAZA [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794666.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794533.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) Repack Other s [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794531.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793531.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Skin Witch (2020) [Ru/Multi] (1.0.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793160.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793124.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792649.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Beyond Enemy Lines (2021) [En] (2.1.0) License SKIDROW [Remastered Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792557.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ E.Y.E: Divine Cybermancy (2021) [En] (1.01) License GOG [Single-Player Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792555.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791897.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ The Land of Pain (2017) [Multi] (1.03) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791892.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791481.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791480.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791474.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Betrayer (2014) [Ru/Multi] (1.9.68.44) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790289.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790190.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/Multi] (1.9.446/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789692.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack =nemos= [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789688.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Call of Duty: Ghosts (2013) [Ru/En] (1.0.749678/u21) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789274.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:252AB0C2C69664AC70B5AF5A4F50605A8782F381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511322   (789139) от 20.11.2021
-
-Gunfire Reborn (2021) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gunfire Reborn - это приключенческая многоуровневая игра с элементами ролевой игры (RPG), Roguelite и шутера от первого лица (FPS). Игроки могут управлять героями, которые обладают различными способностями, чтобы исследовать разнообразный геймплей, и использовать случайным образом выпадающее оружие в приключениях на случайных уровнях. На каждом уровне игроки получают (   Читать дальше...   )Тип издания: LicenseРазработчик: Duoyi GamesЖанр: FP, Roguelite, RPGЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1137FD343CFEB3335869E536D52F5BFD9BCEAF3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

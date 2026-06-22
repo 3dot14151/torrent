@@ -1,3 +1,56 @@
+###  Публикация: 1564801   (249661) от 20.07.2022
+
+IP Scanner Pro 4.06 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249661.jpg" />
+</div>
+
+
+###  Подробнее
+
+IP Scanner Pro - сканер локальной сети для Mac OS X
+IP Scanner - приложение сканирует локальную сеть для установления всех компьютеров и устройств с IP-адресом. Результаты сканирования могут быть организованы так, как вам будет удобно. Как только устройство будет определено, ему можно присвоить любое имя и иконку, для более легкого распознавания в общем списке.Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © 2005-2022, 10base-t interactiveПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0322F42AE03F3A067F7768D397710C9B5D9FA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448567   (245805) от 18.02.2021
+
+Convertos 2.0 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Convertos - потрясающий конвертер величин.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2020Разработчик: Vitaly Kuz'menkoПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B495A6641F8131D52219E3BAD93C2E8C6DE160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512433   (245635) от 24.11.2021
 
 Hostbuddy 2.2.5 fix [En]
@@ -6,7 +59,7 @@ Hostbuddy 2.2.5 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245635.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ NotesTab Pro 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245552.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Type Fu 4.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245455.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Task Office 8.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245308.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ MarsEdit 5.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245242.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ SQLPro for SQLite 2022.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245144.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Paw (HTTP & REST Client) 3.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244505.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ FontLab 7 v7.2.0.7649 Beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244107.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ DateBook - Journal | Memoi‪r 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243795.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Salon Software 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243785.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Noizio — focus, relax, sleep 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243762.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Flyingbee Reader Pro 3.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243668.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ MultiMode Cocoa 6.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243193.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ Book Collector 20.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_243007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_243007.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242983.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ Fuel for Pages 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242709.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ Mullvad Browser 12.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242546.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ MarkMyWords 2.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241808.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ InstaGrid 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241504.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ TweetShot 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240815.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ Faxbot 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240777.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ Dial!List 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240643.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ Screaming Frog SEO Spider 17.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240017.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ Handy Note 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239966.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ Handy Note - это прекрасно написанное приложение
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B633866CD7DA8572428B1315694467F5F3DE96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438137   (239126) от 07.01.2021
-
-Textastic 5.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Textastic является мощным, быстрым текстовым редактором и редактором для разметки кода.Тип издания: macOS SoftwareРелиз состоялся: 06.01.2021Разработчик: Alexander BlachПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B1B3846314D8000A2CD6C5079A9CF794527642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438020   (239075) от 07.01.2021
-
-xPlan4 Desktop 4.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управление проектами с помощью диаграмм Ганта. Наконец-то вы можете создавать диаграммы Ганта, не ломая голову. Наш продукт выделяется простотой использования и простотой. Мы сосредоточиваем свое внимание на функциях, которыми фактически пользуется большинство руководителей проектов. Кроме того, созданные графики красивы и визуально привлекательны. Одна картинка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: ADNX.COMПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1E7E20D5432F1D4244FAA7AECE67D3FE0E3927
 ```
 
 https://mybot314.ru/tekegram_catalog/

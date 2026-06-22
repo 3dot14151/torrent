@@ -6,7 +6,7 @@ The Flirts - Made In America (1984) [OGG Vorbis|485 Kbps] <Hi NRG, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429664.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428062.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Celine Dion - All The Way... A Decade Of Song (1999) [OGG Vorbis|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427513.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dido - Still On My Mind (2019) [OGG|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427419.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Bravo Hits Jesień 2019 (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427409.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426769.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426236.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425362.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Melanie C - Version of Me (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423910.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Cars - Heartbeat City (1984) [OGG Vorbis|485 Kbps] <Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423513.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Technique - Michael Angelo (1983) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422650.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Demi Lovato - Confident (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422486.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nino De Angelo - Samuraj (1989) LP [MP3|320 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421332.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ John Newman - Revolve (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420125.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Systems In Blue - There's No Heart (2018) Special 80's version, 12" [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420095.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Celine Dion - Courage (2019) [OGG Vorbis|485 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419460.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Rocky - Soft Machines (2016) [MP3|320 Kbps] <Alternative Pop, Soul, Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419098.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418662.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mehdi - When Will I Be Famous (2008) Single, 2 Tracks Kleiner Preis [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418031.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Thomas Anders - Songs Forever (2006) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417922.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Agnetha & Frida - The Voice of ABBA (1994) Compilation [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417771.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Gram Rabbit - RadioAngel & the RobotBeat (2007) [MP3|256 Kbps] <Alternative Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417037.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mylene Farmer - Ainsi Soit Je... (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416890.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - RTL 2 It's fun - Oktoberfest (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416730.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Die deutschen Disco Charts - Die ultimative Schlager Party (2019) 3CD [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416724.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415498.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 322122   (753875) от 11.04.2011
+
+Эрих Мария Ремарк | Тени в раю (2011) [MP3, Валерий Саберов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Тени в раю», увидевший свет в 1971 году, уже после смерти Эриха Марии Ремарка, рассказывает о судьбе тех немецких эмигрантов времен Второй мировой войны, что сумели добраться до Земли Обетованной - Америки. Для некоторых Штаты стали новой родиной, но в большинстве своем изгнанники, опустошенные тревогой, страхом и тоской, так и не нашли в себе силы приспособиться (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 19:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF20F42592620C7D564C8F6076274F456CFCE7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018983   (752179) от 22.05.2016
+
+Марк Твен | Письма с Земли (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752179.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Письма с Земли" - это сатирическое произведение, свыше 50 лет остававшееся неизвестным читателям и увидевшем свет только в 1962 г. (Нью-Йорк, 1962), которое характеризует М.Твена как убеждённого атеиста, непримиримого борца с жестокостью, несправедливостью и лицемерием.Жанр: Классическая прозаПродолжительность: 02:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C1D428FFE5320DA00252B28A93206980BF2364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523463   (751127) от 11.01.2022
 
 Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 1-50 (2022) [MP3, Александр Клюквин]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751127.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750057.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748334.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747205.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746831.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746520.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746519.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746511.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745236.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745093.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743767.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743754.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743221.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742295.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742075.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742067.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740963.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740778.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740684.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740421.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740174.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740057.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739996.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738483.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E52E899E1CBE30FF48EEC3DDB247AE0AF2E801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398641   (734691) от 28.07.2020
-
-Сесил Форестер | «Грейхаунд», или Добрый пастырь (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском – классический роман Сесила Скотта Форестера, прославившегося циклом книг о приключениях капитана Хорнблауэра. Книга, которую называли «пожалуй, лучшим приключенческим романом о Второй мировой войне» (Life) и «самым увлекательным морским приключением со времен хемингуэевского „Старика и моря“» (The Guardian).Жанр: Зарубежная классикаПродолжительность: 08:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90E56388BC7C669154B3A56385A5A0E940CE1D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529598   (732564) от 07.02.2022
-
-Уильям Линдсей Грешем | Аллея кошмаров (2022) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском – классический роман американского нуара, однажды уже экранизированный в золотую эпоху Голливуда с Тайроном Пауэром и Джоан Блонделл в главных ролях. А сейчас на мировые экраны выходит новая киноверсия: постановщик – Гильермо дель Торо («Лабиринт Фавна», «Форма воды», «Хребет дьявола», «Хеллбой»), в фильме снимались Брэдли Купер, Кейт Бланшетт, (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 09:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CF0A93CB18D2E9D3563125D16EC0A4F24CE375
 ```
 
 https://mybot314.ru/tekegram_catalog/

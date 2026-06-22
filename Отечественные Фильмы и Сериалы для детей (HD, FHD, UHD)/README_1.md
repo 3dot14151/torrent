@@ -1,3 +1,55 @@
+###  Публикация: 1606519   (1043774) от 28.01.2023
+
+Приключения Электроника (1979) HDTVRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский ученый создает гениального робота. Это мальчик, который способен решать любые математические задачи, он пишет самые лучшие сочинения и отлично поет! А еще он — точная копия школьника Сережи Сыроежкина. Сообразительный мальчуган быстренько перекладывает все свои обязанности на электронного двойника. Тот делает за него домашние задания, ходит в школу и выполняет (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: фантастика, детский, приключения, комедияРежиссер: Константин БромбергАктеры: Юрий Торсуев, Владимир Торсуев, Василий Скромный, Максим Калинин, Дмитрий Максимов, Евгений Лившиц, Валерия Солуян, Владимир Басов, Николай Караченцов, Николай ГринькоСубтитры: ОтсутствуютПродолжительность: 01:11:20+01:04:24+01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D6D9D1C37700CB56CF174BA4EC38909FDFD703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609074   (1043101) от 04.02.2023
+
+Чук и Гек. Большое приключение (2022) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два дружных, но озорных брата Чук и Гек живут с любящей мамой в Москве и скучают по папе, который работает далеко на Севере. Решив во что бы то ни стало встретить наступающий Новый год вместе, они отправляются в захватывающее путешествие к таинственным Синим горам. Теперь их ждёт самое большое приключение в их жизни, ведь в новогодние праздники возможны любые, даже (   Читать дальше...   )Производство: Россия, МетрономФильмЖанр: семейный, приключенияРежиссер: Александр КоттАктеры: Андрей Андреев, Юрий Степанов, Владимир Вдовиченков, Юлия Снигирь, Александр Самойленко, Милена Софронова, Игорь Письменный, Наталья Коляканова, Тимофей Трибунцев, Ева ФадееваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09ADEE4A02613B1859F240C1F54CC114E2C6C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429758   (1042493) от 03.01.2021
 
 Зимородок (1972) WEB-DL [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042493.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040804.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038682.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036858.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032829.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031503.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029920.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029691.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025961.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023311.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022958.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022802.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022416.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018184.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018172.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018036.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013509.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013005.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009094.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007271.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003909.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002786.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002490.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002456.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD03EDF571045D2E5219BD7CC073FD6664D7B17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488442   (1002055) от 11.08.2021
-
-Про Лёлю и Миньку (2019) WEB-DL [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда выросший Минька едет навестить свою сестру Лёлю, теперь взрослую женщину с двумя детьми, живущую в доме их детства, всё по дороге напоминает ему весёлые истории из прошлого. Но он не знает, что в результате шалости её «чучел»-близнецов Пети и Феди, Лёле грозят очень серьезные неприятности…Производство: Россия / Студия Первый АЖанр: Семейный, детскийРежиссер: Анна ЧернаковаАктеры: Евгения Щербинина, Елисей Мысин, Татьяна Рыбинец, Андрей Емельянов, Сергей Степанченко, Ольга Красько, Валентина Талызина, Роман Мадянов, Аркадий Коваль, Екатерина КирчакСубтитры: русские, английскиеПродолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C9A1F78BBEAC7C2455E9B67A34ADC502985F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487797   (1001137) от 14.08.2021
-
-Если верить Лопотухину... (1983) WEBRip [H.264/1080p-LQ] (2 серии)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001137.jpg" />
-</div>
-
-
-###  Подробнее
-
-О весьма неординарных событиях, которые произошли в школе после того, как Вася Лопотухин из-за встречи с инопланетянами опоздал на урок математики.Производство: СССР / ТО «Экран»Жанр: Семейный, комедия, детскийРежиссер: Михаил КозаковАктеры: Григорий Евсеев, Леонид Броневой, Светлана Крючкова, Наталья Збруева, Василий Арканов, Антон Наркевич, Максим Кондратьев, Максим Широков, Виталий Леонов, Иван УфимцевСубтитры: ОтсутствуютПродолжительность: 01:05:48 + 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B186044EEF52BD959156185677F6B0D0EA101BE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

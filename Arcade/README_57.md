@@ -1,3 +1,55 @@
+###  Публикация: 1793078   (20610) от 22.04.2025
+
+FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGirl [Special Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеми любимая серия Fatal Fury от SNK впервые вышла на рынок в 1991 году, породив волну файтингов, захлестнувшую индустрию в девяностых. GAROU: MARK OF THE WOLVES (выпущена в 1999 году) долгое время оставалась самой последней игрой франшизы, но вскоре это изменится. Спустя 26 лет на файтинг-арену готова выйти совершенно новая игра - FATAL FURY: City of the Wolves!Тип издания: RepackРазработчик: SNK CORPORATIONЖанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED394577781F225BEAD14E28F75257C71F1B14C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793209   (20511) от 23.04.2025
+
+Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы - Pecker, птицеподобное существо с гнущимся клювом. Ткнитесь в стену, согните клюв и катапультируйтесь вверх! Используя этот прием, вы преодолеете множество уровней, наполненных головоломками и врагами. В одиночку или с тремя друзьями (локальный сплитскрин) карабкайтесь, разгадывайте головоломки и побеждайте врагов. Откройте для себя секреты этого средневекового (   Читать дальше...   )Тип издания: RepackРазработчик: Fonteinsoft UGЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE123E32571ADEC436BBB269358AF22577578B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793875   (20181) от 26.04.2025
 
 World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
@@ -6,7 +58,7 @@ World of Goo 2 (2024) [Ru/Multi] (13112W) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20181.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13112) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20141.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.2) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20068.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Night Slashers: Remake (2024) [Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20025.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2011.010.003.007.006/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19999.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Last Man Survivor (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19987.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19974.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19678.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19621.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Space Grunts 2 (2019) [En] (2.0.1b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19605.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Cannon Fodder (1993) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19589.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Space Grunts (2016) [En] (1.7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19584.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Badlands Crew (2025) [Ru/Multi] (30737) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19513.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Super Raft Boat Together (2023) [Ru/Multi] (1.4.1s1) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19466.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Pure Bubble Hockey (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19280.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19276.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.3) Repack FitGirl [Deluxe Edi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19095.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18682.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18543.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Death Squared (2017) [En] (1.8.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18310.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18016.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Dome Keeper (2022) [Ru/Multi] (4.2.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17964.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.3.67463/dlc) Repack Let'sРlay [Ultimate Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17897.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ember Knights (2023) [Ru/Multi] (2.2.1.b4712/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17761.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ember Knights - динамичный роуглайт для 1–4 игроко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3672648CA2626332FC879BB16DCC4ACCFE379985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792945   (17654) от 21.05.2025
-
-FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let'sРlay [Special Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеми любимая серия Fatal Fury от SNK впервые вышла на рынок в 1991 году, породив волну файтингов, захлестнувшую индустрию в девяностых. GAROU: MARK OF THE WOLVES (выпущена в 1999 году) долгое время оставалась самой последней игрой франшизы, но вскоре это изменится. Спустя 26 лет на файтинг-арену готова выйти совершенно новая игра — FATAL FURY: City of the Wolves!Тип издания: RepackРазработчик: SNK CORPORATIONЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C0C08BBB95BBE55E0DC6BE9D42D2EA358EBEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744757   (17458) от 22.05.2025
-
-Dustborn (2024) [Ru/Multi] (1.13/dlc) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dustborn - дорожное приключение, вдохновленное графическими новеллами. Игра выполнена в стиле динамического комикса и рассказывает про небольшую группу подростков-неудачников, отправившиеся в путешествие сквозь всю пост-инфодемическую Америку. Их цель - доставить из Калифорнии одну важную посылку в Новую Шотландию.Тип издания: SceneРазработчик: Red Thread GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FB666F12828B87753F6821CDB4C24705A0B717
 ```
 
 https://mybot314.ru/tekegram_catalog/

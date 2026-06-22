@@ -1,3 +1,31 @@
+###  Публикация: 1746976   (44783) от 03.09.2024
+
+Пик Данте / Dante's Peak (1997) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученый-вулканолог Гарри Далтон, потерявший жену во время извержения вулкана, отправляется на Пик Данте, в маленький городок, расположенный на северо-западном побережье, для того, чтобы заняться там рутинной работой - исследованием сейсмической ситуации.
+
+Ученый немедленно обнаруживает тревожные признаки надвигающейся катастрофы, грозящей обернуться концом света. (   Читать дальше...   )Производство: США / Pacific Western, Universal PicturesЖанр: боевик, триллер, приключенияРежиссер: Роджер ДональдсонАктеры: Пирс Броснан, Линда Хэмилтон, Джейми Рене Смит, Джереми Фоули, Элизабет Хоффман, Чарльз Хэллахан, Грант Хеслов, Кирк Тратнер, Арабелла Филд, Ма ЦиПеревод: Многоголосый профессиональный (ОРТ)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48EB5DE98AFA729B791D83B0DEC54C9391771E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746977   (44772) от 03.09.2024
 
 Тёмный город / Dark City (1998) HybridRip [H.265/2160p] [4K, SDR, 10-bit] [Theatrical Cut] [Open Matte] [hand made Upscale AI]
@@ -6,7 +34,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44772.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44761.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44753.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44746.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44671.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44658.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44652.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44647.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44644.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44640.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44626.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44622.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44559.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44547.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44544.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44542.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44540.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44537.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44536.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44458.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44437.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44431.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44387.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44356.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44336.jpg" />
 </div>
 
 
@@ -655,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EE0C483CD8B026A79E2C6CC4F829EBBF7D79554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748028   (44335) от 07.09.2024
-
-Гарри Поттер и Принц-полукровка / Harry Potter and the Half-Blood Prince (2009) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь не только мир волшебников, но и мир маглов ощущает на себе всевозрастающую силу Волан-де-Морта, а Хогвартс уже никак не назовешь надежным убежищем. Гарри подозревает, что в самом замке затаилась некая опасность, но Дамблдор больше сосредоточен на том, чтобы подготовить его к финальной схватке, которая, как он знает, уже не за горами. Вместе они пытаются разгадать (   Читать дальше...   )Производство: Великобритания, США / Heyday Films, Warner Bros. PicturesЖанр: фэнтези, приключения, семейныйРежиссер: Дэвид ЙейтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Майкл Гэмбон, Джим Бродбент, Бонни Райт, Хелена Бонем Картер, Алан Рикман, Том Фелтон, Эванна ЛинчПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74837710EC4EBABB7B681146F8AFD78F05C38250
 ```
 
 https://mybot314.ru/tekegram_catalog/

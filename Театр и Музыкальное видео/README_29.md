@@ -1,3 +1,200 @@
+###  Публикация: 1100125   (901318) от 03.02.2017
+
+Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот диск сделан по ассоциации с двойным альбомом Scorpions 1978 года "Tokyo Tapes", где Ульрих ещё выступал в качестве соло-гитариста Скорпов. Этот концерт проходил в том же, что и тогда, концертном зале - "Nakano Sun Plaza Hall". Ульрих даже попытался идентифицировать среди зрителей тех, кто 37 лет назад присутствовал на первом концерте.1. All Night Long (Uli Jon Roth)
+2. Longing For Fire (Rudolf Schenker)
+3. Crying Days (Rudolf Schenker)
+4. Sails Of Charon (Uli Jon Roth)(   Читать дальше...   )Производство: UDR MerchstoreЖанр: Hard RockПеревод: ОтсутствуетПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33D76A8276EAB5815C44BBD14ED1B6D2E092FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637292   (900704) от 31.03.2013
+
+Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50143599F5CCF2BB744FD0F178A9B98EBCED6E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759952   (900155) от 26.02.2014
+
+Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сам концерт записан 23 августа 1983 года, Greek Theater, Los Angeles.01. Intro (Live) 1:32
+02. Pick Myself Up (Live) 4:01
+03. African (Live) 4:09
+04. Coming In Hot (Live) 4:13(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE09F282090543BDE0710B8A7034B90CF914798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760676   (899531) от 26.02.2014
+
+Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert - Daniel Barenboim & Wiener Philharmoniker (2014) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.Eduard Strauss; Helenen Quadrillen; op.14
+Josef Strauss; Friedenspalmen; Walzer op.207
+Johann Strauss Vater; Carolinen Galopp; op.21a
+Johann Strauss Jun; Ägyptischer Marsch; op.335(   Читать дальше...   )Жанр: Классика, концерт Большого Симфонического оркестраПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80994B22D9AA91FB1EAB6B26A9A7F211731C6668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100457   (899368) от 04.02.2017
+
+Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт немецкой трэш-метал-группы KREATOR на фестивале в Вакене в 2014 году из Mailorder-издания четырнадцатого студийного альбома «Gods Of Violence»01. Mars Mantra (1:20)
+02. Phantom Antichrist (4:38)
+03. From Flood Into Fire (6:33)
+04. Warcurse (6:27)(   Читать дальше...   )Производство: Германия, Nuclear BlastЖанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFA3133977152810D9979600020C771F07B2F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183069   (898605) от 14.03.2010
+
+Супердискотека 90-х от MTV (2009) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898605.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 ноября 2009 в СКК снова гудела на легендарном ретромегадэнсе Радио Рекорд – Супердискотэка! На трех гигантских этажах арены мы окунемся в атмосферу юности и детства. Более 20 интерактивных зон дадут возможность поиграть во вкладыши и резиночку, «продуть2 в наперстки, в видеосалоне «позырить» боевики со Шварцем и Брюсом Ли, поставить челку или сделать полубокс (   Читать дальше...   )01.Р.Рябцев - Странные танцы.
+02.Кай Метов - Position №2.
+03.Вирус - Ты меня не ищи.
+04.Руки В Верх - Крошка моя.(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:29:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637430   (898470) от 01.04.2013
+
+Les Enfoires - Attention Au Depart (2013) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1F9F941406444605DD20AE4B8EFABA25E4D152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637496   (898347) от 01.04.2013
 
 Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
@@ -6,7 +203,7 @@ Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898347.jpg" />
 </div>
 
 
@@ -32,7 +229,7 @@ Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897988.jpg" />
 </div>
 
 
@@ -50,36 +247,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 632614   (897849) от 01.04.2013
-
-Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись прямой трансляций с UMFTV самого масштабного фестиваля электронной музыки, проходящего ежегодно в Майами.Участвуют:
-Afrojack
-Nicky Romero
-Madeon
-Chuckie(   Читать дальше...   )Жанр: Концерт, Electronic dance musicПродолжительность: 41:02:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992942   (897260) от 04.03.2016
 
 Квартирник у Маргулиса - Манго Манго (2016) DVBRip
@@ -88,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897260.jpg" />
 </div>
 
 
@@ -114,7 +281,7 @@ Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896861.jpg" />
 </div>
 
 
@@ -140,7 +307,7 @@ Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896789.jpg" />
 </div>
 
 
@@ -166,7 +333,7 @@ Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896755.jpg" />
 </div>
 
 
@@ -193,7 +360,7 @@ Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896555.jpg" />
 </div>
 
 
@@ -222,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896543.jpg" />
 </div>
 
 
@@ -248,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896146.jpg" />
 </div>
 
 
@@ -274,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895581.jpg" />
 </div>
 
 
@@ -300,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895228.jpg" />
 </div>
 
 
@@ -329,7 +496,7 @@ Depeche mode - Devotional. Live In Barcelona (1993) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895168.jpg" />
 </div>
 
 
@@ -358,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895124.jpg" />
 </div>
 
 
@@ -387,7 +554,7 @@ Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894922.jpg" />
 </div>
 
 
@@ -413,7 +580,7 @@ Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894075.jpg" />
 </div>
 
 
@@ -439,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893489.jpg" />
 </div>
 
 
@@ -466,7 +633,7 @@ Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893417.jpg" />
 </div>
 
 
@@ -493,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893328.jpg" />
 </div>
 
 
@@ -522,7 +689,7 @@ VA - Весенний марафон № 226: Хиты до Утра (2016) WEBR
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893177.jpg" />
 </div>
 
 
@@ -536,175 +703,6 @@ VA - Весенний марафон № 226: Хиты до Утра (2016) WEBR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C1CB2952041FC9EF3E0E4237C3D1843D363E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102003   (892181) от 08.02.2017
-
-Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа Accept выпустила свой новый концертный альбом "Restless And Live" 13 января на лейбле Nuclear Blast. Релиз включает полное выступление команды на фестивале "Bang Your Head!!!", состоявшееся в 2015 году в Германии.1. Stampede
-2. Stalingrad
-3. London Leatherboys
-4. Restless and Wild(   Читать дальше...   )Производство: Германия, Nuclear BlastЖанр: Rock, Heavy MetalПеревод: ОтсутствуетПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5797DB9F4BA2F610A465B244AD601CB9EFD9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638908   (892066) от 04.04.2013
-
-Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Born To Die (2011), 00:04:46
-2. Video Games (2011), 00:04:45
-3. Blue Jeans (2012), 00:04:20
-4. Ride (2012), 00:10:08
-5. National Anthem (2012), 00:07:48
-6. Summertime Sadness (2012), 00:04:39
-7. Blue Velvet (2012), 00:02:13Жанр: Indie Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8BDF7D4636A6E25A90617CA45E0402F4BAD9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493903   (891997) от 05.09.2021
-
-Квартирник НТВ у Маргулиса. 40 лет Ленинградскому рок-клубу (04.09.2021) HDTVRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный 7 марта 1981 года, Ленинградский рок-клуб был первым и главным в СССР местом, где власти официально позволяли молодежи исполнять «идеологически чуждую» рок-музыку. Спустя 40 лет на исторической сцене рок-клуба в компании Евгения Маргулиса свои первые песни и то, как в этих стенах зарождалась история, вспомнили: Борис Гребенщиков и «Аквариум», Константин (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F589E50543517F55BA8733B5641E2978F94CDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371307   (891528) от 30.03.2020
-
-Сборник клипов - Music 80s от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Music 80s 2 — Intro
-01. Tina Turner — Simply The Best
-02. Sandra — Maria Magdalena
-03. Ray Parker JNR — Ghostbusters(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D8B79DC1A88EA8F8F4F43A7FC76A3005556907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371285   (890090) от 31.03.2020
-
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) (Chodezilla Records) COVID-19 2020
-CDA Vermicide Violence - The Praxis of ProphylaxisПроизводство: Chodezilla RecordsЖанр: Death CoreПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A71A28FAE2320E8A8251047F4126F2F5AF317D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371231   (889948) от 31.03.2020
-
-Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) (2020) WEBRip [H.264/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889948.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) [2160p]Жанр: Альтернативный РокПродолжительность: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786DBAB82AE68873EDA60CF87772AF2BC50C5A02
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1366893   (919940) от 13.03.2020
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2020.03.13) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919940.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387E993CB4094150E96D1E7637A703F9F58A6B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366875   (919932) от 13.03.2020
+
+Однажды в России (12.03.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A00685E2646C9359BB711A7A0E168BD411675B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367244   (918651) от 14.03.2020
+
+Женский Stand Up (14.03.2020) WEB-DL [H.264/1080p-LQ] (выпуск 9)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553C3CBFE9A09839315DCAA6E4BFC5D41602225B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988882   (918395) от 21.02.2016
+
+Уральские пельмени. Медкомиссия невыполнима  (2016.02.20) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье. У юмора «Уральских пельменей» нет возрастных ограничений, они избегают «шуток ниже пояса» и на их концертах пятилетние дети смеются рядом с 50-ти летними взрослыми. Новое комедийное шоу включает в себя как самостоятельные сценические истории, так и импровизации с (   Читать дальше...   )Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C151C7795133C2064ECF49124E7824DA7FDBB11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367511   (915105) от 16.03.2020
+
+Stand Up (15.03.2020) WEB-DLRip (сезон 7, выпуск 16)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр Шаляпин и др.Субтитры: ОтсутствуютПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4C602D31D66BC3EAB5CA2C48DAEDF90D82D0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097754   (911961) от 28.01.2017
 
 Открытый микрофон (2017.01.27) WEB-DL [H.264/720p-LQ] (выпуск 1)
@@ -6,7 +136,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911961.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910239.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909508.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908639.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906964.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905232.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904804.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Stand Up (22.03.2020) WEB-DL [H.264/1080p-LQ] (сезон 7, выпуск 17)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904787.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901104.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898169.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896437.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895699.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894925.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893526.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893209.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892168.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891814.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Stand Up (29.03.2020) WEB-DLRip (сезон 7, выпуск 18)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889839.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887692.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887333.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884875.jpg" />
 </div>
 
 
@@ -537,139 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD4CD468B2C84CE6E94D275B4AEADCCA7E08F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372964   (883356) от 04.04.2020
-
-Женский Stand Up (04.04.2020) WEB-DL [H.264/1080p-LQ] (выпуск 12)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FFBFECC4DDFD9B33CEB1031FF4FAC8EE7F5CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495125   (882233) от 11.09.2021
-
-Уральские пельмени. Гидом буду! (2021.09.10) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ты отдыхаешь на море, этот отдых очень быстро заканчивается. А если ты отдыхаешь с тещей, то это очень сильно угнетает. А если отдыхать на природе, то сильно расслабляешься. Отдыхайте всегда с Уральскими пельменями, это всегда развлекает.Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0269AB4B9416B9E21B79081ED5C08AE4C8E374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495218   (881945) от 11.09.2021
-
-Уральские пельмени. Гидом буду! (10.09.2021) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ты отдыхаешь на море, этот отдых очень быстро заканчивается. А если ты отдыхаешь с тещей, то это очень сильно угнетает. А если отдыхать на природе, то сильно расслабляешься. Отдыхайте всегда с Уральскими пельменями, это всегда развлекает.Телекомпания: СТСЖанр: ЮморПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670E81915E5EB9398421EECC3784D239642535FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495386   (880463) от 12.09.2021
-
-КВН-2021. Высшая лига. Кубок чемпионов (11.09.2021) HDTV [H.264/1080i]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880463.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 сентября в Первый канал показал Кубок чемпионов КВН, сыгранный в Крыму 24 августа.
-Участие в игре принимают команды: «Русская дорога», «ИП Бондарев», Сборная «Татнефти», Сборная Снежногорска. На "разогреве" команда «Полуостров»
-В жюри: Константин Эрнст, Вадим Галыгин, Валдис Пельш, Пелагея, Никита Нагорный, Сергей Першин и Сангаджи Тарбаев.Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ТелетекстПродолжительность: 01:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3ADAC12F135344A8D3A2A11272EE0CA2E69EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495380   (880458) от 12.09.2021
-
-КВН-2021. Высшая лига. Летний кубок чемпионов  (11.09.2021) WEBRip [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_880458.jpg" />
-</div>
-
-
-###  Подробнее
-
-В летнем амфитеатре «Mriya Resort & SPA» в Крыму сошлись золотые медалисты прошлого сезона — команды КВН «Русская дорога» и Сборная «Татнефти» с помощниками в лице «ИП Бондарев» и Сборной Снежногорска.
-В жюри: Константин Эрнст, Пелагея, Валдис Пельш, Вадим Галыгин, Сангаджи Тарбаев, Сергей Першин (Руководитель Арт-кластера «Таврида») и Никита Нагорный (гимнаст, (   Читать дальше...   )Телекомпания: "Первый канал"Жанр: ЮморПродолжительность: 01:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F499657D1E73CB270C65593DD08BAD2250F2C866
 ```
 
 https://mybot314.ru/tekegram_catalog/

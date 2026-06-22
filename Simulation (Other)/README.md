@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1876497   (1073530) от 
+
+Squirrel with a Gun (2024) [Multi] (0.4/dlc) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белка, вот тебе пистолет. Ты - самый несносный грызун на районе, и в погоне золотыми желудями ты пойдешь на преступление. В этом шутере-«песочнице» и платформере с головоломками тебе предстоит сражаться зубами, когтями и пулями, чтобы сбежать с секретного подземного объекта и победить Агентов. Узнай, на что способна шальная белка с пистолетом в лапах (достаточно (   Читать дальше...   )Тип издания: LicenseРазработчик: Dee Dee Creations LLCЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C87AE5B06C6EA70D7D364CE9BCF55B2579D0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876668   (1073418) от 16.06.2026
+
+LoveR Kiss Endless Memories (2025) [Multi] (1.7) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073418.jpg" />
+</div>
+
+
+###  Подробнее
+
+LoveR Kiss: Endless Memories - романтический симулятор с элементами визуального романа, посвящённый юности, любви и фотографии. Игрок берёт на себя роль участника школьного фотоклуба, который не только совершенствует навыки съёмки, но и выстраивает отношения с семью уникальными героинями. Действие разворачивается в атмосфере школьных будней: от повседневных диалогов (   Читать дальше...   )Тип издания: LicenseРазработчик: Dragami GamesЖанр: Симуляторы, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F875040E881E6FB34A3E30229DD6FBAF27E825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876310   (1073145) от 
+
+Cities: Skylines II (2) (2023) [Ru/Multi] (1.5.9f1/dlc) Repack HardwareMining [Ultimate Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cities: Skylines II - это живая экономическая система, позволяющая создать целый мир. Просто начните строить свой город. Прокладывайте дороги и разрабатывайте инфраструктуру, обеспечивающую повседневную жизнь. Все зависит только от вас. Жизнь города в ваших руках, так что планируйте все наперед. У каждого решения есть последствия. Сможете подтолкнуть промышленность (   Читать дальше...   )Тип издания: RepackРазработчик: Colossal Order Ltd.Жанр: СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299F9B5AFB756AAAC19062EF596432CB0422D0F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874627   (1072009) от 
 
 MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.387/dlc) Repack seleZen [Succession Wars Edition]
@@ -7,7 +85,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.387/dlc) Repack seleZen [Succ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072009.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.6.19/dlc) Repack Other s [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071535.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Shooting Range Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071517.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.387/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071369.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.1 (1)) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071248.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.2.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071149.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Nature & Life: Drunk On Nectar (2016) [En] (1.0.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070630.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.12.0.0/dlc) Repack SE7EN
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070501.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Restore Your Island (2026) [Ru/Multi] (Build 22753376) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069182.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Modulus Factory Automation (2026) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067183.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Precinct (2025) [Ru/Multi] (1.11.22854) Repack Other s [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065384.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (4.0.0c) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064427.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Easy Delivery Co. (2025) [Ru/Multi] (1.12c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063893.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Tiny Isle (2026) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061734.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.16.134/dlc) Repack HardwareMining [Dig
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061675.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Streamer Life Simulator 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061165.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Seclusa (2026) [Ru/Multi] (1.0.4i) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061139.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Underground Garage (2024) [Multi] (157_UG) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061105.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Hellmart (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061002.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Rent A Car Simulator 24 (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060980.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (20260226/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060798.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Legitimate Space Corp Simulator LLC (2026) [Ru/Multi] (1.02.87) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060663.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Sandwich Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060659.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Sandwich Simulator предлагает веселую, динамичную с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB5F5C5BAB077B4CD8B3AC3B40AB21BE23AD389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858497   (1060435) от 11.03.2026
-
-Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что значит быть привязанным к другому человеку? Это любовь, эмоциональная связь, стремление быть рядом? Но что, если эти чувства искажены, что если привязанность становится формой насилия? Callus - это короткий психологический хоррор в жанре «симулятор ходьбы». Вернувшись в квартиру своей матери, на мгновение он окунулся в прошлое. Каждый уголок этой квартиры напоминал (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Инди, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FE64F08A72B3416F60D3282A078F050BFBE43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858336   (1060288) от 10.03.2026
-
-Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack seleZen
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что значит быть привязанным к другому человеку? Это любовь, эмоциональная связь, стремление быть рядом? Но что, если эти чувства искажены, что если привязанность становится формой насилия? Callus - это короткий психологический хоррор в жанре «симулятор ходьбы». Вернувшись в квартиру своей матери, на мгновение он окунулся в прошлое. Каждый уголок этой квартиры напоминал (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Инди, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D149B72D0E348538F20258260D8F370A4A856B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858171   (1060138) от 09.03.2026
-
-WW2 Rebuilder (2023) [Ru/Multi] (Build 21440516/dlc) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060138.jpg" />
-</div>
-
-
-###  Подробнее
-
-WW2 Rebuilder - симулятор от первого лица, дающий оценить разрушительные масштабы Второй мировой войны. Предстоит взять на себя роль того, кто пытается привести европейский город в порядок после того, как боевые действия закончились. Улицы находятся в руинах. Даже сложно сказать, что когда-то здесь царила красота и величие.Тип издания: RepackРазработчик: Madnetic GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB5F6CF93C874E9C964958A0959AC47A0D30766
 ```
 
 https://mybot314.ru/tekegram_catalog/

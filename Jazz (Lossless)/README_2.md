@@ -6,7 +6,7 @@ Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045873.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rex Stewart - 1947 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045773.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beegie Adair - By Request (2017) Green Hill Productions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045769.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Red Norvo - 1944 - 1945 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045765.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bobby Watson - Made In America (2017) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045759.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Karin Krog - Jubilee: The Best Of 30 Years (1964 - 1991) 2CD, 1995, Verve Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045691.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Classics in Jazz: Sax Stylists (1945 - 1949) 2014, Capitol Records [WavPack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045689.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hank Jones & Frank Wess - Hank And Frank (2003) 2006, Lineage [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045606.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hank Jones, Milt Hinton, Bob Rosengarden - The Trio (1977) 2003, Chiaroscuro Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045604.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Scott Hamilton & Karin Krog - The Best Things In Life (2015) Stunt Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045599.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045584.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tri-Fi - Postcards (2007) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045522.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Charles Mingus Group - Debuts Rarities, Vol. 3 (1957) 1993, Universal [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045521.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Karin Krog - Where You At? (2003) Enja Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045402.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Carmen Cavallaro - Dancing In The Dark (1961) 1988, Decca [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045366.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sarah Menescal - Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045301.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Don Ellis - Live In India (1978) 2010, Sleepy Night Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045232.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wild Bill Davison - Quadromania (1943 - 1952) 4CD, 2005, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045195.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Paul Bernewitz - Someday (2022) Unit Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045103.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045092.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Junior Mance - The Complete Albums Collection (1959 - 1962) 4CD, 2017, Enlighten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045089.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kim Waters - That Special Touch (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045088.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Stanley Turrentine - That's Where It's At (1962) 2021, Audio Wave [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044993.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Paul Chambers - The Complete Albums Collection (1956 - 1960) 4CD, 2016, Enlighte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044990.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044987.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlighten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044877.jpg" />
 </div>
 
 

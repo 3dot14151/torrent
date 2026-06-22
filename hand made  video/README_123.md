@@ -1,3 +1,29 @@
+###  Публикация: 1726464   (55114) от 28.05.2024
+
+Проект А / «A» gai waak / Project A (1983) BDRip [H.264/1080p-LQ] [MVO] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гонконг начала XX века. На китайском море свирепствуют пираты под предводительством зловещего босса Ло. Все надежды правительство возлагает на план борьбы с пиратами под кодовым названием «Проект А». Но Ло всегда на шаг опережает власти, подрывает их корабли, и проект оказывается под угрозой срыва. Его выполнение берут на себя борец береговой охраны по кличке Дракон (   Читать дальше...   )Производство: Гонконг / Golden Way Films Ltd., Paragon Films Ltd.Жанр: боевик, комедияРежиссер: Джеки Чан, Саммо ХунАктеры: Джеки Чан, Саммо Хун, Юэнь Бяо, Дик Вэй, Марс, Винни Вонг, Тай Бо, Нг Лонг Чунг, Ли Хой-Сан, Кван Хой-СанПеревод: Профессиональный многоголосый (Первый канал)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD57751D4A8B9E9933FE209BA2DBDE57C17F02D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726449   (55083) от 28.05.2024
 
 Пограничная тишина (1965) SATRip [H.264/1080p] [Handmade Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55083.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55049.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55038.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55019.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55017.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55012.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55008.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55006.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55005.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55001.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55000.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54996.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54948.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54943.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54933.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54927.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54918.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54915.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54911.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54906.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ SuperПерцы / Superbad (2007) BDRip [Расширенная версия / E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54900.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54858.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54821.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54819.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54816.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B9104259CAC63D92F1E9A740AB052E20700CAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727061   (54801) от 31.05.2024
-
-Такси 3 / Taxi 3 (2003) WEB-DLRip [H.265/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества банда Санта-Клаусов совершает ограбления банков в Марселе. Ловить преступников предстоит таксисту Даниелю и полицейскому Эмильену. Но те вытворяют такое, что вреда от них может быть больше, чем от самих грабителей.Производство: Франция / Apipoulaï, ARP Sélection, Canal+, Europa Corp., TF1 Films ProductionЖанр: боевик, комедия, криминалРежиссер: Жерар КравчикАктеры: Сами Насери, Фредерик Дифенталь, Бернар Фарси, Бай Лин, Эмма Виклунд, Марион Котийяр, Эдуард Монтут, Жан-Кристоф Буве, Леон-Пьер Мондини, Бернард ЛьописПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, ФранцузскийСубтитры: русские, французскиеПродолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC825897AD010474C21020365EF4E5CD57F752AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

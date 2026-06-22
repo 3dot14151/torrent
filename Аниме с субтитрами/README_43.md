@@ -1,3 +1,29 @@
+###  Публикация: 1373415   (768858) от 28.06.2020
+
+Listeners | Слушатели [2020, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768858.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Великая симфония юности» разворачивается в мире, где нет такого понятия, как «музыка». Юноша встречает Мю, загадочную девушку с пустующим аудиовходом на теле. И когда она подключается к усилителю, начинает происходить нечто, способное изменить мир.Производство: Студия MAPPAЖанр: приключенияРежиссер: Андо ХироакиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACF1B1B717DB3AD515352E39A28C2F4A9363D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393233   (768429) от 29.06.2020
 
 Sequence | Секвенция [1992, OVA, 1 эп.] DVDRip 480p 10bit raw
@@ -6,7 +32,7 @@ Sequence | Секвенция [1992, OVA, 1 эп.] DVDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768429.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768423.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Nanbaka / The numbers / Номера [2016, TV, 25] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768396.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Oedo wa Nemurenai! | Эдо никогда не спит [1993, OVA, 1 эп.] VH
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768373.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Singles | Незамужние девушки [1993, OVA, 1 эп.] VHSRip 480p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768363.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768284.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Kitsutsuki Tanteidokoro | Woodpecker Detective's Office | Детективное
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767466.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766845.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Endride / Эндрайд [2016, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766700.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Dual! Parallel Runrun Monogatari / Опасные приключения в па
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766236.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ New Game! | Новая Игра! [2016, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766167.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Urara Meirochou / Предсказательница из Мейрочо [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766076.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766016.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765838.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765352.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Nana Maru San Batsu | Nanamaru Sanbatsu | Fastest Finger First | Семь - ве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764419.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Luck and Logic + Watashitachi, Luck Logic Bu! | Удача и логика [2016
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764240.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Deep Insanity: The Lost Child | Глубинное безумие: Потеря�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763119.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya: Sekka no Chikai | Судьба: Де�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762997.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Fate/kaleid liner Prisma Illya 3rei!! | Fate/Kaleid Liner Prisma Illya Drei!! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762872.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ Inuyasha: Tenka Hadou no Ken | Inuyasha the Movie: Swords of an Honorable Ruler 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760386.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Inuyasha: Kagami no Naka no Mugenjou | Inuyasha the Movie: The Castle Beyond the
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760384.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Kyattou Ninden Teyandee | Cat Ninden Teyandee | Samurai Pizza Cats | Коты-с
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760265.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Inuyasha | Инуяся [2000, TV, 167 из 167] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760250.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760065.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8D4933845074F45D0DEEE863D402C44CD36904D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521961   (760063) от 06.01.2022
-
-Beastars 2nd Season | Выдающиеся звери [ТВ-2] [2021, TV, 12 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убийство ученика-альпаки, произошедшее на территории академии «Черритон», привело к небывалому росту напряженности между травоядными и хищниками, поэтому необходимо срочно предпринять меры для сохранения мира и гармонии в школе. Предполагается, что с этой задачей справится «выдающийся зверь» — ученик, заслуживший этот особый титул за вклад, внесённый в дело объединения (   Читать дальше...   )Производство: студия Orange / オレンジЖанр: Драма, Повседневность, Психологическое, Сёнэн, ШколаРежиссер: Мацуми СинъитиПеревод: laciЯзык озвучки: ЯпонскийСубтитры: Русские (int + ext), Китайские (ext)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D68FD34C08EA63EAD7512CE071B83D77199EE65
 ```
 
 https://mybot314.ru/tekegram_catalog/

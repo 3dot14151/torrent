@@ -1,3 +1,30 @@
+###  Публикация: 1790617   (21887) от 10.04.2025
+
+Энеида / Енеїда (1991) DVDRip [H.265/2160p] [hand made Upscale AI] [UKR / RU sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21887.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименной поэмы И. П. Котляревского «Энеида».
+После падения Трои Эней собирает товарищей и отправляется в морской поход. Юнона, которая не любит Энея за то, что тот является сыном Венеры, спешит к богу ветров Эолу и просит его уничтожить Энея и всю его дружину...Производство: Украина, УкранімафільмЖанр: рисованная анимация, приключения, комедияРежиссер: Владимир ДахноАктеры: Андрей ПодубинскийПеревод: субтитрамиЯзык озвучки: украинскийСубтитры: русские (в переводе Бражнина И.Я. 1953; в переводе Потаповой В.А, 1961)Продолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8489E36D774DD9B8E74366B37C1856CC69C673AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791017   (21657) от 12.04.2025
 
 Большие гонки / Pinchcliffe Grand Prix (1975) BDRemux [H.264/1080p]
@@ -6,7 +33,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21657.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19512.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19506.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19445.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17159.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16959.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16211.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13511.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13463.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ D: Охотник на вампиров / Kyuuketsuki Hunter D / Vampire Hunter 
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13290.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ D: Жажда крови / Banpaia Hunter D: Buraddorasuto / Vampire Hunter D: B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13288.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12492.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12476.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12331.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11556.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11528.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11525.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9260.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7077.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2472.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_545.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_258.jpg" />
 </div>
 
 

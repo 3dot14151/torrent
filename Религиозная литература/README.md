@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070401.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070400.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070399.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069644.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069553.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067510.jpg" />
 </div>
 
 
@@ -159,6 +159,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866914   (1066460) от 22.04.2026
+
+Джорджо Агамбен | Высочайшая бедность. Монашеские правила и форма жизни (2020) [PDF, FB2, DJVU, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое правило, если оно как будто без остатка сливается с жизнью? И чем является человеческая жизнь, если в каждом ее жесте, в каждом слове, в каждом молчании она не может быть отличенной от правила?
+Именно на эти вопросы новая книга Агамбена стремится дать ответ с помощью увлеченного перепрочтения того захватывающего и бездонного феномена, который представляет (   Читать дальше...   )Жанр: Монашеская историографияПеревод: С.ЕрмаковИздательство: СПбГУ: Институт экономической политикиФормат: PDF, FB2, DJVU, EPUB, MOBIКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10305E91204E59709E3D164FAC6DBFA3FD2861C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865103   (1065190) от 15.04.2026
 
 Вагнер Н.П. | Евангельский свет. Истории об Иисусе Христе для детей (2017) [PDF, FB2]
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065190.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065154.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064573.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064315.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064314.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063870.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062953.jpg" />
 </div>
 
 
@@ -345,6 +372,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861615   (1062772) от 27.03.2026
+
+СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1062772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857978   (1060191) от 08.03.2026
 
 Святитель Григорий Двоеслов | Диалоги о жизни италийских отцов и о бессмертии души. В четырех книгах (2025) [PDF]
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060191.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051488.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051147.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051146.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051144.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051125.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051121.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051034.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051022.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051021.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051020.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BCC1BD82CCD03C23ACB6C59D1F4CD10EF07622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846026   (1051019) от 04.01.2026
-
-Сибирская Благозвонница | Святой Иоанн (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русских людей за пределами России раньше часто звали «иванами». В языке русском, в фольклоре и сегодня не забыты Иванушка-дурачок, Иван-царевич, братец Иванушка, а вместе с ними и ванька-встанька. Отличает их всех, если верить народному творчеству, помимо индивидуальных качеств общая им удивительная открытость, щедрость, даже жертвенность. Народ и по сей день относится (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2BE9B6505FB157455C7FED83160457EED5686C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846027   (1051018) от 04.01.2026
-
-Сибирская Благозвонница | Святой Олег (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олег – скандинавское имя, в переводе означающее «святой». В Церкви слово «святой» имеет два значения: первое из них – «освященный»: в этом смысле святыми называли всех христиан, принявших благодать Крещения, второе – «праведный»: это человек непорочной жизни, обладающий Божественной благодатью. Книга «Святой Олег» рассказывает об угодниках Божиих с именем Олег, о (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A537577B762D8F59064FC432A26482EF934379
 ```
 
 https://mybot314.ru/tekegram_catalog/

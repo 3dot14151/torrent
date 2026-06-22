@@ -1,3 +1,211 @@
+###  Публикация: 479494   (86899) от 07.04.2012
+
+Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Rap, Hip-hopПродолжительность: 00:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479058   (86807) от 06.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 05 Пиратская Вечеринка 4.35Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46CC9EC22787ECB5ABD9764FC77CF714022A1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478632   (86507) от 05.04.2012
+
+Deepside Deejays, Jus Jack, Dada & Sandy Rivera - Lollipop (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_86507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA85C8410D7E8609FA6298BC4C6CB5536261C638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478098   (86322) от 04.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 04 Пиратская Вечеринка 4.36Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477653   (86121) от 03.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 03 Пиратская Вечеринка 4.28Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477147   (85945) от 02.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 02 Пиратская Вечеринка 4.25Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477199   (85890) от 02.04.2012
+
+Никита - Прости (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_85890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251B090A077C905DBAE2C9DCB85B3B530F7E0FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476396   (85752) от 01.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 01 Пиратская Вечеринка 4.35Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476015   (85555) от 31.03.2012
 
 Видеоклипы «t.A.T.u.» - All The Things She Said. Пиратская Вечеринка HD x264 1080p
@@ -6,7 +214,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85555.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84945.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84939.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ Marilyn Manson & Rammstein - The Beautiful People (2012) [H.264/720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_83928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_83928.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83696.jpg" />
 </div>
 
 
@@ -137,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83066.jpg" />
 </div>
 
 
@@ -164,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82932.jpg" />
 </div>
 
 
@@ -192,7 +400,7 @@ UK Top 40 Music Video Hits Febuary 2012 (DVD5)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82706.jpg" />
 </div>
 
 
@@ -221,7 +429,7 @@ DJ Chris Parker - Space (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_82466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_82466.jpg" />
 </div>
 
 
@@ -247,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82271.jpg" />
 </div>
 
 
@@ -273,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81908.jpg" />
 </div>
 
 
@@ -299,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81897.jpg" />
 </div>
 
 
@@ -325,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81846.jpg" />
 </div>
 
 
@@ -351,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81791.jpg" />
 </div>
 
 
@@ -377,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81068.jpg" />
 </div>
 
 
@@ -403,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80619.jpg" />
 </div>
 
 
@@ -429,7 +637,7 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79575.jpg" />
 </div>
 
 
@@ -455,7 +663,7 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78735.jpg" />
 </div>
 
 
@@ -466,223 +674,6 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458167   (78394) от 25.02.2012
-
-NikitA - Машина (2009) HDRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455499   (78191) от 24.02.2012
-
-VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Narcotic Sound and Christian D - Danca Bonito
-02 Blank And Jones feat Bobo - Perfect Silence
-03 NikitA - Bite
-04 David Deejay - Perfect 2
-05 Dj.Sava feat Andreea D and Yolo - Money Maker
-06 Klaas and Bodybangers - Freak
-07 Dev - In The Dark
-08 Outwork feat Mr. Gee - Elektro
-09 Dj.Flower - Jamaican Love
-10 Heaven feat Glance - Sexy Girl(   Читать дальше...   )Жанр: VariousПродолжительность: ~01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448157   (77057) от 19.02.2012
-
-Виниловое видео (2011-2012) IPTVRip [Обновляемая]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыкальная, развлекательная передачаРежиссер: Светлана ЛялькинаПродолжительность: Выпуск: ~ 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87788B345D2D8219EFFC60EFBE5C7865704E50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453487   (76803) от 17.02.2012
-
-Катя Самбука - Зашли мне лям (Uncensored) (2010) WEBRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_76803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCE8941741446526C6C17A383B3D50B9E36F4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454124   (76719) от 17.02.2012
-
-Виа Гра - Алло, Мам (2012)[H.264/720p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172E5D81BAF0F8391E3789E78AA6AB32663063BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453485   (76578) от 16.02.2012
-
-Катя Самбука - Сказка (Uncensored) (2010) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453481   (76550) от 16.02.2012
-
-Катя Самбука ft. DJ Grin - Райский Гимн (Uncensored) (2011)[H.264/720p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45833E50BAC1DF50723F0D208EFC9670B5C2A2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452624   (76301) от 15.02.2012
-
-Михаил Круг: Песни и интервью / Михаил Круг: Песни и интервью (2004) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, ДокументальныйРежиссер: Михаил КругАктеры: Михаил КругПеревод: ОтсутствуетПродолжительность: 02:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB52CFBBC118CECD0F2DC0461E46CC3050C7E7F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

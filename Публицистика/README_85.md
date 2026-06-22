@@ -1,3 +1,189 @@
+###  Публикация: 1798476   (17436) от 22.05.2025
+
+Михаил Делягин | Цивилизация людоедов. Британские истоки Гитлера и Чубайса (2024) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17436.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XX и XXI веке российское руководство не раз проявляло беспомощность перед любой агрессией, исходящей из Лондона – патологическое англофильство советской элиты, вложившей когда-то золото СССР в создание «невидимой Британской империи» офшорного банкинга, в современной отечественной бюрократии ещё не изжито…
+Надгосударственный постинформационный мир капитализма социальных (   Читать дальше...   )Жанр: Социология, ИсторияИздательство: Книжный мирФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3752434AED999F2A3F0382324459EDEA32687791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798500   (17416) от 22.05.2025
+
+Жак Эллюль | Феномен пропаганды (2023) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Жака Сезара Эмиля Эллюля, философа, богослова, историка и социолога в одном лице, посвящена пропаганде. Он проанализировал связанные с пропагандой процессы современного общества и доказал, что оно без пропаганды уже недееспособно, подробно описал, как пропаганда влияет на структуру общественного мнения и какое влияние оказывает на психику человека, объяснил, (   Читать дальше...   )Жанр: Общество, Психология, МанипуляцииИздательство: АлетейяФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D616AAE20931FBEE0E9C8E5AEFD563AD67C92299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799398   (16735) от 27.05.2025
+
+Жан-Клод Болонь | О женской стыдливости | История любовных побед от Античности до наших дней | История безбрачия и холостяков [3 книги] (2009, 2010, 2014) [PDF, FB2, DJVU, RTF, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан-Клод Болонь — филолог по образованию, историк, преподаватель средневековой иконографии, автор многочисленных книг, написанных на стыке филологии, социологии, философии и истории. В своей книге Болонь делает акцент на историю именно женской стыдливости от Античности до XXI века. Стыдливость понимается автором достаточно широко — это стремление скрыть то, что воспринимается (   Читать дальше...   )Жанр: монография, публицистикаПеревод: О. Смолицкая, Е. Смирнова; И. Васюченко, Г. ЗингерИздательство: Текст; Новое литературное обозрениеФормат: PDF, FB2, DJVU, RTF, EPUB, MOBIКачество: Изначально электронное (ebook), Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C324FF0B765241346407678ADA9D7C35E4793C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800284   (15828) от 02.06.2025
+
+Денис Окань | Шофер самолета (2023) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как не потеряться среди лежащих как попало «кирпичей» новых знаний?
+Какие из них выбрать, чтобы начать строить стену, которая уверенно оградит тебя от неприятностей, связанных с незнанием нужного?
+Чего вообще ждать от овеянной романтикой профессии «пилот гражданской авиации»?
+Если вы всерьез мечтаете стать пилотом – эта книга для вас!(   Читать дальше...   )Жанр: публицистика, образовательная литература, профориентацияИздательство: Издательские решения в системе RideroФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA9E64193117BCF60956DD0FD86D7EDC0C6D237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800762   (15481) от 06.06.2025
+
+Павел Хазанов | Станислав Говорухин | Россия, которую мы потеряли [2 книги] (1991, 2025) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Павла Хазанова «Россия, которую мы потеряли. Досоветское прошлое и антисоветский дискурс» – это попытка реконструировать генеалогию антисоветского дискурса о досоветской истории. Рассматривая, как, на протяжении многих лет и несмотря на конфронтацию друг с другом, такие фигуры, как Анна Ахматова, Григорий Померанц, Юрий Лотман, Натан Эйдельман и Булат Окуджава (   Читать дальше...   )Жанр: публицистика, политология, историяПеревод: Татьяна ПирусскаяИздательство: Ротация; Новое литературное обозрениеФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11A77BC9CC428EE6E9228ED92FABEB761A595D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800981   (15352) от 07.06.2025
+
+А. Светликов, М. Кухтарев | Страна, где живут неспокойно (1964) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Страна, где живут неспокойно» об Америке. Страница за страницей пройдут перед тобой люди. Одни станут твоими друзьями, другие — классовыми врагами. Ты перевернешь последнюю страницу, и множество вопросов встанет тотчас перед тобой.Жанр: История, политология, психология, социология, публицистика, журналистикаИздательство: Молодая гвардияФормат: DJVU, PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE42419684844ED1D91E9DDA731371149857B3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800980   (15342) от 07.06.2025
+
+Я. Киселев (ред.) | "Серебряная ложка" (1964) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о твоих ровесниках, живущих в мире капитала, о тех проблемах и трудностях, которые подстерегают их на каждом шагу, о том, что предоставляет им буржуазное общество — общество «равных возможностей», как утверждают его защитники. Пропагандисты западного образа жизни пытаются доказать, что в «свободном мире» каждый может найти свое место в жизни, обрести счастье. (   Читать дальше...   )Жанр: История, политология, психология, социология, публицистика, журналистикаИздательство: Молодая гвардияФормат: DJVU, PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1719AF83A2C5D2E9D597FAF3C706D0988479DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801248   (15180) от 09.06.2025
 
 Уильям Блум, Джеймс Петрас и др. | Убийство демократии. Операции ЦРУ и Пентагона в постсоветский период (2014) [FB2]
@@ -6,7 +192,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15180.jpg" />
 </div>
 
 
@@ -32,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14215.jpg" />
 </div>
 
 
@@ -58,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13729.jpg" />
 </div>
 
 
@@ -85,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12230.jpg" />
 </div>
 
 
@@ -111,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10802.jpg" />
 </div>
 
 
@@ -138,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10684.jpg" />
 </div>
 
 
@@ -164,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10645.jpg" />
 </div>
 
 
@@ -190,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10462.jpg" />
 </div>
 
 
@@ -218,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10390.jpg" />
 </div>
 
 
@@ -244,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9651.jpg" />
 </div>
 
 
@@ -270,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9332.jpg" />
 </div>
 
 
@@ -296,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9328.jpg" />
 </div>
 
 
@@ -322,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7719.jpg" />
 </div>
 
 
@@ -348,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7115.jpg" />
 </div>
 
 
@@ -376,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6328.jpg" />
 </div>
 
 
@@ -402,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6302.jpg" />
 </div>
 
 
@@ -429,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5875.jpg" />
 </div>
 
 
@@ -456,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4177.jpg" />
 </div>
 
 
@@ -482,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3628.jpg" />
 </div>
 
 
@@ -493,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F96DE3D61EACF63EF7470D092D6A81A1EDB60819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387631   (3372) от 11.09.2025
-
-Тьерри Мейсан | Преступления глубинного государства. От 11 сентября до Дональда Трампа (2017) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного французского журналиста и политолога Тьерри Мейсана посвящена исследованию феномена «арабской весны».
-Так называют цепочку «цветных революций», всколыхнувших арабский мир и приведших к смене ряда правительств. Будучи сторонником теории существования в США «глубинного государства», то есть скоординированной группы государственных служащих, влияющих (   Читать дальше...   )Жанр: Политология, Социология, ПублицистикаПеревод: Дмитрий СавосинИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C2CEB90F2B9354353BB1F04D690329B7610AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817413   (3330) от 11.09.2025
-
-Григорий Голосов | Власть в погонах. Военные режимы в современном мире (2025) [FB2, PDF, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3330.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2020–2023 годах в мире произошло столько же успешных военных переворотов, сколько за все предыдущее десятилетие. Надежды на глобальную демократизацию не оправдались. Ослабление международных институтов, внутриполитические кризисы, экономические трудности и недовольство населения создают почву для прихода к власти военных режимов. В своей книге доктор политических (   Читать дальше...   )Жанр: История, политология, экономикаИздательство: Альпина ПаблишерФормат: FB2, PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A141841F6923D303CE7CBFB22CAF071085A20E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817943   (2970) от 13.09.2025
-
-Валерий Подорога | Время после. Освенцим и ГУЛАГ: мыслить абсолютное зло (2017) [FB2, PDF, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что это значит – время после? Это время посткатастрофическое, т. е. время, которое останавливает все другие времена; и появляется то, что зовут иногда безвременьем. Время после мы связываем с двумя событиями, которые разбили европейскую историю XX века на фрагменты: это Освенцим и ГУЛАГ. Время после – следствие именно этих грандиозных европейских катастроф.Жанр: История, ФилософияИздательство: РИПОЛ классикФормат: FB2, PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F06424DB81E4CACEB68C9B069927FC384E3D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

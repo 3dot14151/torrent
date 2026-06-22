@@ -1,3 +1,61 @@
+###  Публикация: 1698423   (118475) от 09.02.2024
+
+VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118475.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Anton Lacosta/Novoland Music - Synergy
+2. SATOMIC/Melis Treat - SKIN
+3. Hrederik - Somebody That You Loved
+4. JeeGas - All Night(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CDC0460AE94E5BEA13E0C6541C50B511B9A63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698381   (118454) от 09.02.2024
+
+VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Me & My - Dub I Dub (MG Radio Remix)
+02.  Playahitty - 1-2-3 (Train With Me) (The Love Train Mix)
+03.  Real McCoy - Come And Get Your Love (Long Version)
+04.  Jam Tronic - Wish You Were Here (Maxi Version)(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABF2A74655A5AD832064124B37D9563563FB901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466436   (81727) от 12.03.2012
 
 Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
@@ -6,7 +64,7 @@ Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81727.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ VA - Spring Car Music Hits 2024 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59968.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ Leila K. - 2 Albums (1993, 1996) CD [MP3|320 Kbps] <Electronic, Euro-House, Hip 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52912.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ E-Rotic - Level Up (2024) [MP3|320 Kbps] <Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42101.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ E-Rotic - 12 Albums, 6 Compilations, 41 Singles (1994-2024) [MP3|320 Kbps] <Euro
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42059.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - 100% Discotecas (1997) 3CD [MP3|320 Kbps] <House, Trance, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26358.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - 100 EDM Hits (2013) [MP3|320 Kbps] <Electro House, Techno, Tech House, Elec
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13572.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Steve Aoki - HiROQUEST 3: Paragon (2025) [MP3|320 Kbps] <Electro House, Progress
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12116.jpg" />
 </div>
 
 

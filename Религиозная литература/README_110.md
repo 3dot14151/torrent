@@ -1,3 +1,111 @@
+###  Публикация: 1676148   (159027) от 12.11.2023
+
+Сибирская Благозвонница | Помоги, Господи, изжить мое сребролюбие (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страсть сребролюбия проявляется в алчности, стяжательстве, корыстолюбии, зависти, стремлении к роскоши, мздоимству. Но что в результате?..
+
+Святитель Иоанн Златоуст говорит: «Имение сребролюбца нередко разделяют между собой люди многие после кончины оного, а грехи, совершенные им из-за этого имения, он уносит с собой один и подвергается за них мучительному наказанию».Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF0457467F83E77E8C8FDC07A62E7072AFF2821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676154   (159025) от 12.11.2023
+
+Белый город | Жития святых, написанные святыми (2013) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание представляет собой сборник житий святых, составленных величайшими подвижниками Православной Церкви: свт. Игнатием (Брянчаниновым), свт. Афанасием Александрийским, прп. Ефремом Сириным, прп. Иоанном Дамаскиным и др. Таким образом, о святых пишут люди, которые сами прошли узким путем благочестия, путем исполнения заповедей Божиих и которые сейчас причислены (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE68C4778F318FE601E196FB84818E1E03AD6504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676150   (159020) от 12.11.2023
+
+Сибирская Благозвонница | Молитвослов православного воина (2023) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159020.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мемуарах об обороне Севастополя в минувшую войну не раз встречается упоминание о том, как наши моряки перед рукопашной атакой (которую так боялись немцы), прежде чем подняться на бруствере во весь рост, осеняли себя крестным знамением. Недаром говорится: «В окопах неверующих не бывает».
+
+Этот «Молитвослов православного воина» призван помочь солдатам и офицерам (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840C5F7D794121135108D877303505049452AD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676142   (159018) от 12.11.2023
+
+Благовест | Египетский цветник (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мудрые изречения египетских отцов справедливо называются перлами и бисером многоценным из духовной сокровищницы богоносных отцов. Так как эти изречения ведут начало из долговременного опыта и просвещения свыше, монахи, всю жизнь проведшие по заповедям Божиим, своими беспрерывными трудами, молитвой, постом достигли ангельского жития и созерцания. Отеческие повести (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423113B1015FCD87AE7AD12FB8CD74A943A4F5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967612   (158508) от 21.12.2015
 
 Н. Аширов | Эволюция ислама в СССР и задачи атеистического воспитания (1974) [DJVU]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158508.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158506.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158503.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158502.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158489.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158429.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157911.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157793.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157682.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157602.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157330.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156947.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156772.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156518.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155886.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155872.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155515.jpg" />
 </div>
 
 
@@ -460,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154916.jpg" />
 </div>
 
 
@@ -486,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154695.jpg" />
 </div>
 
 
@@ -513,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154644.jpg" />
 </div>
 
 
@@ -539,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154587.jpg" />
 </div>
 
 
@@ -565,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153415.jpg" />
 </div>
 
 
@@ -576,115 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E280A9C65BEAB5FD5537082C2A113DB7A5FCAAB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677207   (153396) от 16.11.2023
-
-Благовест | Учение Православной Церкви о страстях и борьбе с ними (2012) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа посвящена краткому изложению учения Православной Церкви о страстях и способах борьбы с ним. Каждое из этих средств в отдельности и все они в совокупности призваны помочь христианам в деле их духовного возрастания и приближения к Богу.
-
-Издание адресовано православным христианам, прежде всего, в части уяснения сущности, механизма развития и пагубности (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81B7C1B46D8B2B8444662AAE80BBB9E82B7F439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968521   (153372) от 24.12.2015
-
-Рене Жирар | Я вижу Сатану, падающего, как Молния (2015) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга выдающегося философа Рене Жирара - одна из лучших современных.
-антропологических апологий христианства - развивает проблематику.
-жертвоприношения, миметического насилия, понимаемого как акт, лежащий.
-в основе культуры и социума. Автор обращается к великим библейским.(   Читать дальше...   )Жанр: АпологетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7E6A379D225B691BEF393C08960EDB062939A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677213   (153354) от 16.11.2023
-
-Благовест | О святой воде (2013) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой брошюре доступным языком рассказывается о том, что такое святая вода, об истории и смысле освящения Церковью воды, о том, почему Церковь Православная молится о водных источниках и в каких сосудах совершается водосвятие, приводятся краткие рассказы о великом и малом освящениях воды, говорится об использовании святой воды и важности ее употребления для освящения (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF954D7FE2DE01F7DDCC27D8082BB46C7B429EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434136   (153109) от 23.12.2020
-
-А. А. Алексеев | Новый завет на греческом языке с подстрочным переводом на русский язык (2001) [PDF, DJVU] [4-е издание]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание «Новый Завет на греческом языке с подстрочным переводом на русский язык» — содержит полный пословный подстрочный перевод греческого текста Нового Завета. В качестве оригинала использован греческий текст 4-го издания Объединенных Библейских обществ. Параллельно в книгу включены соответствующие тексты в Синодальном переводе, помещаемые в левой части каждой (   Читать дальше...   )Жанр: ХристианствоФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CA28CAC5EDE70416A70B1A411E79934346A209
 ```
 
 https://mybot314.ru/tekegram_catalog/

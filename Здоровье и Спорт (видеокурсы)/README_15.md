@@ -1,3 +1,112 @@
+###  Публикация: 1801140   (15230) от 08.06.2025
+
+Школа шахмат Матвея Гальченко, Матвей Гальченко | Дебют Берда (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы давно играете в шахматы и устали от изучения теории и сюрпризов от соперника? А может быть, недавно пришли в игру и хотите сразу освоить убойное начало? Этот курс для вас: он поможет вам всегда удивлять соперника, получать комфортные позиции в дебюте и побеждать!Производство: Школа шахмат Матвея ГальченкоЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 05:25:25Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803311   (13786) от 22.06.2025
+
+Maxim School, Максим Куксов | Контргамбит Альбина за чёрных (против d4) (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Против хода d4 - не так много дебютов, где чёрные могут получить динамичную игру - без "засушивания" позиции и одним из них является контргамбит Альбина!
+Матовые атаки на фланге - ценой центральной пешки!
+Легкая фигурная игра - много "запасных" ходов
+Психология шахмат "дискомфорт позиции соперника"Производство: Maxim SchoolЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 04:58:06Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A8CB5E287A0156442EA3CFC0821253177A181B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803317   (13784) от 22.06.2025
+
+Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гамбит Хэллоуин - жертва коня на 4 ходу! Гамбит может получиться через разный порядок ходов, этим можно воспользоваться и избежать основных линий русской партии и защиты Алехина!Производство: Maxim SchoolЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: русскийПродолжительность: 04:26:11Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB6516C0A3FCF0D8044279E64B6A2068ED29184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803551   (13298) от 27.06.2025
+
+Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13298.jpg" />
+</div>
+
+
+###  Подробнее
+
+The best way to get better at chess is to build level by level, floor by floor. You have to master each level before you can move up to the next one.
+
+This course is the embodiment of that idea. Candidate Master Can Kabadayi has worked through thousands of amateur games to put this specialized training program together. A cognitive scientist by training, he has taken (   Читать дальше...   )Производство: ChessableЖанр: видеокурс, обучающий курс, спорт, шахматыЯзык озвучки: АнглийскийПродолжительность: 11:10:57Реклама: нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818119   (2781) от 14.09.2025
 
 Фёдор Смазнов | Большой курс по обмену углеводов (2025) WEB-DL [AD] [RU]
@@ -6,7 +115,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2781.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2103.jpg" />
 </div>
 
 
@@ -53,32 +162,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 450751   (1538) от 22.09.2025
-
-Телеканал ЖивиТВ | Дыхание йоги с Инной Видгоф (2011) DVDRip
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1538.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дыхание йоги» — новая программа Инны Видгоф на телеканале «ЖИВИ!», которая на практике доказывает, что дыхание — это обыкновенное чудо, способное укрепить и тело, и сознание, и дух. Йога, пожалуй, самая древняя традиция работы с дыханием. Согласно йоге, мы вдыхаем прану — энергию, которая и дает жизнь. Пранаяма — это философия дыхания, которая учит чувствовать жизненную (   Читать дальше...   )Производство: Телеканал ЖивиТВЖанр: Дыхательные техники йоги. Обучающий фильмЯзык: РусскийПродолжительность: 07:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637E6512356AF139778D2EDA95C975C2818C310F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820211   (620) от 27.09.2025
 
 Школа шахмат ChessMaster, Максим Омариев | Как научиться играть в шахматы с нуля за 21 день (2017) WEB-DL [RU]
@@ -87,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_620.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_616.jpg" />
 </div>
 
 
@@ -139,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_609.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_598.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_567.jpg" />
 </div>
 
 

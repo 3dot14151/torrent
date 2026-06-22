@@ -1,3 +1,58 @@
+###  Публикация: 1332840   (309346) от 22.10.2019
+
+Little Big Workshop (2019) [Multi/Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что в вашей комнате откуда ни возьмись появился волшебный завод. Тщательно продуманный шедевр, где трудолюбивые работники могут создать все, что угодно клиентам. Изготавливайте резиновые уточки и комоды, дроны и электрогитары, скутеры и другие чудесные товары из различных материалов и продавайте за деньги — валюту, которую можно инвестировать в завод (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 17 окт. 2019Разработчик: Mirage Game StudiosПоддерживаемая ОС: 10.9 +Жанр: Симуляторы, СтратегииЯзык интерфейса: русский, английский, французский, итальянский +
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882CDE95FB0724A1F301E672BB3EE1B74E867EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960292   (309266) от 27.11.2015
+
+CleanMyMac 3.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309266.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac 3 - Программа для очистки Мака
+Очищайте, оптимизируйте и обслуживайте ваш Мак с новым CleanMyMac 3. Он проверяет каждый уголок вашей системы, удаляет гигабайты мусора в два щелчка мышью и контролирует состояние вашего Мака.
+
+CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 ноября 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E289C0FF2B25D5A0CF5D8053A3DDADE241932AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077301   (309265) от 27.11.2016
 
 UninstallPKG 1.0.23 [En]
@@ -6,7 +61,7 @@ UninstallPKG 1.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309265.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Dropshare 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309253.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ Photo Mechanic 6 v6.0, build 3558 (afa5073) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309119.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Mail Designer Pro 3 v3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309077.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Disk Diet - Clean your drive 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309064.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ Monit 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308880.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ BetterTouchTool 3 v3.206 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308775.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ Wondershare Video Converter Ultimate 5.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308627.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ File Cabinet Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307873.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ Transmit 4.4.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307713.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ Logoist 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307684.jpg" />
 </div>
 
 
@@ -309,7 +364,7 @@ TurboMosaic Pro 3.0.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307660.jpg" />
 </div>
 
 
@@ -335,7 +390,7 @@ Shredo 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307655.jpg" />
 </div>
 
 
@@ -364,7 +419,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307643.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ Live Home 3D St 3.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307505.jpg" />
 </div>
 
 
@@ -418,7 +473,7 @@ TotalFinder 1.4.8 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307418.jpg" />
 </div>
 
 
@@ -445,7 +500,7 @@ Agisoft PhotoScan Pro 1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307245.jpg" />
 </div>
 
 
@@ -473,7 +528,7 @@ BusyCal 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306994.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ Polarr Photo Editor 3.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306987.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ SketchUp Pro 2019 v19.1.173 [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306941.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ Adobe Acrobat Pro DC 2019 v19.021.20048 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306555.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ Flexiglass 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306431.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ Ummy Video Downloader 1.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306187.jpg" />
 </div>
 
 
@@ -637,7 +692,7 @@ iExplorer 4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305629.jpg" />
 </div>
 
 
@@ -650,61 +705,6 @@ iExplorer - утилита для (   Читать дальше...   )Тип и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D5DD989FBE965B0B55AF26973801BE8A6812102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333156   (305620) от 24.10.2019
-
-A Better Finder Rename 11 v11.02 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305620.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
-Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2019Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D90A6689F826D803E8920F154AC446E56A36AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333223   (305619) от 24.10.2019
-
-Downie 3 v3.8.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23DEE45173CA402141877A1B1ACA67B71961B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

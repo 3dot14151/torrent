@@ -1,32 +1,3 @@
-###  Публикация: 1140432   (655737) от 06.06.2017
-
-UK - Curtain Call (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая группа 70-х. Запись сделана на последнем японском туре 8 ноября 2013 года.1. In The Dead Of Night
-     -In The Dead Of Night (Jobson, Wetton)
-      -By The Light Of Day (Jobson, Wetton)
-      -Presto Vivace and Reprise (Jobson, Wetton)(   Читать дальше...   )Производство: Ward RecordsЖанр: Progressive RockПеревод: ОтсутствуетПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F649239CB9356F86A36E5F13B4A534975D94B22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140503   (655608) от 06.06.2017
 
 Rammstein - Paris (2017) BDRip [H.264/720p]
@@ -35,7 +6,7 @@ Rammstein - Paris (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655608.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ Rammstein - Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654486.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ Metallica: Orion Music Festival 2012: The Black Album (2012) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654225.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653593.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651205.jpg" />
 </div>
 
 
@@ -174,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651129.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651128.jpg" />
 </div>
 
 
@@ -232,7 +203,7 @@ Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651102.jpg" />
 </div>
 
 
@@ -258,7 +229,7 @@ BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649416.jpg" />
 </div>
 
 
@@ -288,7 +259,7 @@ Metallica - Orion Music Festival - The Black Album (2012) HDTVRip 720 [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_648930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648930.jpg" />
 </div>
 
 
@@ -317,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647137.jpg" />
 </div>
 
 
@@ -343,7 +314,7 @@ The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645459.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645032.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642821.jpg" />
 </div>
 
 
@@ -431,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_641810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641810.jpg" />
 </div>
 
 
@@ -460,7 +431,7 @@ The Rolling Stones - The Stones In The Park (1969/2012) [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641658.jpg" />
 </div>
 
 
@@ -489,7 +460,7 @@ Judas Priest - Epitaph (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638022.jpg" />
 </div>
 
 
@@ -515,7 +486,7 @@ Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636690.jpg" />
 </div>
 
 
@@ -549,7 +520,7 @@ Burt Bacharach - A Life In Song (2016) BDRip [H.264/1080i-LQ] <Pop, R&B, Film Mu
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636030.jpg" />
 </div>
 
 
@@ -579,7 +550,7 @@ Motorhead - Clean Your Clock (Live in Munich 2015) (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635934.jpg" />
 </div>
 
 
@@ -605,7 +576,7 @@ Whitesnake - Made In Japan (2011/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_635912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_635912.jpg" />
 </div>
 
 
@@ -631,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635726.jpg" />
 </div>
 
 
@@ -659,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635284.jpg" />
 </div>
 
 
@@ -688,7 +659,7 @@ Motorhead - Clean Your Clock (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634136.jpg" />
 </div>
 
 
@@ -714,13 +685,39 @@ Iron Maiden: Flight 666 (2009) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_633713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633713.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Снятый в высоком цифровом разрешении с идеальным качеством изображения, фильм 'Flight 666' режиссеров Сэма Данна (Sam Dunn) и Скота Макфедйена (Scot McFadyen) при сотрудничестве с продюсерской командой Banger Productions покажет вам закулисную жизнь группы в туре – то, что «Мейдены» еще никогда не делали раньше. Потрясающий звук 5.1 был специально смикширован продюсером (   Читать дальше...   )Жанр: Heavy MetalРежиссер: Scot MCFadyen, Sam DunnПеревод: одноголосый закадровый  (Петр Гланц)Язык субтитров: Russian, English, French, Italian, Portuguese, Spanish, Japanese, German, Dutch, Swedish, HindiПродолжительность: 1:52:19 (Film) | 01:43:40 (Concert)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520397   (632581) от 08.07.2012
+
+Roger Waters The Wall Live 4 Show Edit (Remastered) (2010) [1080p] HDRip
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_632581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный спектакльЖанр: RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 01:51:38
 
 ## Скачать торент
 ```bash

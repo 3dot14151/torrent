@@ -1,3 +1,30 @@
+###  Публикация: 724039   (797603) от 26.04.2016
+
+Портрет города. Париж / Portrait of a City. Paris (2010) HDTVRip [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одни великие города славятся своим стилем и блеском, другие знамениты своей историей и культурой - но есть один город, обладающий одновременно всеми этими достоинствами и многими другими. Романтичный Париж называют городом света. Здесь каждый камень, каждый дом, каждый монумент может рассказать свою неповторимую историю...
+Даже при коротком визите в Париж вам гарантированы (   Читать дальше...   )Жанр: Документальный, путешествия, историяПеревод: Одноголосый закадровый (профессиональный, студия РЕД МЕДИА)Продолжительность: 00:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C3E3EDD00F326D9093616520B506BD3E2C2608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 723133   (797602) от 26.04.2016
 
 Портрет города. Вена / Portrait of a City. Vienna (2010) HDTVRip [H.264/1080i]
@@ -6,7 +33,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797602.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797571.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797481.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796905.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796696.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795964.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795552.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794799.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794427.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793506.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792914.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792124.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792060.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790329.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789749.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789746.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788579.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788182.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786929.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786493.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786140.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786122.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786121.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786108.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785779.jpg" />
 </div>
 
 
@@ -647,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38F9F2B691646C329571FEDBB28F124E1865F9F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124842   (785615) от 12.04.2017
-
-Проводник (2017.04.11) WEB-DL [H.264/720p-LQ] (Лос-Анджелес)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тропинка привела Андрея Беднякова в Лос-Анджелес. В колыбели мирового кино его звездным проводником стала Юлия Ахмедова. Сценарист сериала «Универ», продюсер, остроумная и популярная актриса и участница телешоу Stand Up подготовила для ведущего голливудский маршрут знакомства с городом. Вместе с Юлией Андрей пройдется по знаменитой Аллее звезд, посетит любимые кафе (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТВ-Шоу, ПутешествияСубтитры: ОтсутствуютПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43605F2B3C2D29BB90061E4EADA3A8EF05C83AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

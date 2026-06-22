@@ -1,3 +1,111 @@
+###  Публикация: 728104   (319770) от 28.11.2013
+
+Учебная фильмотека. Начальные классы. Флора и фауна Земли. Подводное царство (1990) VHSRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319770.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью аквалангистов фильм помогает заглянуть в удивительный подводный мир, знакомит с его обитателями (медузы, акулы, тюлени и настоящее чудо подводного царства - дельфины)Производство: ШколфильмЖанр: Обучающий, КороткометражныйПродолжительность: 00:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C317F7882C02CEF8030565E7D90B1E0F8F16837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727782   (319766) от 28.11.2013
+
+АБВГДейка. Пословицы и поговорки (2013) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319766.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… «АБВГДейка» - советская и российская детская образовательная телевизионная программа для дошкольников и младших школьников. Формат передачи - уроки в форме игрового спектакля, в качестве учеников выступают клоуны.
+
+Занятие посвящено пословицам и поговоркам.Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, C.Малюкова, А. Вдовин, К.Асмаловская, Д.ТихоновПродолжительность: 00:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204BD50C0A0747AF7F579A820B2F2DACA104646B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727770   (319756) от 28.11.2013
+
+АБВГДейка. Можно ли брать чужое (2013) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319756.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… «АБВГДейка» - советская и российская детская образовательная телевизионная программа для дошкольников и младших школьников. Формат передачи - уроки в форме игрового спектакля, в качестве учеников выступают клоуны.
+
+Занятие посвящено отношению к чужим вещам.Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, C.Малюкова, А. Вдовин, К.Асмаловская, Д.ТихоновПродолжительность: 00:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E59E9969B63318CF35CBD680B866F287B75245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727780   (319664) от 28.11.2013
+
+АБВГДейка. Чистота залог здоровья (2013) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319664.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… «АБВГДейка» - советская и российская детская образовательная телевизионная программа для дошкольников и младших школьников. Формат передачи - уроки в форме игрового спектакля, в качестве учеников выступают клоуны.Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, C.Малюкова, А. Вдовин, К.Асмаловская, Д.ТихоновПродолжительность: 00:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD21835C6D8A21F443D70D93F2A945D1B0BAEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 417054   (318738) от 30.11.2011
 
 Клуб Микки Мауса: Космические приключения / Mickey Mouse Clubhouse: Space Adventure (2011) DVDRip
@@ -6,7 +114,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318738.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317544.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317543.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317373.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317258.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317162.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315561.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311867.jpg" />
 </div>
 
 
@@ -215,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308914.jpg" />
 </div>
 
 
@@ -241,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290996.jpg" />
 </div>
 
 
@@ -268,7 +376,7 @@ Tiny Love Развивающая аудиовизуальная игра DVD MAG
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279299.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272163.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261284.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260535.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226463.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226390.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224203.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ Foxford | WEB-программирование для школьников 8-11 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219762.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218554.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213270.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209217.jpg" />
 </div>
 
 
@@ -564,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205200.jpg" />
 </div>
 
 
@@ -575,112 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17FB8B895D35948FD8516AB24DED114B00C4DAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458893   (204871) от 23.10.2022
-
-Foxford, Елена Горская | Подготовка к олимпиадам по программированию для среднего уровня, 7-9 классы (2017) PCRec
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс дает необходимые знания для уверенного выступления на олимпиаде по программированию: алгоритмы поиска и сортировки, арифметические алгоритмы и прочие темы. На занятиях обсуждаются теоретические вопросы, разбираются решения задач по программированию и основы языка Python.Производство: FoxfordЖанр: ПрограммированиеПродолжительность: 45:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6515EB8275D16FF07E3C12F8F1DEE91E3B67052F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612744   (202625) от 17.02.2023
-
-Физика. Курс видео-уроков. 7–11 классы (2023) WEBRip [H.265/720p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподаватели доступным языком объясняют самые сложные темы учебной программы. Полученные знания тут же закрепляются с помощью тренажеров.
-Конспекты уроков помогают вспомнить материал для решения домашних заданий и подготовки к контрольным.
-Любое изменение в природе — явление. На основе наблюдаемых явлений мы выдвигаем гипотезы. Для проверки гипотезы мы ставим эксперимент. (   Читать дальше...   )Производство: Россия, Ростелеком ЛицейЖанр: видеоуроки, обучающий, детский, школьная программаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~40:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720C433F9ED74927D8F1B2E173DF1B7A310F0DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626904   (199798) от 16.04.2023
-
-БЕРГ САУНД, Саакянц | Английский язык для самых маленьких (2006) WEB-DL [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все думают, что рыбы не умеют говорить! Как же удивился наш друг Зайчик, когда узнал о том, что рыбы не только могут говорить, но даже хотят выучить английский язык. И пришлось нашему Зайчику одевать скафандр и спускаться на дно морское, чтобы обучит семью Налима английскому языку. Ребята! А чем мы хуже рыб? Может быть и мы вместе с нашими героями выучим английские (   Читать дальше...   )Производство: Россия / Студия Берг СаундЖанр: мультфильм, детскийРежиссер: Роберт СаакянцУчастники: Анна ЭкекянЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41026ACD175918891335E5973A8538861FB72720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626929   (199775) от 16.04.2023
-
-Английский язык для малышей (2008) WEB-DL [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши герои Компьютер и Файл в легкой и познавательной форме помогут тебе изучить английский язык. И привьют тебе любовь к получению знаний!Производство: Россия / Студия Берг СаундЖанр: мультфильм, детскийРежиссер: Роберт СаакянцЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490D4B3EE20C241F708141991C513E52AAF320EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

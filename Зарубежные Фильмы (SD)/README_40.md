@@ -1,3 +1,133 @@
+###  Публикация: 1461053   (1018362) от 30.04.2021
+
+Мадам Клод / Madame Claude (2021) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия фильма происходят в конце шестидесятых годов прошлого столетия в Париже. Мадам Клод является известной личностью в определенных кругах. Это не удивительно, поскольку она возглавляет процветающий бизнес, связанный с проституцией. Хитрая и расчетливая женщина имеет огромное влияние на политиков и криминальных авторитетов, поскольку знает о тайнах многих представителей (   Читать дальше...   )Производство: Франция, Ciné+, La Région Île-de-France, Les Compagnons du CinémaЖанр: Драма, мелодрама, криминал, биографияРежиссер: Сильви ВередАктеры: Кароль Роше, Рошди Зем, Геранс Марилье, Пьер Деладоншам, Аннабель Бельмондо, Афсиа Эрзи, Жозефин де ля Бом, Милен Джампаной, Люсиль Желан, Лиа О'ПрейПеревод: Двуголосый профессиональный (Pazl Voice)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620B3548986D86898C90A9B7DCE099FEEE2C0496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466486   (1018335) от 30.04.2021
+
+Дьявол в деталях / The Little Things (2021) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октябрь 1990 года. Уже немолодого заместителя окружного шерифа Джо Дикона по прозвищу Дики отправляют с мелким поручением в Лос-Анджелес. Именно тут пять лет назад он был уважаемым детективом, но одно расследование испортило ему жизнь и подорвало здоровье. Дики знакомится с молодым амбициозным коллегой Джимом Бэкстером, который ведёт дело об убийствах, подозрительно (   Читать дальше...   )Производство: США / Gran Via, Warner Bros.Жанр: Детектив, криминал, триллерРежиссер: Джон Ли ХэнкокАктеры: Дензел Вашингтон, Рами Малек, Джаред Лето, Кристофер Бауэр, Майкл Хайатт, Терри Кинни, Натали Моралес, Изабель Арраиса, Джорис Джарски, Гленн МоршауэрПеревод: Дублированный (Мосфильм-Мастер)Субтитры: Русские (Forced, Full) - отдельноПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860189B6B8B3BE4A3C8511CB71294B87FA55DEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466538   (1018325) от 30.04.2021
+
+Позывной «Карим» / Karim (2020) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018325.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нескольких лет, проведенных в раздираемой войной Сирии, главный герой возвращается в Италию. Чтобы вернуть свою жизнь и оставить страшное прошлое позади, ему предстоит выполнить всего одну, последнюю миссию. Однако цена за нее может быть слишком высока.Производство: Италия / Emilia-Romagna Film Commission, Film Commission Torino-Piemonte, Lime FilmЖанр: БоевикРежиссер: Федерико АлоттоАктеры: Мохамед Зуаи, Валентина Черви, Стелла Эгитто, Андреа Дзирио, Фабио Фулько, Кристиан Бурруано, Айман Машхур, Александрос Меметай, Кристиан Калабрезе, Паоло Иларио ПеццоттиПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B3C0B4FCA0BA5973F11498EBD9F7A668DDB1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466337   (1018309) от 30.04.2021
+
+Увиденное и услышанное / Things Heard & Seen (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супружеская пара переезжает из Манхэттена в небольшой городок. Вскоре молодая женщина обнаруживает, что ее муж и их новая семейная гавань скрывают зловещие тайны.Производство: США / Likely StoryЖанр: Ужасы, триллер, драмаРежиссер: Шари Спрингер Берман, Роберт ПульчиниАктеры: Аманда Сайфред, Карен Аллен, Рэй Сихорн, Наталия Дайер, Джеймс Нортон, Ф. Мюррэй Абрахам, Майкл О'Киф, Джеймс Урбаняк, Алекс Нюстадтер, Джек ГорПеревод: Дублированный (Netflix)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) - отдельноПродолжительность: 02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DDAF89480F0015AC53E63ACC104D0D52602902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466807   (1018196) от 01.05.2021
+
+Парни из деревенского ада / Boys from County Hell (2020) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где-то в ирландской глубинке в чистом поле уже много веков стоит груда камней, которая по легенде считается могилой самого древнего вампира. Местный парень Юджин хоть и любит с приятелями разыгрывать доверчивых туристов, отводя их к этой достопримечательности и пугая, сам в подобные сказки не верит. Но вскоре на этом самом месте трагически гибнет его лучший друг, (   Читать дальше...   )Производство: Великобритания, Ирландия, Six Mile Hill Productions, Blinder Films, Endeavor ContentЖанр: Ужасы, комедияРежиссер: Крис БофАктеры: Джек Роуэн, Найджел О`Нилл, Луиза Харланд, Майкл Хью, Джон Линч, Фра Фи, Морган С. Джонс, Андреа Ирвин, Роберт Нэйрн, Марти МагвайрПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: отсутствуютПродолжительность: 01:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD37B7E76AA00E3899787FE7874F70A3667240A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461312   (1018189) от 01.05.2021
 
 Рози (Роуз: История любви) / Rose / Rose: A Love Story (2020) WEB-DLRip [MVO]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018189.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018019.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018016.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018006.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017993.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017991.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017902.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017881.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017822.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017814.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017811.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017809.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017669.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017627.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017626.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017611.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017491.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017327.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017156.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017152.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016890.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B2A5029520FC9241C2B4C6BC42D0B93F61E817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461844   (1016873) от 09.05.2021
-
-Маленькая рыбка / Little Fish (2020) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планету настигает новый вирус, главный симптом которого - потеря памяти. Джуд и Эмма, пара влюблённых, вынуждены с ним бороться, иначе он уничтожит их прекрасную историю любви.Производство: США, Канада / Automatik Entertainment, Black Bear Pictures, Oddfellows EntertainmentЖанр: Фантастика, драма, мелодрамаРежиссер: Чед ХартиганАктеры: Оливия Кук, Джек О`Коннелл, Стефани Соколински, Рауль Кастильо, Дэвид Леннон, Маккензи Кардвэлл, Росс Виртанен, Heather Decksheimer, Натали Фэрроу, Рональд РобинсонПеревод: Многоголосый профессиональный (Jaskier)Субтитры: отсутствуютПродолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6939AC30565130E1089277AA75EA63D3EDB06E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468604   (1016838) от 09.05.2021
-
-Засуха / Город тайн / The Dry (2020) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский Аарон Фалк возвращается в измученный засухой родной город, чтобы присутствовать на похоронах своего друга детства Люка. Говорят, Люк якобы убил свою жену и ребенка, прежде чем покончить с собой. Неохотно принявшись за расследование, мужчина вскоре обнаруживает связь между этим делом и давним событием — смертью 17-летней девушки.Производство: США, Австралия / Made Up Stories, Arenamedia, Cornerstone FilmsЖанр: Триллер, драма, криминал, детективРежиссер: Роберт КонноллиАктеры: Эрик Бана, Женевьев О’Рейли, Кейр О’Доннелл, Брюс Спенс, Сэм Корлетт, Джеймс Фрешвилл, Мэтью Нэйбл, Джереми Линдсэй Тейлор, Миранда Тапселл, Джон ПолсонПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB637907EAA0F3D832CE83AFF9AAA377854B1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468868   (1016827) от 09.05.2021
-
-Виртуоз / The Virtuoso (2021) BDRip [H.265] [10-bit] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опасность, обман и убийство обрушиваются на сонный город, когда профессиональный убийца принимает новое задание от своего загадочного босса. Получив подсказку, место и время, он должен идентифицировать свою таинственную метку среди нескольких возможных целей.Производство: США / Nazz Productions, Pelican FilmsЖанр: Боевик, Триллер, КриминалРежиссер: Ник СтаглианоАктеры: Энсон Маунт, Эбби Корниш, Энтони Хопкинс, Дэвид Морс, Эдди Марсан, Ричард БрэйкПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCBB4105B1CC673D13BD4B01619BC858612D256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468687   (1016825) от 09.05.2021
-
-Ученик экзорциста / The Seventh Day (2021) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Священник-новичок в первый же день практики в школе экзорцистов сталкивается с очень сложным случаем одержимости. Под руководством бывалого наставника ему придется погрузиться в ад на земле, столкнуться с собственными демонами и разобраться, почему школа готовит всё новых экзорцистов, а одержимых становится только больше.Производство: США / Buffalo 8 Productions, Cinestate,FangoriaЖанр: УжасыРежиссер: Джастин П. ЛанжАктеры: Гай Пирс, Кит Дэвид, Стивен Лэнг, Робин Бартлетт, Ханна Калуэлл, Вадир Дербес, Хит Фриман, Bjorgvin Arnarson, Ben Hicks, Тристан РиггсПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57AB430C07BA391105AC4C7E3A5C14819EBB59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468723   (1016807) от 09.05.2021
-
-Поколение Вояджер / Voyagers (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они были рождены для этой миссии. Высокоинтеллектуальные и бесстрастные. Они должны спасти человечество, продолжив жизнь на далекой планете. Но вскоре команда открывает секрет экспедиции: средство защиты — это средство контроля. Когда контроль ослабевает, на свободу вырываются чувства и желания, а вместе с ними их темная сторона — страх и жажда власти. И уже неизвестно, (   Читать дальше...   )Производство: США, Чехия, Румыния, ВеликобританияЖанр: Фантастика, триллер, приключенияРежиссер: Нил БёргерАктеры: Тай Шеридан, Лили-Роуз Депп, Колин Фаррелл, Финн Уайтхед, Шанте Адамс, Куинтесса Суинделл, Арчи Мадекве, Айзек Хемпстед-Райт, Вивеик Калра, Мэдисон Ху, Арчи РеноПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D99661E42EEF361EA43DEC10485D494A0FB909C
 ```
 
 https://mybot314.ru/tekegram_catalog/

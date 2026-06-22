@@ -1,3 +1,29 @@
+###  Публикация: 1623475   (196245) от 01.07.2023
+
+Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [2023, TV, 13 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда Габимару был сильнейшим синоби Ивагакурэ, но попытался уйти со своей службы и был схвачен. Приговорённый к смерти, он ждал своей смерти, когда к нему обратились с предложением: добыть эликсир бессмертия с острова, который называют землёй обетованной. Если справится - все грехи простят. Для того, чтобы вновь встретиться с любимой женой, Габимару отправляется (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Макита КаориПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F728F414606FAD16A2A6D139AEF10A2AC435A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625405   (196231) от 02.07.2023
 
 Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from Mercury (2023) | Гандам: Ведьма с Меркурия [ТВ-2] [2023, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196231.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196149.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196054.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Inu ni Nattara Suki na Hito ni Hirowareta. | My Life as Inukai-san's Dog | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195316.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194111.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Tomo-chan wa Onnanoko! | Tomo-chan Is a Girl! | Томо - девушка! [2023
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194105.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194018.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Shika no Ou: Yuna to Yakusoku no Tabi | The Deer King | Король-олень 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193247.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Galaxy Angel A / Galaxy Angel AA | Галактические ангелы А [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193245.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Otomege Sekai wa Mob ni Kibishii Sekai Desu | Trapped in a Dating Sim: The World
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193242.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193220.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193180.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Black Rock Shooter: Dawn Fall | Стрелок с Черной скалы [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193152.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193100.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192552.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191333.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191312.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191218.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Eiga Yuru Camp | Лагерь на свежем воздухе (фильм) [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190827.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190820.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190623.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190616.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Saint Seiya | Рыцари Зодиака [1986, TV, 114 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190062.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Exception | Ошибка [2022, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189901.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189755.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C28439D20C073560D80B09EC1375EF9154141860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544263   (189564) от 11.11.2022
-
-Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение аниме - Царство: Принц Ин Чжэн одолел заговорщиков и вернул себе трон царства Цинь, но почивать на лаврах преждевременно. У молодого правителя слишком мало верных сторонников, ведь многие погибли в бою, а большинство князей и сановников выжидают, желая знать, на что способен «этот юноша». Реальную власть в стране захватил бывший купец, авантюрист Люй (   Читать дальше...   )Производство: Studio Pierrot и Studio SignpostЖанр: Приключения, война, история, cэйнэнРежиссер: Имаидзуми КэнъитиСубтитры: Русские, Английские и другиеПродолжительность: 26 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8117034A780F6B1586AB1FF9A7A5EEB4FF10E700
 ```
 
 https://mybot314.ru/tekegram_catalog/

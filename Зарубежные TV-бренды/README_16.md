@@ -1,3 +1,82 @@
+###  Публикация: 852907   (876843) от 15.03.2016
+
+BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H.264/720p] [1-3 серия из 3]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская журналистка и телеведущая Фиона Брюс расскажет историю трех официальных резиденций Королевы Великобритании: Букингемском дворце, Виндзорском замке и дворце Холируд-хаус, которые являются одними из немногих действующих сегодня королевских дворцов в мире.Жанр: Документальный мини-сериал, архитектураПеревод: Двухголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 3 х ~00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA711CBD0180EA831A2BAEE77F1A7C03824762D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846797   (876660) от 15.03.2016
+
+Динозавры: Гиганты Патагонии / Dinosaurs: Giants of Patagonia (2007) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если бы не серия катаклизмов, начатая падением метеорита, наша планета до сих пор могла бы быть населена динозаврами.
+Вслед за профессором Рудольфо Гориа, всемирно известным Аргентинским палеонтологом, зритель посетит места его важнейших открытий в Патагонии и вернется назад во времени, чтобы увидеть рождение этих невероятных созданий. Патагония подарила нам самое (   Читать дальше...   )Жанр: ДокументальныйАктеры: Дональд СазерлендПеревод: одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A20516ECEBD7B709DD07C433BE85B9E64DC0EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105303   (876470) от 17.02.2017
+
+Загадки острова Пасхи / The mystery of Easter Island (2003) TVRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остров Пасхи долгие годы был загадкой для ученых. Кто создатель этой удивительной цивилизации? Кто и зачем воздвиг знаменитые каменные истуканы? Куда исчезли эти загадочные скульпторы? Современная наука начинает постепенно разгадывать тайны острова Пасхи.Телекомпания: ВеликобританияЖанр: ДокументальныйРежиссер: Джонатан РенуфПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE298F2A7E215345976005CBEBEFDC131BBDE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374111   (876366) от 08.04.2020
 
 Discovery. COVID-19: Китай против вируса / COVID-19: Battling the Pandemic (2020) WEB-DL [H.264/1080p]
@@ -6,7 +85,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876366.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ BBC: Секреты устройства античных городов. Рим
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874933.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874263.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874257.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873209.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872339.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ BBC: Гений Марии Кюри: женщина, осветившая мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872328.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872213.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ Discovery. Техногеника. Буран (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871602.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871051.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870801.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870266.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869958.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869830.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869825.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ Discovery. Города живые и мёртвые. Молога - Мышки�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869666.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869506.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869382.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868533.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ Discovery: Строительство небоскреба "Шард" / The Tall
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867693.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867540.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ BBC. Точность и погрешность измерений / Precision: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866524.jpg" />
 </div>
 
 
@@ -583,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866219.jpg" />
 </div>
 
 
@@ -594,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B975A7E82E3D6F24BC82817DE1CCCBD03BBC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993254   (865954) от 21.03.2016
-
-BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные методы войны безжалостны, сто лет назад они были невообразимыми. Только побывавшие там, знают, на что это было похоже. Во время Первой мировой войны, британские войска сталкиваются с ужасами битвы при Монсе в 1914 году, внутренними противоречиями в 1916 году и новой войной - танковой в 1918 году. Фильм основан на рассказах очевидцев.Телекомпания: Великобритания, BBCЖанр: Документальный, война, история, постановочныйПеревод: Русский дубляжПродолжительность: 3 х ~ 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14113ACB34AD19AAD0772948AAADBC29E2FF2283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107741   (865925) от 23.02.2017
-
-Discovery. Города живые и мёртвые. Губаха HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865925.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждой серии мы показываем один мертвый город и один живой, всегда объединенные некой ниточкой - сюжетной линией. Это города, которые имеют или имели либо общую экономическую составляющую, либо общее единое происхождение как моногорода вокруг однотипных предприятий, либо исторически как-то связанные.Почему город с многовековой историей, где добывали уголь с 1721 года, стал призраком?Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BB677D0A4AF6D61DAB5237A6B762EBE1AB4D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107736   (865918) от 23.02.2017
-
-Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865918.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждой серии мы показываем один мертвый город и один живой, всегда объединенные некой ниточкой - сюжетной линией. Это города, которые имеют или имели либо общую экономическую составляющую, либо общее единое происхождение как моногорода вокруг однотипных предприятий, либо исторически как-то связанные.Первое письменное упоминание о небольшом городе Аксае, расположенном всего в 10 км от Ростова-на-Дону, относится к 1570. Сегодня здесь кипит жизнь, и все было бы совершенно обычно, если бы не одно «но»… Под Аксаем есть ещё один город – Аксайские катакомбы. Здесь под ногами десятки километров пещер, штолен, коридоров, бункеров как природного, так и техногенного происхождения. (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707C25F2077869B15E5F905EE089CEB2E0EC64E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

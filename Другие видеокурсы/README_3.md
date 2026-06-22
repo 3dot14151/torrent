@@ -1,3 +1,31 @@
+###  Публикация: 1368889   (906525) от 21.03.2020
+
+Bang Bang Education | Секреты композиции (2017) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композиция — хорошая или плохая — присутствует в любом произведении. Композиционные ошибки влияют на восприятие любого рисунка, а незнание правил часто не даёт закончить работу над рисунком. Этот онлайн-курс поможет вам разобраться в композиции и выстраивать её в работах так, чтобы найденное решение работало на вашу идею.
+
+Программа составлена для широкого круга (   Читать дальше...   )Производство: Bang Bang EducationЖанр: Изобразительное искусствоПродолжительность: 01:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B4E8F33077C009AF400560A1C9EA7FA740B9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991253   (898946) от 03.03.2016
 
 Мирзакарим Норбеков, Вадим Нажипов | Мастерская успеха - Челябинск (2012) CamRip [H.264]
@@ -6,7 +34,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898946.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898780.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898623.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898466.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893007.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890880.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890791.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_888528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_888528.jpg" />
 </div>
 
 
@@ -234,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877247.jpg" />
 </div>
 
 
@@ -263,7 +291,7 @@ Cornacchia | Создание украшения от Cornacchia (2015) PCRec [H
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873109.jpg" />
 </div>
 
 
@@ -289,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870921.jpg" />
 </div>
 
 
@@ -317,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867770.jpg" />
 </div>
 
 
@@ -344,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866082.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865813.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ kalachevaschool, Татьяна Быковская | История искусс
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864457.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863716.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862424.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862178.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859301.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858664.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856820.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856814.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853512.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851806.jpg" />
 </div>
 
 
@@ -670,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850985.jpg" />
 </div>
 
 
@@ -681,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9547D279165C6A4AB7002B81C75463A6B9A6379C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 94809   (845777) от 25.04.2020
-
-Джейми Оливер - Кулинарное Шоу / Jamie Oliver - Culinary Show
-
->>След.
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовление еды никогда еще не выглядело столь интригующе интересным! Захватывающее кулинарное шоу знаменитого английского шеф-повара Джейми Оливера вряд ли сможет оставить кого-нибудь равнодушным. Оливер призывает зрителей отбросить страхи и почтительный трепет перед поварским искусством. Рецепты его блюд неординарны, свежи, привлекательны и практичны. Отбросьте (   Читать дальше...   )Жанр: Кулинарное шоуПродолжительность: 11 х 26 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72190B9F97F5CEDEB07628371A57BC5499A9E1B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

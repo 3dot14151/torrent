@@ -1,3 +1,32 @@
+###  Публикация: 1119559   (241208) от 29.03.2017
+
+VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|320 Kbps] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Goze – Take a Breath – Main
+ 02. Yves Touati – Celtic Dream
+ 03. Adam Fielding – Going Home
+ 04. Christophe Lebled – Flying Clouds – Main(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C632DC29577637C54C0E28697A9114E1B11B18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120749   (241061) от 02.04.2017
 
 Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
@@ -6,7 +35,7 @@ Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241061.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239826.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native America
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238916.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227334.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219712.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, H
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217768.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216991.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216732.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216353.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ Opycham - Kudesa (2018) [MP3|320 Kbps] <New Age, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215888.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ Peter Kater - How the West Was Lost (2011) 2CD [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215556.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ VA - Romantic Collection. New Age (2000) [OGG Vorbis|480 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206188.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ VA - Enigma-Forest-Transit 8 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201364.jpg" />
 </div>
 
 
@@ -397,7 +426,7 @@ VA - Enigma-Forest-Transit 7 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201360.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ VA - Enigma-Forest-Transit 11 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201355.jpg" />
 </div>
 
 
@@ -455,7 +484,7 @@ VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191061.jpg" />
 </div>
 
 
@@ -484,7 +513,7 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2CD, Remastere
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190357.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ neowake Biofrequencies - Утренняя мотивация 16 Гц: бинау
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178067.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168515.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ Rainbow Suzy - Nature's Treasures (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158717.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158335.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158223.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156813.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154854.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154753.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194532   (154211) от 26.12.2017
-
-Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musik fur Yoga Ubungen - 03:50
-02. Beruhigende Musik New Age - 03:25
-03. Autogenes Training fur spirituelle Entwicklung - 03:20
-04. Ruhe und Einschlafmusik - 03:37(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B905F7D313793038C8ADA17A25714481418007
 ```
 
 https://mybot314.ru/tekegram_catalog/

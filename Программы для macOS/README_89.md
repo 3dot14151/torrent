@@ -1,3 +1,57 @@
+###  Публикация: 1244507   (479819) от 02.09.2018
+
+SimpleMind 1.20.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
+
+SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2018Разработчик: SimpleappsПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89A727313510BD07277F1A0C44AE98D82DED7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056620   (479497) от 26.09.2016
+
+Current for Facebook 1.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Current создано для управления сообщениями и уведомлениями на Facebook. Интерфейс составляют список друзей, окно со входящими сообщениями и недавние уведомления. Интерфейс для чата разработан на JavaScript, напоминающий Adium и другие классические AIM-клиенты. Приложение расширяет возможности Facebook, например, открывая диалоги в отдельных окнах. Разработчику понадобилось (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 сентября 2016Разработчик: AppDen LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC3618C683521EBF5A14DB8E494768770538D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319556   (479237) от 14.08.2019
 
 SQL Dynamite 2.1.4.0 [En]
@@ -6,7 +60,7 @@ SQL Dynamite 2.1.4.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479237.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Xcode 6.0.1 (6A317) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479204.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ MKV2MP4 1.4.15 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477234.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ CCleaner Pro 1.14.451 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476928.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Textbundle Editor 1.2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476635.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Auto Highlight 4.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476512.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ WidsMob ImageConvert - JPG/PNG 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476505.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ Stats 2.7.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476502.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ WidsMob Panorama 4.25 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476496.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ Digital Clock 3D 2.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476319.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ SEO Checker 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475543.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ Diagrammix 2.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475332.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ Cornerstone 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475331.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ Net Monitor 4.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475011.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ ABBYY Lingvo European 1.11.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474624.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ Large Files Finder 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474551.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ Filmographer 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474541.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ Easy Markdown 1.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474434.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ Dato 4.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474428.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ Smart File Renamer 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474425.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ Speedy Duplicate Finder 1.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474421.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ SyncMate Expert 8.5.504 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474420.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ All Remixes 1.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474418.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ Full Discography 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474417.jpg" />
 </div>
 
 
@@ -624,59 +678,6 @@ Full Discography 1.2.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50CA1CF3FF03BDBD8A47C4B1EEEB6904830A970D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567393   (474241) от 02.08.2022
-
-OnyX 4.2.2 for macOS Monterey 12 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для настройки macOS бывают разных форм и цен, и вы можете выбрать то, которое соответствует вашим потребностям, будь оно сосредоточено на поиске и исправлении как можно большего количества системных ошибок и проблем или на повышении общей производительности вашего Mac.
-Универсальный инструмент для обслуживания, настройки и очистки системы Утилита OnyX (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2021 Titanium SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE2369011E695EB6460A33A92214BE4E589AEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160543   (474018) от 25.08.2017
-
-Mailplane 3.7.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mailplane — это почтовый клиент, созданный специально для фанатов GMail. Можно сказать, что Mailplane занимает промежуточное положение между работой с веб-интерфейсом и оффлайновым клиентом. По-сути вы по-прежнему работаете с GMail посредством его интерфейса.Тип издания: macOS SoftwareРелиз состоялся: 22.08.2017Разработчик: uncomplex gmbhПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский, Немецкий , Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEF0747983F6CF2B95CEAD92121F2EFB5CB44F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

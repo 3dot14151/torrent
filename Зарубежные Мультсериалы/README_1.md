@@ -1,3 +1,109 @@
+###  Публикация: 1864790   (1065213) от 15.04.2026
+
+Поиск Эвилан / Ewilan's Quest / La Quete d’Ewilan (2025) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-6 из 8)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцатилетняя Камилла, умная и независимая школьница, случайно попадает в магический мир Гвендалавир. Там она узнаёт, что её настоящее имя - Эвилан, а сама она владеет даром Воображения. Вместе с другом Салимом и стражем Эдвином героиня должна освободить Хранителей, чтобы спасти империю от зла.Производство: Франция / Andarta Pictures, Umedia, Vivi FilmЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Ив Чеккарелли, Фабьен Дафи, Жюстин МеттлерАктеры: Одри Холл, Эстер Вальдинг, Скотти Бернард, Майр Брайден, Клод Дебор, Сильвен Агасс, Том Труфье, Дэвид Гэзмен, Жереми Бедрун, Жан-Пьер ЛеруПеревод: Многоголосый любительский (VIDEOPROKAT)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14675351193E87AFFDBF7E23EAB1DCAA4E52C645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862505   (1064075) от 31.03.2026
+
+Футурама / Futurama (2025) WEBRip [H.265/1080p] [10-bit] (сезон 10, серии 1-10 из 10) TVShows, LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064075.jpg" />
+</div>
+
+
+###  Подробнее
+
+По нелепой случайности Фрай попадает в будущее — в 3000 год, где его ждут верные друзья в лице безумного робота Бендера и одноглазой Лилы.Производство: США / The Curiosity Company, 20th Century Fox Television, 20th Television AnimationЖанр: мультфильм, фантастика, комедия, приключенияРежиссер: Питер Аванзино, Рич Мур, Брэт ХааландАктеры: Билли Уэст, Джон Ди Маджио, Кэти Сагал, Тресс МакНилл, Фил ЛаМарр, Морис ЛаМарш, Лорен Том, Дэвид Херман, Фрэнк Уэлкер, Кэт СусиПеревод: Многоголосый (TVShows, LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AADF4AFEE8673CC92D8A8CE70AFB147CE47CCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862441   (1064074) от 31.03.2026
+
+Конь БоДжек / BoJack Horseman (2014-2020) WEBRip [H.264/1080p-LQ] (сезон 1-6, серии 1-77 из 77) Невафильм, NewStudio, TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в мире населенном антропоморфными животными и людьми. Большая часть сюжета происходит в Лос-Анджелесе. БоДжек — звезда ситуационной комедии, популярной в конце 80-х — начале 90-х годов, на момент времени происходящего в сериале, БоДжек переживает кризис среднего возраста. В попытках вернуть былую популярность и любовь публики, БоДжек пытается (   Читать дальше...   )Производство: США | Tornante Company, NetFlix, ShadowMachine FilmsЖанр: мультфильм, драма, комедия, для взрослых
+
+Режиссер: Эми Уинфри, JC Gonzalez, Аарон ЛонгПеревод: Дублированный (Невафильм), многоголосый (NewStudio, TVShows)Язык озвучки: русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E1C70C9DFB971277A8CAA8790540EA4311F88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862135   (1063679) от 03.04.2026
+
+Истории далёкого пригорода / Tales from Outer Suburbia (2026) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-7 из 10) Delta Dubbing (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умная девочка «почти тринадцати» лет и её младший брат переезжают в пригородную окраину со своей матерью одиночкой . Их летние каникулы превращаются в череду неожиданных и сюрреалистических приключений, пока они привыкают к своей новой реальности.Производство: Австралия / Australian Broadcasting Corporation (ABC), BYUtv, Flying Bark ProductionsЖанр: фэнтези, комедия, приключенияРежиссер: Ноэль КлириАктеры: Бруклин Дэвис, Феликс Оливер Вержес, Джеральдин Хейкуэлл, Дон Френч, Тони Николакопулос, Майкл Тео, Шабана Азиз, Андреа СолонжПеревод: Многоголосый профессиональный (Delta Dubbing)Язык озвучки: Русский, АнглийскийПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59ACB0519A16D019812F44D2726FEF6C122D74DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863515   (1063385) от 05.04.2026
 
 Полночные откровения / The Midnight Gospel (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) NewStudio, TVShows, VGM Studio
@@ -6,7 +112,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063385.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063129.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061978.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061789.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059543.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057793.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056964.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054834.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053496.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053476.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052317.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051620.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051314.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051235.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051059.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050972.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050600.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050599.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050477.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049871.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049624.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049286.jpg" />
 </div>
 
 
@@ -564,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:412A509F32A7D9B65E3B2875A0969A4762415193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843540   (1049285) от 21.12.2025
-
-Ганц / Gantz (2004) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1 из 2, 1-13 серии из 13) Rezan & Miori [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049285.jpg" />
-</div>
-
-
-###  Подробнее
-
-После гибели под колёсами поезда метро подросток Кэй Куроно становится частью посмертной игры, в которой ему и другим недавно погибшим людям придётся выслеживать и убивать пришельцев. Каждая миссия может закончиться окончательной смертью охотников, а на смену погибшим придут новые ганцеры.Производство: Япония / GonzoЖанр: аниме, мультфильм, фантастика, боевик, ужасыРежиссер: Итиро ИтаноАктеры: Хироси Камия, Мицуаки Мадоно, Хитоми Набатамэ, Даисукэ Намикава, Масаси Оосато, Бин Сасаки, Миэ Сонодзаки, Такуро Накакуни, Хадзимэ Иидзима, Токо АоямаПеревод: Двухголосый любительский (Rezan & Miori)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53497F61AE50C946F3B40008E3C486696092CABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841077   (1047716) от 09.12.2025
-
-Южный Парк / South Park (2023) UHD WEB-DLRip [AV1/2160p] [4K, SDR, 10bit] (сезон 26, серии 1-6 из 6) HDrezka
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается вокруг приключений четырех школьников. Эрик Картман — грубый, неопрятный и постоянно сквернословящий хулиган, известный садистскими и расистскими замашками. Кайл Брофловски — религиозный мальчик, часто сталкивающийся с нападками одноклассников из-за своей ортодоксальной семьи. Стэн Марш — добросердечный пессимист, который безумно влюблён (   Читать дальше...   )Производство: США, MTV Films, Comedy Central, Paramount+Жанр: для взрослых, комедияРежиссер: Трей Паркер, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Эдриан Бирд, Элиза Шнайдер, Дженнифер Хауэлл, Джесси Томас, Мэри Кэй БергманПеревод: Многоголосый профессиональный (HDrezka 18+)Язык озвучки: РусскийСубтитры: Русскиe (forced)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDD4E8149EE6F436A40C90CF0B5FB9C32FFC892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841061   (1047713) от 09.12.2025
-
-Берсерк / Kenpuu Denki Beruseruku / Berserk (1997-1998) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-25 из 25) MC Entertainment [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через предательство и кровь к власти пришел новый король. Его демоны-подручные чинят несправедливости до тех пор, пока в город однажды ночью не приходит тяжело вооруженный воин. Весь покрытый оружием, броней и шрамами он называет себя Чёрным Мечником. Размеры его меча могут сравниться только с его ненавистью к королю и его демонам.Производство: Япония, Польша / OLM, VAPЖанр: аниме, мультфильм, фэнтези, боевик, драмаРежиссер: Наохито ТакахасиАктеры: Нобутоси Канна, Унсё Исидзука, Юко Миямура, Акира Исида, Томохиро Нисимура, Тосиюки Морикава, Акико Ядзима, Масуо Амада, Ясуюки Касэ, Хироюки ЁкооПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2908C23D8750F43DD8700EACFC60388D6B46DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840720   (1047456) от 07.12.2025
-
-Моб Психо 100 / Mobu Saiko Hyaku / Mob Psycho 100 (2019) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1-13 из 13) Force Media [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сигэо Кагэяма по прозвищу «Моб» – школьник, которому тяжело выражать свои чувства. Ещё он могущественный экстрасенс. Моб хочет жить обычной жизнью и подавляет свои сверхъестественные силы, но когда уровень накопленного стресса переваливает за 100%, с ним происходит нечто ужасное. Его окружают экстрасенсы-самозванцы, злые духи, таинственные организации. Что решит (   Читать дальше...   )Производство: Япония / BonesЖанр: аниме, мультфильм, боевик, комедия, фантастикаРежиссер: Юдзуру Татикава, Такэфуми Андзаи, Кацуя СигэхараАктеры: Сэцуо Ито, Такахиро Сакурай, Акио Оцука, Мию Ирино, Ёсицугу Мацуока, Ёсимаса Хосоя, Рюносукэ Ватануки, Сэйитиро Ямасита, Кохэй Амасаки, Даики ХаманоПеревод: Многоголосый профессиональный (Force Media)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8882965DA8F3BD6C95AB9EB34C9C8214B2EC7CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

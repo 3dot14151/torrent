@@ -6,7 +6,7 @@ Logic Pro X 10.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778763.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OmniPlan Pro 3.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778662.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yummy FTP Alias 2.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778367.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Uploader HD+ for Instagram - post pictures to Instagram 1.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778318.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Spillo 1.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777993.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Digital Clock 3D 1.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777781.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Timelime 1.4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777646.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Things 2.8.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777604.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Movavi Screen Capture Pro 5.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777483.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ OmniFocus 2.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777478.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Xilisoft Video Converter Ultimate 7.8.16 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777452.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Templates Lab for MS Office 3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777430.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.21.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777421.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Microsoft Office Standard 2016 VL v15.21.1 (with individual installers) [Multi/R
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777053.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Alien Skin Software Photo Bundle Collection (Update 05.05.2016) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777048.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Forecast 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776930.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Episode Engine with Pro Audio Option 7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776803.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Uplet: bulk instagram uploader 1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776769.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776706.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ App Uninstaller 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776509.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ FreeWay Pro 7.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776443.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ PhoneExpander 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776371.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Call Recorder for Skype 2.5.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776244.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ iSmartPhoto 1.7.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776114.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VidConvert 1.6.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775715.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Mail Designer Pro 2 v2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774985.jpg" />
 </div>
 
 

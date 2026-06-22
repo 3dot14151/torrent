@@ -1,3 +1,107 @@
+###  Публикация: 1763653   (35432) от 02.12.2024
+
+Журнал | Армейский сборник №12 (декабрь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35432.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Армейский сборник» — ежемесячный иллюстрированный военно-технический и практико-методический журнал. На его страницах – объективная информация о строительстве Вооруженных Сил России, боевой и специальной подготовке войск, а также об их тыловом и техническом обеспечении. Объект журналистского внимания – виды Вооруженных Сил и рода войск, охватывающие сферы земля, (   Читать дальше...   )Жанр: Научный, практико-методический журналИздательство: ФГБУ "РИЦ "Красная звезда" МО РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5AEB3B77E78066C11ECAE75EBFB016487AA317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763823   (35335) от 03.12.2024
+
+Журнал | Химия и жизнь №11 (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35335.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Химия и жизнь» – это не обычный научно-популярный журнал, а произведение искусства, которое заключает в себе сущность современного знания о нашем мире. Журнал в значительной мере ориентирован на преподавателей и школьников. В журнале опубликованы статьи по проблемам образования и материалы, которые могут быть использованы как дополнительные к школьному курсу.Жанр: Научно-популярный журналИздательство: АНО Центр "НаукаПресс"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471FE28D879138F25CCED884665381A8C82B7C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763829   (35327) от 03.12.2024
+
+Журнал | Знание-сила №12 (1170) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD6F364B6C06055C6333C62A3145B84B07DA319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764107   (35100) от 05.12.2024
+
+Журнал | Information Security / Информационная безопасность №5 (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематика журнала – информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Жанр: Безопасность серверов, сетей и информацииИздательство: ООО "Гротек"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795CBDC94062D02A96CECCB63A5E26B7084EF671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764446   (34948) от 07.12.2024
 
 Журнал | Наука и жизнь №12 (декабрь 2024) [PDF]
@@ -6,7 +110,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34948.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34892.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34891.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34626.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33866.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33862.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33052.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33039.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33030.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33017.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32722.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32326.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32312.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32285.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32263.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32158.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30200.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30197.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30150.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30123.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30024.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29573.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57EC7961E89DA5E2DD752CF581AEB455554F3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775711   (29506) от 28.01.2025
-
-Интернет-Журнал | Домашняя лаборатория №1 (январь 2025) [DJVU]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29506.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Интернет-изданиеФормат: DJVUКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AC02FFFB897F7A66B3D11C4F3F439146474C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599572   (29094) от 01.02.2025
-
-Подшивка журналов | Морская Кампания (2006-2012) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29094.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Морская кампания" - журнал для любителей истории флота и кораблестроения. В каждом номере публикуются редкие фотографии, чертежи и схемы, цветные варианты окраски кораблей всех стран и всех времен и многое другое.Издательство: "Издательство "Коллекция", "Издательство ВЭРО Пресс"Формат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2755B931C59E117DC2A6669F45DB318D5626477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778289   (29093) от 01.02.2025
-
-Подшивка журналов | Вокруг света (1927,1929) [PDF]
-
->>След.
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Вокруг cвета» - это один из первых журналов в России вообще и один из первых журналов в мире на познавательную тематику. Он был основан в Санкт-Петербурге в 1861 году и с того времени издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического и туристического журнала к познавательному изданию, охватывающему широкий (   Читать дальше...   )Жанр: Путешествия, приключения, открытия, фантастикаИздательство: "Красная газета" (Ленинград), "Земля и Фабрика" (Москва)Формат: PDFКачество: хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADFA29226CB0C66AC12EF36BC7E2DD4C8FFB8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722778   (29091) от 01.02.2025
-
-Подшивка журналов | Путешествие вокруг света (2000-2001) [PDF] [Обновляемая]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29091.jpg" />
-</div>
-
-
-###  Подробнее
-
-После известных дефолтных событий 1998 года, в связи с тяжелым материальным положением, широко известный всем журнал "Жанр: Научно-популярный журнал, путешествия, краеведение, публицистикаИздательство: ЗАО "Вокруг света"Формат: PDF, DjVuКачество: Хороший скан, OCR с ошибками (
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E502857B6B498ED047DD90A112E691C9C6F5A802
 ```
 
 https://mybot314.ru/tekegram_catalog/

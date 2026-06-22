@@ -1,3 +1,108 @@
+###  Публикация: 912164   (612892) от 25.06.2015
+
+Константин Ковалев | Бортнянский (1989) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающимся композитором России "доглинковского" периода по праву считается Д.С. Бортнянский. Он - один из основоположников русской национальной классической композиторской школы. В наше время все чаще звучат его знаменитые духовные хоровые концерты, в театрах и концертных залах исполняются его оперы, камерные и симфонические инструментальные произведения, (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0162AC3F626404B13CAF6152F2CDE0AEB2DEADBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912311   (612808) от 25.06.2015
+
+Вячеслав Козляков | Царица Евдокия (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя московская царица, отвергнутая жена царя Петра I, монахиня Елена, заточенная сначала в Суздальском Покровском монастыре, а затем в бастионе Шлиссельбургской крепости, и, наконец, "государыня-бабушка", считавшаяся важной и влиятельной персоной во время короткого царствования ее внука, императора Петра II, — это всё разные стороны биографии царицы-инокини (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD56346FC11B34CDAE7FA8D8E87F7DF5B05A62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912146   (612800) от 25.06.2015
+
+Михаил Лобанов | Сергей Тимофеевич Аксаков (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь и творчество известного писателя, проникновенного певца русской природы Сергея Тимофеевича Аксакова неразрывно связаны с личностями крупнейших представителей русской культуры XIX века. Биография Аксакова-отца как бы продолжает семейную хронику, давая возможность проследить и за общественной деятельностью его сыновей - К. С. и И. С. Аксаковых.Жанр: Мемуары отечественных деятелейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F6CC2C6C323A0F3621C5A02972FD8D5E602439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912175   (612796) от 25.06.2015
+
+В. А. Врубель | Адмиралы Бутаковы - флотская слава России (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Династия Бутаковых, берущая свое начало от Федора Бутакова, служившего в Новгородском полку при Иване Грозном, дала русскому Военно-морскому флоту 121 моряка, в числе которых было 19адмиралови 14 капитанов 1-го ранга. В семье Ивана Николаевича Бутакова было четыре адмирала: отец и три его сына.
+Алексей Иванович Бутаков — российский гидрограф, контр-адмирал, участник (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B02C132046A4285B28658B22ECA606023AE057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912319   (612689) от 25.06.2015
 
 Нонна Голикова | Любовь Орлова (2014) [DJVU]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612689.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612688.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612686.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612681.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612594.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612589.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612574.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612570.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612510.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612507.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612506.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612398.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612209.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612078.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611319.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611313.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610581.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609444.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609329.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609222.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609217.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609211.jpg" />
 </div>
 
 
@@ -573,111 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85F9B4DF8682936005030B81040B351F52A8E9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912947   (609113) от 27.06.2015
-
-Майкл Каллен | Быть Энтони Хопкинсом. Биография бунтаря (2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энтони Хопкинс – один из самых разноплановых и интересных актеров нашего времени. По кассовым сборам и профессиональному долголетию он опередил всех британских корифеев актерского искусства, с которыми его некогда сравнивали; и даже теперь, когда ему уже за семьдесят, непревзойденный динамизм его игры продолжает впечатлять.Жанр: Биографии и Мемуары, Кинематограф, театрПеревод: Е. А. УжанковаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFF7B2039FCB04FB6F39AD40433B7AF1271326B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912846   (608911) от 27.06.2015
-
-Народы России. Живописный альбом (1877) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание быта, обычаев, происхождения народов России.
-Народы,населяющие Россию, столь разнообразны по своим типам,костюмами, нравами и обычаями, что описание их и наглядное изображение всегда возбуждало интерес, и в начале настоящего века было несколько заграничных изданий, которые, по тогдашнему состоянию художественной техники, было весьма несовершенны, а кроме (   Читать дальше...   )Жанр: История, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2F698A4489F49A6376A28EC6BA753F5FB69D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912926   (608450) от 27.06.2015
-
-Евгений Примаков | Встречи на перекрестках (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Примаков по роду своей деятельности был одним из самых секретных людей страны. Он начинал как журналист, был директором Института мировой экономики и международных отношений, который во времена СССР готовил закрытые доклады для руководства страны. На переломе эпохи от тоталитаризма к демократии был «брошен» М. Горбачевым и Б. Ельциным на Службу внешней разведки, (   Читать дальше...   )Жанр: Политика, Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA90045B374942D40D3E2AB5D9D96EB32A53FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147576   (607856) от 03.07.2017
-
-И. Ленц | История Второго Интернационала (1931) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй интернационал, также Социалистический интернационал или Рабочий интернационал — международное объединение социалистических рабочих партий, созданное в 1889 году. Продолжил традиции Первого интернационала, однако в нём с 1893 года не участвовали анархисты. Для постоянной связи между партиями-членами в 1900 году было учреждено Международное социалистическое (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE403B795C92EA1576E44B6334E70B1D419B9D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

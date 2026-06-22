@@ -1,3 +1,107 @@
+###  Публикация: 1011195   (547055) от 01.09.2016
+
+King's Quest: Chapter 1-3 (2015) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547055.jpg" />
+</div>
+
+
+###  Подробнее
+
+King's Quest является переосмысленным вариантом классической серии, подходящим как для новых игроков, так и для фанатов оригинала. Игровой процесс построен на увлекательных головоломках и сюжете, полном зубодробительного юмора. В новой истории король Грэм, считающийся самым известным путешественником всех времен, рассказывает о своих приключениях любопытной внучке (   Читать дальше...   )Тип издания: LicenseРазработчик: The Odd GentlemenЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F673EC5BF70BA0C95C7B56BA09165E330772A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048633   (546388) от 02.09.2016
+
+Ian’s Eyes (2016) [En/Es] (1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ian's Eyes - это приключенческий хоррор, в котором собака-поводырь защищает слепого мальчика Яна от нападений жутких существТип издания: LicenseРазработчик: Sindie GamesЖанр: Adventure (Horror)Язык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8133BCA6A4EE85E77296641B4202AE251646843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048656   (546296) от 02.09.2016
+
+Ian’s Eyes (2016) [En/Es] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ian's Eyes - это приключенческий хоррор, в котором собака-поводырь защищает слепого мальчика Яна от нападений жутких существТип издания: RepackРазработчик: Sindie GamesЖанр: Adventure (Horror)Язык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294BE4BC47D35C03790F99DDFB0385F34C296ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048499   (546220) от 02.09.2016
+
+Joana’s Life (2016) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joana's Life - игра в приключенческом жанре от студии Old Shack Studio. В одном из частей города  происходит ряд странных и ужасных смертей, каким-то непонятным образом связанных друг с другом. Однажды вы нашли старое изношенное зеркало, которого не было ранее в вашем доме...Тип издания: LicenseРазработчик: Old Shack StudioЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8F8F776A3F6B3DE23CAA8004B5CC9724E8B3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048585   (546171) от 02.09.2016
 
 The Underground Man / Подземный человек (2016) [Ru/En] (1.0) Repack Лeвиафaн
@@ -6,7 +110,7 @@ The Underground Man / Подземный человек (2016) [Ru/En] (1.0) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546171.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ De-Void (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545467.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ De-Void (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545328.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ CURSE (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544629.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ CURSE (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544417.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Deluded Mind (2018) [Ru/Multi] (1.8.6) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544345.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ The Sinking City (2019) [Ru/Multi] (3709.2/dlc) Repack xatab [Necronomicon Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544093.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544089.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Hunted: One Step Too Far (2016) [En] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543496.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. C
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542258.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Submerged (2015) [Ru/Multi] License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542238.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Blues & Bullets: Episode 1 (2015) [Ru/En] License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542218.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Dream (2015) [Ru/Multi] (1.0.8767.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539772.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Draugen (2019) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539423.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.2.100) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539419.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Dungeons of Edera (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537046.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Don't Play With Dolls (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534758.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Jotun (2015) [Ru/Multi] (1.0/upd3) Repack Other s [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534152.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ The Initiate (2017) [En] (1.05) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533218.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Tacoma (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533043.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532188.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Broken Age - The Complete Adventure (2014) [Ru/Multi] (2.4.800398) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531977.jpg" />
 </div>
 
 
@@ -567,114 +671,6 @@ Broken Age - это семейная, анимированная вручную 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464A9F4B0D5015507A219F967B314DCBC9E03CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240074   (531205) от 09.08.2018
-
-Shining Song Starnova (2018) [En] (1.00) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выйдите на сцену в Shining Song Starnova! Девочки подписали контракт со STARNOVA, надеясь стать поп-идолами, как грезилось им в мечтах. Но вместо этого они оказались в ловушке бессердечного бизнеса, где выживает сильнейший. На пути к осуществлению своей мечты они сталкиваются с суровой реальностью: оказывается, быть звездой не так уж и здорово, как это показывали (   Читать дальше...   )Тип издания: LicenseРазработчик: Love in SpaceЖанр: Симулятор, Визуальные новеллы, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8951A4CB0476E78976CE95280D97BD20136E232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155779   (530974) от 04.08.2017
-
-Tacoma (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tacoma — приключенческая игра с увлекательным сюжетом, действия которой разворачиваются в 2088 году на высокотехнологичной космической станции. Вам предстоит исследовать лунную базу, выяснить, как на ней жили и работали члены экипажа и что именно там произошло. Вам откроется удивительная история о вере, страхе и непоколебимости перед лицом опасности.Тип издания: RepackРазработчик: FullbrightЖанр: Adventure (Space), 1st Person, 3D, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0D31F499728C11D4832E8B8D33894FE201A612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698134   (529910) от 08.09.2013
-
-Memoria (2013) [Ru/Multi] (1.1.4.0336) SteamRip R.G. Игроманы
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529910.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Memoria переплетены истории двух персонажей, вместе с которыми игрок пройдет сквозь разные эпохи. Саджа, принцесса с Юга, мечтает совершить военный подвиг, а ловец птиц из другого времени Джерон пытается снять проклятие с любимой. Геймплей сочетает стиль point & click и магические умения героев.
-
-  Саджа, принцесса с Юга, обладает неутолимым желанием стать величайшим героем военной истории. Поэтому она становится участником самой масштабной войны, когда-либо происходившей в Авентурии — войны магов, которая разворачивается посреди бесплодной пустыни.
-  Ловец птиц Джерон живет почти 450 лет спустя после окончания Великой войны. На Нури, любовь всей жизни Джерона, было наложено проклятие, из-за которого она превратилась в ворону. Чтобы вернуть ей человеческий облик, Джерону нужно найти таинственного купца Фахи, который обладает магической силой. Однако Фахи поможет Джерону только после того, как тот отгадает загадку, которую купец увидел во сне. Поиски ответа на загадку вскоре приводят к череде событий, которые переплетают судьбы Саджи и Джерона, угрожая превратить настоящее во всего лишь тусклое отражение давно забытого прошлого.
-(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862AEA80AD998B13FD295A39CE304E96D81B41D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312803   (528954) от 06.07.2019
-
-I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последние люди, уцелевшие на Земле, сидят глубоко в недрах планеты. На протяжении 109 лет они были пленниками безумного суперкомпьютера. Горристер – одиночка, думающий о самоубийстве. Бенни – мутировавший громила. Эллен – боязливая истеричка. Нимдок – замкнутый садист. Тед – циничный параноик. И теперь они сыграют в одну игру... Have No Mouth and I Must Scream отправляет (   Читать дальше...   )Тип издания: LicenseРазработчик: CyberdreamsЖанр: Приключение, Квест, ХоррорЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580C3C7C2C369AAD222C3C23937CE4887A7C274C
 ```
 
 https://mybot314.ru/tekegram_catalog/

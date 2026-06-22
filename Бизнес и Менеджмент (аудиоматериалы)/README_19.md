@@ -1,3 +1,55 @@
+###  Публикация: 1780281   (27314) от 17.02.2025
+
+Алексей Минкевич, Сергей Дерцап | Проджект-менеджмент. Как быть профессионалом (2021) [MP3, Роман Рассказов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27314.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ну что нового можно сказать об управлении проектами!» – недоверчиво подумает кто-то, увидев обложку. В опутанном информационной паутиной мире сказать что-то новое вообще становится всё труднее. Поэтому так ценны теоретические знания, отлично систематизированные и пропущенные через личный опыт. У авторов книги на двоих – более 20 лет боевой практики управления проектами. (   Читать дальше...   )Жанр: организационный менеджмент, управление бизнесом, управление проектамиИздательство: Альпина ДиджиталПродолжительность: 08:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96DD236BC9D710138605F96A2DE07965C6B3A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781970   (26353) от 26.02.2025
+
+Дамир Халилов | Метод скользкой горки. Сторителлинг для Reels, Stories, TikTok-роликов и других форматов социальных сетей (2022) [MP3, Дамир Халилов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждую минуту больше трёх миллиардов людей делятся в соцсетях сотнями миллионов видео, сообщений, твитов, аудиозаписей, фотографий и картинок. Когда контента так много, конкуренция между брендами за внимание пользователей становится всё сильнее, и успех маркетинговой кампании зависит от того, как быстро вы успеваете адаптироваться к изменениям и предсказывать тренды. (   Читать дальше...   )Жанр: SMM / маркетинг в соцсетях, контент-маркетинг, копирайтинг, реклама, сторителлингИздательство: Альпина ДиджиталПродолжительность: 10:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C5BE176D11B57BC173A7D13B6E1D1C249C389B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782934   (25834) от 03.03.2025
 
 Дональд Джон Трамп | Трамп никогда не сдается. 41 урок лидерства от эксцентричного миллиардера (2021) [MP3, Максим Гамаюнов]
@@ -6,7 +58,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25834.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25611.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25204.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23844.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23202.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21943.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20611.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19549.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19242.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19126.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18916.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18475.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18346.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18188.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17687.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17482.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17131.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16197.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16092.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15858.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15148.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15044.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14749.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14098.jpg" />
 </div>
 
 
@@ -636,62 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9036450032C4CF50552BFA9EFE645969E7A88C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803888   (13369) от 26.06.2025
-
-Максим Котин | Пионеры Кремниевой долины. История первого стартапа из России, покорившего мир (2021) [MP3, Михаил Лукашов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13369.jpg" />
-</div>
-
-
-###  Подробнее
-
-История компании «Параграф» и ее создателя Степана Пачикова. И одновременно – ландшафт постсоветского времени и зарождающегося Рунета.
-Максим Котин родился в 1980 году в Петербурге. Работал репортером и редактором в журналах «Секрет фирмы», Forbes, «Сноб».
-В 2007 году выпустил свою первую большую работу – бестселлер о бизнесе по-русски «Чичваркин Е..гений». За нее (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 07:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E366CA65997AC386748D9000B7F443D226ED119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804061   (13299) от 27.06.2025
-
-Радислав Гандапас | Скрипты и алгоритмы успеха (2024) [MP3, Андрей Курилов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успех – это не случайность, а система действий.
-Разберите формулу успешности вместе с Радиславом Гандапасом, консультантом топ-менеджеров крупнейших компаний.
-В аудиокниге – конкретные стратегии, которые помогут раскрыть потенциал и достичь желаемого без ущерба для жизни и карьеры. Радислав Гандапас – президент Ассоциации спикеров СНГ, единственный в России обладатель (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 07:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62465475C7C2CF869085B0D5A1C979C5991CE40
 ```
 
 https://mybot314.ru/tekegram_catalog/

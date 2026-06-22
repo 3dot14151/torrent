@@ -1,3 +1,82 @@
+###  Публикация: 1145686   (619683) от 26.06.2017
+
+Наталья Варлей. Свадьбы не будет! (2017) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наталья Варлей стала всенародной любимицей в 19 лет. «Кавказская пленница» сделала ее «спортсменкой, комсомолкой и просто красавицей» на все времена! Гайдай увидел Наталью в цирке, под самым куполом — та работала воздушной гимнасткой — и понял: вот его героиня! Юная Нина в исполнении Натальи Варлей была наделена редким обаянием, живостью ума и отличным чувством юмора. (   Читать дальше...   )Телекомпания: Россия / ООО «КОНТРАСТ»Жанр: Документальный, История, БиографияЯзык субтитров: РусскийПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0117BA6B6EBD4AE545A70B02ADAD9D0C2F43D047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911027   (619402) от 21.06.2015
+
+Настоящая кровь. Прощальное шоу / True Blood. A Farewell To Bon Temps (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о создании одного из самых успешных сериалов HBOТелекомпания: Home Box Office (HBO)Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C4AF0A8AB798574A27F3F445D6FBAC31DB5AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145596   (617968) от 27.06.2017
+
+Солдаты 9 1/2 «Наизнанку» (2006) SATRip (Серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы многосерийного фильма «Солдаты. Наизнанку» включили в свое повествование интересные переплетения судеб реальных и вымышленных, лучшие эпизоды сериала и ситуации, не вошедшие в кадр, настоящую любовь и битву самолюбий, фанов и поклонников – в общем все то, что так или иначе произвела на свет эта сложная махина под названием «Солдаты».
+В фильме «Солдаты. Наизнанку» (   Читать дальше...   )Телекомпания: Рен ТВЖанр: Документальный, сериал о сериалеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B4D65EAA2D0D02EE19F29DFD88A121CE9067DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036846   (617277) от 22.07.2016
 
 Три жизни Евгения Евстигнеева (2011) SATRip
@@ -6,7 +85,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617277.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617194.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615405.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615371.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614920.jpg" />
 </div>
 
 
@@ -144,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614910.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613835.jpg" />
 </div>
 
 
@@ -198,7 +277,7 @@ U2: С небес на Землю / From The Sky Down (2011) HDTV [H.264/1080i]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611891.jpg" />
 </div>
 
 
@@ -224,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609903.jpg" />
 </div>
 
 
@@ -250,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609132.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608705.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604135.jpg" />
 </div>
 
 
@@ -329,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603924.jpg" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603316.jpg" />
 </div>
 
 
@@ -381,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602026.jpg" />
 </div>
 
 
@@ -407,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601941.jpg" />
 </div>
 
 
@@ -433,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601896.jpg" />
 </div>
 
 
@@ -459,7 +538,7 @@ BBC: Когда альбомы правили миром / When Albums Ruled the
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601887.jpg" />
 </div>
 
 
@@ -485,7 +564,7 @@ BBC: Когда альбомы правили миром / When Albums Ruled the
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601869.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599670.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599054.jpg" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598474.jpg" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598016.jpg" />
 </div>
 
 
@@ -603,88 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB9B40B465C7881BA9AF2367874E84082CAB6AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526738   (597146) от 24.07.2012
-
-ВИА от рассвета до заката (2 серии) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597146.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме бывшие участники ВИА вспомнают всю историю становления Вокально Инструментальнх Ансаблей бывшего СССР.
-Так же в фильме есть фрагменты выступлений ВИА Авангард 66, Сокол,
-Аракс, Скифы, Песняры, Поющие гитары,
-Дружба, Голубые гитары, Цветы, Веселые ребята,
-Самоцветы и многих других групп.Жанр: ДокументальныйПродолжительность: 01:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C503D07995D2C3791F366A5F2D0478E89E748960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914914   (594776) от 04.07.2015
-
-Фрунзик Мкртчян. Трагедия смешного человека (2010) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его улыбка была неотразимой, актерское дарование блистательным, а огромный нос всегда становился предметом внимания острословов. Легкий, ироничный и внешне абсолютно беззаботный человек, к тому же баловень судьбы: немногим советским актерам выпала такая слава. Фрунзик Мкртчян казался олицетворением абсолютного успеха. Кому еще все милиционеры Еревана козыряли на (   Читать дальше...   )Телекомпания: Россия, ТВЦЖанр: ДокументальныйПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29AFE649262B69269EFB4037B3E00B5C271CE722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 30987   (594687) от 14.07.2017
-
-Брюс Ли: Путь Воина / Bruce Lee: A Warrior's Journey (2000) DVDRip
-
->>След.
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его знаменитый одно-дюймовый удар мог свалить с ног. Он мог отжиматься на одном пальце. Все это вы сможете увидеть в фильме Брюс Ли: Путь воина. Впервые вы сможете увидеть что-то поразительное: более 30 минут боя в амбициозном, обнажающем душу фильме, который делал Ли, когда погиб 20 июля 1973 года. Джон Литтл работал с бесценным киноматериалом, который никто не (   Читать дальше...   )Жанр: Документальный, боевик, биографияРежиссер: Джон ЛиттлПеревод: Многоголосый, ЗакадровыйПродолжительность: 01:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B015AE97E0FE5A5016F5240220A1A1D6F9C681C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

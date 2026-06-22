@@ -1,3 +1,83 @@
+###  Публикация: 1366149   (925305) от 10.03.2020
+
+Ubuntu*Pack KDE (Kubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95105D22A79B5D0438D10C7976D4C12A90D5BABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489604   (925218) от 16.08.2021
+
+Debian Edu - Skolelinux 11.0.0 Bullseye + nonfree [Linux для школы] [i386, x86-64] 4xBD, 4xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEF118038A1D78F06C540197BA64759BB4B4DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366150   (925154) от 10.03.2020
+
+Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B136B9F78DF74607000D9EA6A3DBE603073ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366156   (925144) от 10.03.2020
 
 Ubuntu*Pack Xfce (Xubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
@@ -6,7 +86,7 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925144.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920422.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Lubuntu 14.04.4 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920280.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ Xubuntu 14.04.4 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920226.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Ctlos Linux Openbox 1.2.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920070.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918633.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918496.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915590.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_914721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_914721.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ Tor Browser 2.3.25-5 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912648.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ Zentyal 3.0.2 [Сервер для дома и малого бизнеса] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912439.jpg" />
 </div>
 
 
@@ -301,7 +381,7 @@ Linux Mint Debian Edition (MATE/Cinnamon) 201303 [x32 + x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912300.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ Ubuntu*Pack Unity 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908708.jpg" />
 </div>
 
 
@@ -358,7 +438,7 @@ Ubuntu*Pack Cinnamon 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908634.jpg" />
 </div>
 
 
@@ -385,7 +465,7 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905788.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ Window Maker Live 0.95.7-3 (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903728.jpg" />
 </div>
 
 
@@ -437,7 +517,7 @@ Parrot Security OS 4.8 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903032.jpg" />
 </div>
 
 
@@ -463,7 +543,7 @@ BlackArch Linux 2017.01.28 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898799.jpg" />
 </div>
 
 
@@ -489,7 +569,7 @@ Kubuntu 14.04 Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896080.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ Lubuntu 14.04 Beta I (легкий дистрибутив) [i386, amd64] 4xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895994.jpg" />
 </div>
 
 
@@ -543,7 +623,7 @@ Ubuntu Gnome 14.04 Trusty Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895661.jpg" />
 </div>
 
 
@@ -571,7 +651,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894133.jpg" />
 </div>
 
 
@@ -599,7 +679,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892823.jpg" />
 </div>
 
 
@@ -612,89 +692,6 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84CD119116BA8D17AF579BBC6BC91D6EA1E04327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762247   (892190) от 02.03.2014
-
-Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов) [x86-64] 9xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net.
-
-Новости в дистрибутиве: обновлен пакетный менеджера Pamac 0.9.7; возможность включения/отключения поддержки AUR (пользовательских репозиториев); у иконки уведомлений в трее пакетного менеджера Pamac изменен период обновлений; удалены ненужные зависимости; изменены настройки через pamac-manager/updater GUI; добавлена запись 'Просмотр истории' в меню pamac-менеджера; добавлена поддержка AUR в инсталляционный скрипт менеджера pacmac (данная функция работает, если она включена в конфигах pamac.conf). Добавлены новые возможности в MHWD (Manjaro Hardware Detection): поддержка сетевых карт. Добавлен раздел «/home» в режиме автоматической установки. Исправлена проблема изменения размера окна в настройках языка. Исправлена проблема (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7E5B900A864BF5D98DD72E87CC1F3B34051278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762256   (892067) от 02.03.2014
-
-Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) [i686] 9xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net.
-
-Новости в дистрибутиве: обновлен пакетный менеджера Pamac 0.9.7; возможность включения/отключения поддержки AUR (пользовательских репозиториев); у иконки уведомлений в трее пакетного менеджера Pamac изменен период обновлений; удалены ненужные зависимости; изменены настройки через pamac-manager/updater GUI; добавлена запись 'Просмотр истории' в меню pamac-менеджера; добавлена поддержка AUR в инсталляционный скрипт менеджера pacmac (данная функция работает, если она включена в конфигах pamac.conf). Добавлены новые возможности в MHWD (Manjaro Hardware Detection): поддержка сетевых карт. Добавлен раздел «/home» в режиме автоматической установки. Исправлена проблема изменения размера окна в настройках языка. Исправлена проблема (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516B4096A56C902AF39E849603363993B1082DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994225   (889086) от 08.03.2016
-
-Parted Magic 2016-03-02 [x86, x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic - дистрибутив на основе Linux, предназначенный для различных дисковых операций: очистка, восстановление, создание файловой системы, разбиение на разделы, клонирование, резервное копирование. Также в дистрибутиве содержатся утилиты тестирования и диагностирования.
-Система является Live-версией, не требующий инсталляции. Загрузка возможна с CD, USB или (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC162367331F7A31BE39F773AF8EF36709151205
 ```
 
 https://mybot314.ru/tekegram_catalog/

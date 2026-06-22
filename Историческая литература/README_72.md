@@ -1,3 +1,109 @@
+###  Публикация: 1252907   (388032) от 07.10.2018
+
+И. Пинксис и др. | Революционная Лиепая (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных статей «Революционная Лиепая» является первой в исторической литературе Советской Латвии попыткой познакомить трудящихся нашей республики с историей Лиепаи — одного из крупнейших промышленных и культурных центров Советской Латвии, со славными революционными традициями этого города в борьбе за советскую власть, а также с его достижениями в социалистическом (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3C7CE29F0566D04096D020E01DB98D37E8BED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252911   (388028) от 07.10.2018
+
+Я. А. Балагуров (ред.) | Кижское восстание [1769-1771] (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление олонецких приписных крестьян в 1769-1771 годах было наиболее значительным событием в истории Карелии феодальной эпохи. Движение крестьян охватило русские, карельские и вепсские погосты и волости с населением около 40 тыс. человек. Центром движения стала территория старинного Кижского погоста. В настоящем сборнике представлены документы, рассказывающие (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5376D6FFE03AB06E6E6C07326C92AA754A0C90F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253085   (387713) от 07.10.2018
+
+Андрей Гусаров | Исторические здания Петербурга. Прошлое и современность. Адреса и обитатели (2018) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вновь мы обращаемся к прошлому петербургских зданий, продолжая рассказ, начатый в книге «Знаменитые петербургские дома». Новое путешествие по Северной столице начнем по традиции с главной городской магистрали – Невского проспекта – и прогуляемся далее по историческому центру, старым Литейной и Рождественской частям, посетим Петроградскую сторону и Васильевский остров. (   Читать дальше...   )Жанр: История; Архитектура; ИскусствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B29A235EB2968B44E95B1EF0E24DD22F875E4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252929   (387696) от 07.10.2018
+
+В. И. Ленин и др. | Ленинский сборник [40 томов из 40] (1924-1985) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387696.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ленинские сборники" - это сборники, в которых опубликованы рукописи подготовительных материалов к произведениям и выступлениям В. И. Ленина, проекты постановлений, наброски, конспекты и тезисы по различным вопросам, а также письма, телеграммы и записки, написанные Лениным за период 1895-1923 гг.
+
+Единого порядка размещения материала в "Л. с." (   Читать дальше...   )Жанр: История, политология, экономика, философия, правоведение, логика, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0F50BD4AF818B84B34A694390970BD1EE3E1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174324   (387363) от 14.10.2017
 
 Бернард Льюис | Арабы в мировой истории. С доисламских времен до распада колониальной системы (2017) [FB2, EPUB]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387363.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387251.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387094.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386950.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386944.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386801.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386796.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385374.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385350.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385005.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384479.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384364.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383269.jpg" />
 </div>
 
 
@@ -355,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382995.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382211.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381610.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381608.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381493.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380425.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378575.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378299.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377655.jpg" />
 </div>
 
 
@@ -579,110 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D166C816349764426E32DFD18B81CFD40E2E73C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949293   (377576) от 23.10.2015
-
-М. А. Барг | Народные низы в Английской буржуазной революции XVII века. Движение и идеология истинных левеллеров (1967) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377576.jpg" />
-</div>
-
-
-###  Подробнее
-
-История народных низов в период английской буржуазной революции 40-х годов XVII в. - вопреки ее принципиальной и общепризнанной в советской историографии важности для научного осмысления истории революции в целом - все еще остается малоизученным. Настоящая книга предпринимает попытку исправить это и посвящена истории крайне левого крыла революционной демократии в (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D89844CE02F2A4407021A33E7CCAAC022C2EA13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573483   (377541) от 11.11.2012
-
-Юрий Елхов | А было ли на Руси татаро-монгольское игo [2008] [PDF]
-
->>След.
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отлично иллюстрированная книга "А было ли на Руси татаро-монгольское игo" Юрия Елхова, кинодраматyрга и кинорежиссера, написана по сценарию исторического документального фильма "Кресты и полумесяцы". Сам, так и не состоявшийся кинофильм, основан на работах А. Фоменко и Г. Hоcoвcкoгo, которые всколыхнули всю научно-историческую общественность и пошатнули всю общепринятую хронологию мировой истории.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24C2B02EDB7EE6AA1C82E84390820C86F790FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175849   (376626) от 19.10.2017
-
-Александр Зацепин, Юрий Рогозин | «…Миг между прошлым и будущим» (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Композитор Александр Сергеевич Зацепин, автор музыки к популярнейшим кинофильмам и песням, человек необыкновенно разносторонний, интересный и очень позитивный. Его увлекательные, с юмором рассказанные истории о жизни, звездах кино и эстрады, отечественных и зарубежных режиссерах и актерах – от Леонида Гайдая, Юрия Никулина и Аллы Пугачевой до Клаудии Кардинале и (   Читать дальше...   )Жанр: Биографии и Мемуары, МузыкаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54697F42FF2E4D61E874CF5F95C4FA6BC657C70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175886   (376449) от 19.10.2017
-
-Н.И. Костомаров | Исторические монографии и исследования [12 томов] (1863-1872) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед читателем прижизненное издание трудов Н. И. Костомарова, в котором удачно соединялись историк-мыслитель и художник, что обеспечило ему не только одно из первых мест в ряду русских историков, но и наибольшую популярность среди читающей публики. Глубоко вдумываясь, почти вживаясь в изучаемую им старину, он воспроизводил ее в своих работах такими яркими красками, (   Читать дальше...   )Жанр: История ОтечестваФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CF30591768002B8A7C77237FD4976CF3C52882
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1024623   (1044585) от 20.01.2023
+
+Простая формальность / Una pura formalita (1994) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Той ночью разразилась страшная гроза. Пытаясь спрятаться, он бежал по улицам, не зная куда, как вдруг путь ему преградили трое. Вскоре он был арестован. За что? В чем его преступление? Это первый фильм, который поставил не Роман Поланский, и в котором он сыграл одну из главных ролей. Единственный фильм Джузеппе Торнаторе, где он выступил не только сценаристом и режиссёром, (   Читать дальше...   )Производство: Италия, ФранцияЖанр: Триллер, драма, криминал, детективРежиссер: Джузеппе ТорнатореАктеры: Жерар Депардьё, Роман Полански, Серджио Рубини, Никола Ди Пинто, Тано Чимароза, Паоло Ломбарди, Мария Роза Спаньоло, Альберто Сирони, Джованни Морриконе, Махди КрайемПеревод: Профессиональный многоголосый, авторскийЯзык субтитров: РусскийПродолжительность: 01:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6763221003A693BDE79CB907C5BD6A56D220659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606235   (1044501) от 21.01.2023
+
+Буря в пустыне / Браво-два-ноль / Bravo Two Zero (1999) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044501.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённой книге Энди Макнаба. В фильме показана реальная история произошедшая с патрулём Специальной авиационной службы (SAS) Великобритании во время войны в Персидском заливе (1991). Патруль «Браво-два-ноль» в ходе выполнения задания по поиску и обнаружению мобильных установок иракских ракет «Скад» был обнаружен противником. Четверо членов патруля попали в (   Читать дальше...   )Производство: ЮАР, Великобритания, BBC, Distant Horizon, Icon Entertainment International, Videovision EntertainmentЖанр: драма, военный, боевик, триллерРежиссер: Том КлеггАктеры: Шон Бин, Джэми Бартлетт, Кевин Коллинз, Йен Кертис, Ричард Грэм, Роберт Хоббс, Стив Николсон, Рик Уорден, Рон Сеньор мл., Роберт УайтхедПеревод: авторские (Василий Горчаков; Юрий Живов)Язык озвучки: русский, английскийСубтитры: нетПродолжительность: 02:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A547AF2250E486F07847CC197BB28CC138E9D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606273   (1044480) от 21.01.2023
+
+Пария / Despiser (2003) DVDRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повздоривший с женой независимый художник и не предполагал, что это еще не самая большая беда в его жизни. Он попадает в автокатастрофу и ему уготовано долгое путешествие в полном опасностей Потустороннем Мире, где идет непрерывная схватка невообразимых и в самом изощренном кошмаре тварей и их антиподов...Производство: США / Eagle Films Inc., Green SolutionsЖанр: ужасы, фэнтезиРежиссер: Филип Дж. КукАктеры: Марк Редфилд, Даг Браун, Гейдж Шеридан, Фрэнк Смит, Майкл Вайц, Tara Bilkins, Майк Дизель, Марк Хайд, Эндрю Бартлетт, Энрике КастиллоПеревод: Двуголосый любительскийЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6693ECB88D2D5818D1CB4F71618B364964506E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606240   (1044469) от 21.01.2023
+
+Хранитель тайн / Objetos (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марио обладает особым даром — он может разгадывать секреты, которые хранят даже самые простые вещи. Однажды к нему попадает чемодан с жутким содержимым. Марио начинает расследование.Производство: Испания, Аргентина, Германия / Comunidad de Madrid, Crea SGR, Instituto Nacional de Cine y Artes Audiovisuales (INCAA)Жанр: триллерРежиссер: Хорхе ДорадоАктеры: Альваро Морте, Мария Эухения Суарес Риверо, Вероника Эчеги, Даниэль Араос, Энди Горостиага, Майтане Сан Николас, Пепа Грасиа, Сорион Эгилор, Сельва Алеман, Дэвид ЛюкПеревод: Дублированный (Велес)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E39DB57838F5F6DAA41532C9C2CF28849244E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606427   (1044357) от 22.01.2023
+
+С детьми что-то не так / There's Something Wrong with the Children (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная пара с двумя маленькими детьми в компании давних друзей отправляется на выходные в лес, где компания сталкивается с какими-то необъяснимыми явлениями. А после возращения их дети начинают вести себя очень странно.Производство: США / Blumhouse Television, Epix Film ProductionЖанр: ужасыРежиссер: Роксанна БенжаминАктеры: Аманда Крю, Зак Гилфорд, Бриелла Гуиса, David Mattle, Карлос Сантос, Рамона Тайлер, Алиша ВейнрайтПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), французскиеПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACD015D47CD5250F4A0289E656D7F5DBADECC17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 655879   (1044355) от 22.01.2023
 
 Жыве Беларусь! / Viva Belarus! / Zyvie Belarus (2012) WEB-DLRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044355.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044351.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044341.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044279.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044269.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044213.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044188.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044186.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044119.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044047.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044045.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044006.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043991.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043988.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043987.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043986.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043926.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043879.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043820.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043812.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043787.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BAEA50B94EC1250083303B9BFD705A1AE2AB387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607867   (1043779) от 28.01.2023
-
-Тюрьма 77 / Modelo 77 (2022) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 год. Бухгалтер Мануэль несправедливо приговорен к 20 годам лишения свободы. При помощи своего сокамерника он станет лидером движения, которое объединит все тюрьмы в борьбе за свою свободу и изменит тюремные законы и общество навсегда.Производство: Испания / Atípica Films, Movistar+Жанр: триллерРежиссер: Альберто РодригесАктеры: Мигель Эрран, Хавьер Гутьеррес, Хесус Карроса, Каталина Сопелана, Фернандо Техеро, Хави Саес, Виктор Кастилья, Альфонсо Лара, Иньиго де ла Иглесиа, Иньиго АрамбуруПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8209CAAB20447B083F1726289F76DCB5228DC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607774   (1043776) от 28.01.2023
-
-Переливание / Transfusion (2023) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший оперативник спецназа Райан Логан вынужден пожертвовать принципами и преступить закон, чтобы спасти своего единственного сына.Производство: Австралия / Altitude Media Group, Buff Dubs, Deeper Water, Madman EntertainmentЖанр: триллер, криминалРежиссер: Мэтью НэйблАктеры: Сэм Уортингтон, Фиби Тонкин, Сьюзи Портер, Мэтью Нэйбл, Джереми Линдсэй Тейлор, Сэм Парсонсон, Сэм Коттон, Джулиан Марун, Дэмиен Страутос, Джордж ХувардасПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26DC62A62DF07226DCA1B6F7CBCC6D2B364232E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607638   (1043771) от 28.01.2023
-
-М3ГАН / M3GAN / M3gan (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043771.jpg" />
-</div>
-
-
-###  Подробнее
-
-10-летняя Кэди вместе с папой и мамой попадает в автоаварию. Родители погибают, а девочка отправляется жить к тёте Джемме — сотруднице корпорации по производству технологичных игрушек. Не зная, как справиться с внезапно свалившейся на неё ответственностью, и не особо желая тратить на племянницу время, Джемма знакомит Кэди с экспериментальной куклой-андроидом М3ган, (   Читать дальше...   )Производство: США, Новая Зеландия / Blumhouse Productions, New Zealand Film Commission, Universal PicturesЖанр: ужасыРежиссер: Джерард ДжонстоунАктеры: Эллисон Уильямс, Вайолет Макгроу, Эми Дональд, Дженна Дэвис, Ронни Чиэн, Брайан Джордан Альварез, Джен Браун, Стефан Гарно, Лори Дунги, Эми АшервудПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH), французскиеПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6EB0BDF83C3B5E5B91AB544E511CF5C156FA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607878   (1043770) от 28.01.2023
-
-Битва при Нарвике: Первое поражение Гитлера / Kampen om Narvik / Narvik: Hitler's First Defeat (2022) WEB-DLRip [H.264] [МVO]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апрель 1940 года. Взоры всего мира устремлены на Нарвик, маленький городок на севере Норвегии, источник железной руды, необходимой для военной техники Гитлера. За два месяца ожесточенной зимней войны Гитлеру нанесено его первое поражение.Производство: Норвегия, Nordisk Film Production ASЖанр: драма, военный, историяРежиссер: Эрик ШёлдбьергАктеры: Хенрик Местад, Kristine Hartgen, Бен Гарлик, Стиг Хенрик Хофф, Карл Мартин Эггесбё, Magnus Dugdale, Хольгер Хандтке, Кристоф Бах, Олли Кэмпбелл, Эмиль ЙонсенПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: РусскийСубтитры: Русские, Английские (Forced, SDH)Продолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C248BD2103A531479CAADC08F0C0BC270685A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607313   (1043768) от 28.01.2023
-
-Страна сладостей / Candy Land (2022) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наивная и набожная на первый взгляд молодая девушка пытается найти свой путь в подпольном мире секс-работников на остановке грузовиков.Производство: США / Roxwell FilmsЖанр: ужасы, триллерРежиссер: Джон СвобАктеры: Иден Бролин, Уильям Болдуин, Оливия Луккарди, Оуэн Кэмпбелл, Гвиневер Тёрнер, Брэд Картер, Билли Блэр, Сэм Кортин, Брюс Дэвис, Вирджиния РэндПеревод: Двуголосый любительский (Pazl Voice, Yuka_chan & datynet | 18+)Язык озвучки: русский, английскиСубтитры: русские, английские (full, SDH)Продолжительность: 01:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B31387132D4D94D13642629CE8E64DD2844DC4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

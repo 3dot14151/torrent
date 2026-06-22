@@ -1,3 +1,29 @@
+###  Публикация: 1223011   (680561) от 01.05.2018
+
+Кролик Питер / Peter Rabbit (2018) BDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о приключениях маленького и непоседливого крольчонка по имени Питер, который хочет пробраться в огород к грозному фермеру и вдоволь полакомиться там фруктами и овощами.Производство: Австралия, США, 2.0 Entertainment, Animal Logic Entertainment, Animal LogicЖанр: Мультфильм, Комедия, Приключения, Фэнтези, СемейныйРежиссер: Уилл ГлакПеревод: Дублированный (iTunes)Субтитры: Русские (full), Украинские (full), Английские (full)Продолжительность: 01:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A0B4463E5E48DC58EB8C8D6A1EB3F1AF5C431D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290207   (677894) от 20.03.2019
 
 Мой друг дельфин Эхо / Dolphin Kick (2019) WEBRip [MVO]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677894.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674965.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674744.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658022.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656923.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656913.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654707.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653101.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652805.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651143.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651138.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651045.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651041.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650949.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646495.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646490.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645311.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643185.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642442.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637189.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636109.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633147.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632268.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629473.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629231.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6122EE2D04B81D788B5B0EF04FCB5B5C84DB932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908730   (625672) от 18.06.2015
-
-Мои приключения. В.ШВШВРМ / Swchwrm (2012) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятилетний мальчуган хочет стать писателем. И не просто писателем: он хочет писать книги, которые заставят людей остановить войну и смогут лечить больных. Но он не может придумать первую строчку своей книги: такую, которая «собьет тебя с ног». У него есть псевдоним: В. ШВШВРМ. Потому что никто не должен знать, кто он на самом деле. Кроме деда. И королевы, которая, (   Читать дальше...   )Производство: НидерландыЖанр: Семейный, ПриключенияРежиссер: Фроукье ТанАктеры: Али Бен Хорстинг, Саннеке Бос, Яра Брэнд, Джон Буйсман, Ромийн Конен, Ганс Дагелет, Астрид ван Эк, Кэс Энклаар, Яхья ГайерПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A2906BB2DFF5F041D5F553446FCFFC1B4FB670
 ```
 
 https://mybot314.ru/tekegram_catalog/

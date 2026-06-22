@@ -1,3 +1,55 @@
+###  Публикация: 349012   (33391) от 22.12.2024
+
+Анастасия Вербицкая | В ожидании принца (2005) [MP3, Галина Самойлова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская писательница Анастасия Алексеевна Вербицкая (1861–1928) была очень популярна в России в начале XX века. Она первой подняла в своих увлекательных, полных бурной страсти романах темы почти запретные – о праве женщины на свободу чувства, на самостоятельное определение своей судьбы. Серия романов под общим названием «Ключи счастья» – лучшее и наиболее известное (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Вира-М (аудио)Продолжительность: 12:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10C1A22E8696E900DF525261A57AEC7B3DB7EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349009   (33384) от 22.12.2024
+
+Анастасия Вербицкая | Иго любви (Книга 1). Актриса (2005) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская писательница Анастасия Алексеевна Вербицкая (1861–1928) была очень популярна в России в начале XX века. Она первой подняла в своих увлекательных, полных бурной страсти романах темы почти запретные – о праве женщины на свободу чувства, на самостоятельное определение своей судьбы. Серия романов под общим названием «Ключи счастья» – лучшее и наиболее известное (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Вира-М (аудио)Продолжительность: 13:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48CFC455432E38189518FDC3F601A49EDADAD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 275312   (33086) от 25.12.2024
 
 Дэвид Герберт Лоуренс | Любовник леди Чаттерлей (2004) [MP3, Ирина Ерисанова]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33086.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33041.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33040.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32297.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32295.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32291.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32289.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32283.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32198.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32089.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31895.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31812.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31784.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31557.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31555.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31550.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31519.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31482.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31469.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30428.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30427.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30425.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30411.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30207.jpg" />
 </div>
 
 
@@ -635,61 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B5F73869FE449DD6A73BDF0CE95569CAF0447F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774524   (30202) от 21.01.2025
-
-Михаил Булгаков | Путевые заметки (2020) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Михаил Булгаков. Лучшее, Союз-классика.
-При упоминании имени Михаила Афанасьевича Булгакова (1891–1940) на память сразу приходят его «Белая гвардия», «Мастер и Маргарита» или «Собачье сердце». Эти, без преувеличения гениальные романы, выдержали многочисленные переиздания, были неоднократно экранизированы и по праву занимают самое почетное место в золотом (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 04:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A9B3BFC0F1D832283997DDE272EA8AE947D500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774501   (30194) от 21.01.2025
-
-Михаил Булгаков | Говорящая собака (2010) [MP3, Александр Клюквин, Алексей Борзунов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Михаил Булгаков. Лучшее.
-Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
-Не секрет, что Булгаков не понял и не принял Великую Октябрьскую Революцию, и в самом конце гражданской войны готов был покинуть родину и уехать за границу... Но так получилось, что вместо этого в 1921-ом году он неожиданно появился (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21472D59904E28398C506437FA3BF3BA299032B
 ```
 
 https://mybot314.ru/tekegram_catalog/

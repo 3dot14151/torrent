@@ -1,3 +1,83 @@
+###  Публикация: 531809   (540034) от 06.08.2012
+
+Вас вызывает Таймыр (1970) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540034.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гостиничном номере проживают директор филармонии, геолог, влюбленный юноша, дедушка-пчеловод и кто-то еще. Немудрено, что даже при благожелательном отношении друг к другу между жильцами происходят всевозможные несуразности…Жанр: КомедияРежиссер: Алексей КореневАктеры: Екатерина Васильева, Юрий Кузьменков, Евгений Стеблов, Евгений Весник, Павел Павленко, Елена Коренева, Инна Макарова, Светлана Старикова, Валентина Талызина, Зиновий Гердт, Николай Парфенов, Лариса Барабанова, Т.Липина, Виктор СысоевПродолжительность: 01:25:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923935   (538876) от 07.08.2015
+
+Шел четвертый год войны... (1983) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по повести Александра Беляева «Тайна глухого леса».
+1944 год. На одном из участков фронта советское командование готовит крупное наступление. Войска должны пройти через лесной массив, охраняемый фашистами. Для выяснений целей вражеских формирований в этот район направляется группа советских разведчиков, которую возглавляет капитан Надежда Мороз…Производство: СССР, к/ст им. ГорькогоЖанр: ВоенныйРежиссер: Георгий НиколаенкоАктеры: Людмила Савельева, Николай Олялин, Александр Збруев, Николай Ерёменко мл., Александр Денисов, Тимофей Спивак, Вячеслав Баранов, Лев Дуров, Владимир Смирнов, Александр ЛебедевПродолжительность: 01:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED292F2CD4039E84652AE8782DE131780A3B38B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531921   (538254) от 07.08.2012
+
+Дело передается в суд (1976) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноповесть о молодой помощнице прокурора Лиане Девдариани, которой доверили завершить работу по делу о рухнувшем мосте. Проведя собственное расследование, она понимает, что привлеченный к уголовной ответственности инженер Сартания на самом деле не виновен. Лиана не только оправдывает невинно осужденного, но и изобличает подлинных виновников трагедии, повлекшей за собой человеческие жертвы.Жанр: Детектив, ДрамаРежиссер: Валериан КвачадзеАктеры: Марина Джанашия, Додо Абашидзе, Акакий Васадзе, Валериан Квачадзе, Эдишер Магалашвили, Георгий Гегечкори, Гурам Пирцхалава
+Полный список актеровПродолжительность: 01.22.00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C53C5A3645F05C361B80045B3F4F3CBC7285A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154650   (536995) от 01.08.2017
 
 Чернов. Chernov (1990) VHSRip
@@ -6,7 +86,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536995.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536718.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536704.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535917.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535668.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535438.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534977.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534453.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534433.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534344.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533543.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532736.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531942.jpg" />
 </div>
 
 
@@ -338,6 +418,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367737   (531177) от 26.07.2011
+
+Мы вместе, мама (1976) IPTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_531177.jpg" />
+</div>
+
+
+###  Подробнее
+
+После службы в армии Максим приехал работать шофером на строительство морского порта. Там он познакомился и подружился с маленьким Пашкой, сыном учетчицы Галины, которая скоро собирается выйти замуж. Но Пашке не нравится ухажер матери, и мальчик надеется на то, что она обратит внимание на доброго и веселого Максима.Жанр: МелодрамаРежиссер: Ярослав ЛупийАктеры: Михаил Епифанцев, Юрий Шлыков, Любовь Виролайнен, Борис Борисов, Наталья Моргунова, Георгий Епифанцев, Елена Папанова, Михаил Семенов, Петр ЛюбешкинПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A126D5FCFB5577F5A420269EC85988259383BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051166   (530886) от 12.09.2016
 
 Софья Петровна (1989) TVRip
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530886.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530883.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530778.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530685.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529817.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529407.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529195.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527315.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527147.jpg" />
 </div>
 
 
@@ -567,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84C0CC7CC3A1733EA024CE1CB49879AD7EF67342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370459   (525267) от 02.08.2011
-
-Моя морячка (1990) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: КомедияРежиссер: Анатолий ЭйрамджанАктеры: Людмила Гурченко, Татьяна Васильева, Михаил Державин, Любовь Полищук, Роман Рязанцев, Анастасия Немоляева, Георгий Мартиросьян, Роксана Бабаян, Е. Дубовик, Ю. ГонигманФормат: AVIПродолжительность: 01:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC2663D2FAB0EF48688AE1B6DD8E056C0166B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157324   (525132) от 12.08.2017
-
-Духов день (1990) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Христофоров открывает в себе странное свойство непроизвольно взрывать окружающие предметы. Пытаясь понять причину и смысл этой необычной способности, он обращается к фамильной истории. Внимание секретной государственной службы не сулит Христофорову ничего хорошего.Производство: СССР / Голос, ЛенфильмЖанр: Драма, ФантастикаРежиссер: Сергей СельяновАктеры: Юрий Шевчук, Боря Голяткин, Геннадий Гарбук, Виктор Семёновский, Ольга Григорьева, Владимир Зубенко, Олег Корчиков, Станислав Ландграф, Владимир Головин, Александр Анисимов, Николай Устинов, Дмитрий БычковПродолжительность: 01:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D1148C343D2AD220D46DF338A833E76C1E778E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240629   (524355) от 12.08.2018
-
-Чистые пруды (1965) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поэтическая драма по мотивам произведений Юрия Нагибина.
-Это история о четырех хороших друзьях, проживавших на Чистых прудах в городе Москве. Сережа, Нина, Оська и Женечка ведут дружную жизнь, но пришло время взрослеть, у каждого свой путь. Уговор друзей — встретиться ровно через 20 лет здесь же, на Чистых прудах, — был заранее обречён на провал, ведь никто из них (   Читать дальше...   )Производство: СССР, киностудия МосфильмЖанр: ДрамаРежиссер: Алексей СахаровАктеры: Александр Збруев, Евгения Филонова, Людмила Гладунко, Тамара Сёмина, Светлана Светличная, Владимир ЕвстафьевПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E65EDC898F87AD5F29CF070AD689ED4B42F1DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927772   (524058) от 14.08.2015
-
-Не суждено (1969) TVRip [Ukr]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524058.jpg" />
-</div>
-
-
-###  Подробнее
-
-История трагической любви бедной крестьянской девушки-сироты Кати Дзвонаривны. Панич Михаил Ляшенко, студент университета, под влиянием распространяемых тогда либеральных идей «единения» господ с народом, «слияния» господ и мужиков, ходит на улицу к сельской молодёжи, но держится ближе к девушкам, чтобы «омолодить поэзией душу». Он сводит Катю и бросает её в угоду (   Читать дальше...   )Производство: СССР, УкртелефильмЖанр: ДрамаРежиссер: Мирослав ДжинджиристыйАктеры: Петр Сергиенко, Валентина Магеровская, Николай Щипак, Аркадий Гащинский, Михаил Заднепровский, Галина Яблонская,     Мария Шульга, Павел Морозенко, Юлия Ткаченко, Нонна КопержинскаяПродолжительность: 01:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F3BE4C23CD5A3F149557CB017B0C6784E6A5F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

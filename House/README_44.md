@@ -1,3 +1,90 @@
+###  Публикация: 1045771   (556978) от 25.08.2016
+
+VA - Amnesia Ibiza 2016 (Mixed by Mar-T, Hector Couto, Betoko) (2016) 3 CD [MP3|320 Kbps] <House, Tech House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moderat – Eating Hooks (NGHT DRPS Remix)
+02. Awanto 3 – Star Butchers (Darling Edit)
+03. Stereociti – Interstellar Substance
+04. Shadow Child – Lullaby(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 03:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C3FD2AD06F071E0F536BB20EA7AC95B08A0BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046072   (556923) от 25.08.2016
+
+VA - Sensual Deep House (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yves Taylor - Incomparable Breeze - Tony Morgan Mix
+02. Lorenz Carlton - Melody Cool - Francoise Demegni Mix
+03. Rich Romeo - Select All - Supalady Mix
+04. Frank Lovenue - Falstaffs - Motel Rex's Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4B990C0B781334721DFDA9B1EFB8C1B5800840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305526   (556450) от 31.05.2019
+
+VA - House Of Ibiza (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hector Moralez & Tommy Vercetti  -  Countdown (Original Mix)
+02.  Kruse & Nuernberg  -  Summer Sanctuary (Original Mix)
+03.  Mood Ll Swing  -  Sunlight In My Eyes (Satoshi Fumi Re-Edit)
+04.  Roter & Lewis  -  Get Out Of My Life (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 04:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83EA3D0D4C807419991381BF3B74DAF64477947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236002   (556226) от 15.07.2018
 
 VA - Running Music 2018 [MP3|320 Kbps] <Progressive House>
@@ -6,7 +93,7 @@ VA - Running Music 2018 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556226.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - EDM Revolution 2019: Best Anthems For Party & Clubbing (2019) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555939.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Ibiza 2019 Deep House (2019) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555935.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Super Strong Summer Deep House Tunes Top 100 (2019) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555823.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Ibiza 2019 Borderline Audio (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555814.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - On Air Deep & Soulful House Tunes (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555812.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Avicii - TIM (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555346.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555072.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555071.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Witness The Fitness 5 (2018) [MP3|320 Kbps] <Future House, Bigroom, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553842.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - EDM Summer Closing (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553124.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Workout Summer '18 (2018) [MP3|320 Kbps] <Future House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552478.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Nature One 2018: All You Need To Be (2018) [MP3|320 Kbps] <Disco, Dance, Pr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552475.jpg" />
 </div>
 
 
@@ -386,7 +473,7 @@ VA - Farewell Summer Tech House Tunes (2016) [MP3|320 Kbps] <Electronica, House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552206.jpg" />
 </div>
 
 
@@ -415,7 +502,7 @@ VA - It's Vocal House 2 (2016)[MP3|320 Kbps] <House, Electronica>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552197.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ VA - Ice Cream Sampler Vol.2 (2016) [MP3|320 Kbps] <House, Nu-Disco, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552123.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ VA - After Hours Ibiza (2016) [MP3|320 Kbps] <Deep House, Funky, Soulful House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552113.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ VA - House Clubhits Summer Edition 2019 (2019) 2CD [MP3|320 Kbps] <House, Club H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551216.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ VA - Chic Grooves: A Journey into Deep House Rhythms (2016) (2016) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550267.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ VA - Bikini Grooves (20 Pool Party Beats Vol 1) (2016) [MP3|320 Kbps] <House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550254.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549642.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549604.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ VA - Airbeat One Dance Festival (2019) [MP3|320 Kbps] <House, Trance, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548841.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78332F88B979DF2E85E903529768126BD5D27B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238077   (548832) от 27.07.2018
-
-VA - Top Dance Hits 2018 [MP3|320 Kbps] <Progressive House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geo Da Silva - Summertime (Radio Edit)
-02. Federico Seven - Stereo (Radio Edit)
-03. Fedo Mora feat. Alba Kras and Tony T - The Only One (Original Mix)
-04. Michael Fall feat. Jodie Topp - Sunshine (Radio Edit)(   Читать дальше...   )Жанр: Progressive House, Big RoomПродолжительность: 01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949F85BBCAAE99DA29B70A46FAE1CA3FD23FE1AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047845   (548423) от 31.08.2016
-
-VA - Closing Parties (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Casta - Venomous
-02. David Cheeky - Consequences
-03. Stereometric - Abgemacht
-04. Jordi Svit - Big Daddy(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3829D0CC5371E570C46FE44DF75012A8F55B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048277   (547409) от 01.09.2016
-
-VA - Pure Ibiza - The Ultimate Deep House & Nu Disco Collection (2016) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Exx - Touch Me (5:55)
-02. Selda - The Rain (Zenker Club Mix) (4:46)
-03. Zito - Amazing (Zito's HU On The Rocks Mix) (6:20)
-04. Disco Dice - NYC (Mann & Meer Remix) (5:42)(   Читать дальше...   )Производство: Attractive MusicЖанр: Deep House, Nu DiscoПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4CC6B87098BD0980A553006A35A051D92B06DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

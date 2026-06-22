@@ -1,3 +1,110 @@
+###  Публикация: 524523   (520953) от 12.08.2012
+
+Валерий Чкалов (1941) DVDRip [Полная версия] [Реставрация]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биографический художественный фильм, рассказывающий зрителю о знаменитом летчике-испытателе Валерии Чкалове.
+Имя Валерия Чкалова, наверняка известно чуть ли не каждому человеку на просторах бывшего СССР. Чкалов – легенда! Этот человек является очень ярким примером дерзости, отваги и мужества. И, конечно, личность Чкалова привлекала внимание кинематографистов. Особенно (   Читать дальше...   )Жанр: Биография, ВоенныйРежиссер: Михаил КалатозовАктеры: Владимир Белокуров, Михаил Геловани, Семен Межинский, Ксения Тарасова, Василий Ванин, Серафима Бирман, Павел Березов, Борис Жуковский, Федор Богданов, Ирина ЗарубинаПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5841B4467CC53EAB42DEAB1A84A0384545142EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534550   (519060) от 14.08.2012
+
+Два Фёдора (1958) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519060.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания Второй мировой войны, вернувшийся на родину Федор-большой встречает мальчишку-беспризорника Федора-малого. Они решают жить вместе. И все-то у них было замечательно, пока Федор-большой не женился.
+
+С женитьбой Федора-большого их дружная жизнь разлаживается, хотя Наташа всячески старается снискать любовь мальчика. Доведенный ревностью до отчаяния, мальчик (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Марлен ХуциевАктеры: Василий Шукшин, Коля Чурсин, Тамара Семина, Юра Елин, Мария Шаманская, Игорь Политаев, Александр Александровский, Дмитрий Иванов, Н.Лопатников, К.Забашта, Николай КлючневПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A68FD629774F5C9B4891E1BEF720DDFE51FBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346720   (518198) от 20.08.2015
+
+Не бойся, я с тобой! (1981) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Боевик, Комедия, ПриключенияРежиссер: Юлий ГусманАктеры: Мухтарбек Кантемиров, Полад Бюль-Бюль-оглы, Лев Дуров, Гамида Омарова, Гасан Турабов, Сергей Юрский, Мирза Бабаев, Александр Шаровский, Кязим Абдуллаев, Александр БелявскийПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C1C91B0080D7AC9CB2D35A1274DABEF7E1C0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530605   (517688) от 15.08.2012
+
+Богдан Хмельницкий (1941) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517688.jpg" />
+</div>
+
+
+###  Подробнее
+
+1648 год. Украина под гнетом Речи Посполитой. Шляхта бесчинствует, сжигая станицу за станицей. Гетман войска запорожского Богдан Хмельницкий собирает на сечи армию защитников отечества.Жанр: ДрамаРежиссер: Игорь СавченкоАктеры: Николай Мордвинов, Гарэн Жуковская, Никита Ильченко, Борис Безгин, А. Иванченко, Виталий Полицеймако, Михаил Жаров, Антон Дунайский, Борис АндреевПродолжительность: 01:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB0BFC331DC12106ADEB4B310B04EAA10B0605D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 373599   (517523) от 10.08.2011
 
 Аэлита, не приставай к мужчинам (1988) DVDRip
@@ -6,7 +113,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517523.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517210.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516150.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516079.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515996.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515578.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515000.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513321.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512663.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511957.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511589.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511349.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510794.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510533.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510441.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510317.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509636.jpg" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509486.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508135.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507652.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507079.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506936.jpg" />
 </div>
 
 
@@ -572,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E91B14B36A5AAE75AD496D97BFC3FCC8008574F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537752   (505435) от 27.08.2012
-
-Здравствуй и прощай (1972) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная история любви молодой женщины, которую с тремя детьми бросил муж, а сам уехал в город искать «смысл жизни» и пропал в поисках лучший доли, и участкового милиционера, человека положительного во всех отношениях. Он сумел растопить сердце женщины и вернуть ей веру в любовь. Только появилась надежда на новую жизнь и семейное счастье, как в деревню возвращается (   Читать дальше...   )Жанр: КомедияРежиссер: Виталий МельниковАктеры: Людмила Зайцева, Олег Ефремов, Михаил Кононов, Александр Демьяненко, Наталья Гундарева, Виктор Павлов, Борислав Брондуков, Татьяна Доронина, Жанна Блинова, Саша ВедерниковПродолжительность: 01:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97248D676782008F828F0FB0FCC0C58B4391DEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878894   (505191) от 02.09.2015
-
-Прощание с Петербургом (1971) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: CCCР (Ленфильм)Жанр: МелодрамаРежиссер: Ян ФридАктеры: Гирт Яковлев (роль озвучил Александр Демьяненко), Татьяна Бедова, Татьяна Пилецкая, Василий Меркурьев, Павел Кадочников, Игорь Дмитриев, Сергей Карнович-Валуа, Александр РоманцовПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C82A7F1F8889493AF2A63EE3A13A16488A7645B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378277   (504077) от 23.08.2011
-
-Смерть под парусом (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преуспевающий врач-онколог, доктор Роджер Миллз, пригласил компанию своих друзей провести время на его яхте. Через несколько дней, солнечным утром, его убивают выстрелом в сердце. За расследование принимается местный полицейский сержант Берелл и спешно вызванный на подмогу приятель Иена Кейпла мистер Финбоу.Производство: СССР / Рижская киностудияЖанр: ДетективРежиссер: Ада НеретниецеАктеры: Марианна Вертинская, Мирдза Мартинсоне, Гирт Яковлев, Антанас Барчас, Кальё Кийск, Лембит Ульфсак, Юрис Стренга, Херберт Зоммер, Николай Крюков, Ольгерт ДункерсПродолжительность: 01:04:00 + 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911571CEBB984128B16F44F1F735C547AF7E6598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565383   (503270) от 04.09.2015
-
-Дневной поезд (1976) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Москве и Ленинграде живут старые подруги и мечтают о том, чтобы их дети поженились. Но детям уже за сорок, их трудности очевидны и вполне понятны. Прекрасные работы Маргариты Тереховой и Валентина Гафта остаются в памяти зрителей уже больше двадцати лет. Несмотря на то, что с момента выхода фильма прошло так много лет, не устарели ни диалоги, ни сюжет. Одиночество (   Читать дальше...   )Производство: СССР / ТО «Экран»Жанр: Драма, МелодрамаРежиссер: Инесса СелезневаАктеры: Вячеслав Кутаков, Алексей Преснецов, Владимир Приходько, Татьяна Бестаева, Валентин Гафт, Татьяна Лаврова, Алла Мещерякова, Светлана Немоляева, Маргарита Терехова, Елена Санько, Алла Покровская, Лариса Барабанова, Римма БыковаПродолжительность: 01:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009B500FCF0A4974A42D7D3736365BBC853A651F
 ```
 
 https://mybot314.ru/tekegram_catalog/

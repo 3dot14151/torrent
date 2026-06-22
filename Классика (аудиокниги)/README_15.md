@@ -1,3 +1,56 @@
+###  Публикация: 203010   (766343) от 21.05.2010
+
+Антон Чехов | Собрание сочинений в 8-ми томах в исполнении великих артистов русской сцены [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гуманитарный фонд "Чеховский центр" - некоммерческая организация, основанная в 2001 г. с целью сохранения и развития русской культуры, письменности, журналистики, пропаганды русского культурного наследия в России и за рубежом.
+К юбилею А.П.Чехова Фонд делает подарок поклонникам творчества писателя и выпускает коллекционное издание дисков с его произведениями (   Читать дальше...   )Жанр: Русская классика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8275C9FD9D82484754856385EA9E5D5AA1165ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393811   (766257) от 02.07.2020
+
+Генри Джеймс | Крылья голубки (2020) [MP3, Андрей Курилов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые русскоязычные читатели получили возможность познакомиться с переводом романа "Крылья голубки", сделанным по наиболее полному академическому изданию. Текст дополняют авторское предисловие к изданию 1909 года, выдержки из записных книжек и писем Генри Джеймса. Англия, начало ХХ века. Небогатая молодая аристократка Кейт Крой, живущая на иждивении у (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: StorySide ABПродолжительность: 16:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815E22B6FCBFEAE68FDBA0D24FB1E0C3547AE8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214274   (765744) от 20.03.2018
 
 Франсуаза Саган | Здравствуй грусть (2018) [MP3, Николай Козий]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765744.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765600.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765138.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765072.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764800.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764388.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763838.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761910.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760433.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759831.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759726.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759712.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758612.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758159.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757786.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757630.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756157.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755844.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755817.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755764.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755722.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755312.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754206.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753996.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC91F18AF04797BA7E9ACCE8D91480DF431B3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322122   (753875) от 11.04.2011
-
-Эрих Мария Ремарк | Тени в раю (2011) [MP3, Валерий Саберов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Тени в раю», увидевший свет в 1971 году, уже после смерти Эриха Марии Ремарка, рассказывает о судьбе тех немецких эмигрантов времен Второй мировой войны, что сумели добраться до Земли Обетованной - Америки. Для некоторых Штаты стали новой родиной, но в большинстве своем изгнанники, опустошенные тревогой, страхом и тоской, так и не нашли в себе силы приспособиться (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 19:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF20F42592620C7D564C8F6076274F456CFCE7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018983   (752179) от 22.05.2016
-
-Марк Твен | Письма с Земли (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752179.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Письма с Земли" - это сатирическое произведение, свыше 50 лет остававшееся неизвестным читателям и увидевшем свет только в 1962 г. (Нью-Йорк, 1962), которое характеризует М.Твена как убеждённого атеиста, непримиримого борца с жестокостью, несправедливостью и лицемерием.Жанр: Классическая прозаПродолжительность: 02:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C1D428FFE5320DA00252B28A93206980BF2364
 ```
 
 https://mybot314.ru/tekegram_catalog/

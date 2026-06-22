@@ -1,3 +1,65 @@
+###  Публикация: 1355635   (977447) от 31.01.2020
+
+Brocade FabricOS (версии с v5.1.0 по v8.2.1a)[En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник всех версий FabricOS которые были обнаружены. С v5.1.0 по v8.2.1a включая промежуточные.
+v5.1.0 - v5.2.3 - v5.3.2c - v6.0.1a - v6.1.2c - v6.2.0e - v6.2.2f9 - v6.2.2g - v6.3.0d - v6.3.2e - v6.4.2b - v6.4.3g - v6.4.3h - v7.0.2e - v7.0.2e1 - v7.1.0cb - v7.1.1a - v7.1.1c - v7.1.1c1 - v7.1.2 - v7.1.2a - v7.1.2b - v7.1.2b1 - v7.2.0a - v7.2.0b - v7.2.0c - v7.2.0d (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1284E4F4137BE5BA88C1B9430FD16F2A3BCF9F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280175   (953350) от 08.01.2011
+
+Uloader 8.0.0.0 [ENG]
+
+>>След.
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uloader-простой,удобный и практичный активатор Win 7 или Vista
+В версию 8.0.0.0 добавлены:
+* Поддержка 32-разрядных (x86)
+* Поддержка 64-разрядных (x64)
+* Возможность изменения ключа продукта даже после активации
+* Простой и удобный
+* Доступно несколько загрузчиков
+* Обновлен мастер-ключей OEM
+* Система отображения информации
+* Простой и удобный графический интерфейс(   Читать дальше...   )Язык интерфейса: ENG
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917948   (949374) от 02.02.2016
 
 Sim Aquarium 3.8 Build 63 Platinum RePack by Trovel [En]
@@ -6,7 +68,7 @@ Sim Aquarium 3.8 Build 63 Platinum RePack by Trovel [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949374.jpg" />
 </div>
 
 
@@ -32,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946820.jpg" />
 </div>
 
 
@@ -58,7 +120,7 @@ Detwinner 2.04.002 (& Portable) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946433.jpg" />
 </div>
 
 
@@ -84,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945491.jpg" />
 </div>
 
 
@@ -110,7 +172,7 @@ Design Pack By Leha342 & Stason v.01.2016 [Ru] (Авторская раздач�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944647.jpg" />
 </div>
 
 
@@ -137,7 +199,7 @@ Alternate Calculator 3.480 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942061.jpg" />
 </div>
 
 
@@ -163,7 +225,7 @@ RuntimePack Lite 20.3.3 by jameszero (x86-x64) [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889803.jpg" />
 </div>
 
 
@@ -189,7 +251,7 @@ Stitch Art Easy 4.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876505.jpg" />
 </div>
 
 
@@ -218,7 +280,7 @@ VerseQ 2011.02.23.226 Multiuser [Rus] RePack by elchupacabra
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875386.jpg" />
 </div>
 
 
@@ -244,7 +306,7 @@ IPTV Checker v 2.5 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867577.jpg" />
 </div>
 
 
@@ -270,7 +332,7 @@ RuntimePack 21.7.30 Full [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862513.jpg" />
 </div>
 
 
@@ -296,7 +358,7 @@ Qemu Simple Boot 1.3 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847359.jpg" />
 </div>
 
 
@@ -322,7 +384,7 @@ Colors Pro 2.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844732.jpg" />
 </div>
 
 
@@ -348,7 +410,7 @@ Microtest PentaScanner+ (firmware & manual) 5.0.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802475.jpg" />
 </div>
 
 
@@ -374,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800539.jpg" />
 </div>
 
 
@@ -400,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795902.jpg" />
 </div>
 
 
@@ -426,7 +488,7 @@ VanDyke SecureCRT 8.0.1 build 1082 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794287.jpg" />
 </div>
 
 
@@ -452,7 +514,7 @@ Posteriza 1.1.1 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792790.jpg" />
 </div>
 
 
@@ -480,7 +542,7 @@ Muscle Premium 4.0.09 Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789597.jpg" />
 </div>
 
 
@@ -509,7 +571,7 @@ Shutter Pro 4.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767215.jpg" />
 </div>
 
 
@@ -535,7 +597,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.2.4 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761577.jpg" />
 </div>
 
 
@@ -561,7 +623,7 @@ Stardock ShadowFX 1.2 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725890.jpg" />
 </div>
 
 
@@ -587,7 +649,7 @@ Windows Logon Editor 1.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_680674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680674.jpg" />
 </div>
 
 
@@ -614,7 +676,7 @@ Stardock Multiplicity 3.43 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602319.jpg" />
 </div>
 
 
@@ -625,58 +687,6 @@ Stardock Multiplicity 3.43 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:127DCE19ACCD6B1076028C73D1015EEAA3C064D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548468   (599566) от 02.05.2022
-
-Аура Леса 2.8.10i.216 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аура леса – программа, позволяющая окунуться в атмосферу дневного и ночного леса не выходя из дома и расслабиться после напряженного рабочего дня. В настройках программы вы можете самостоятельно выбирать звуки, которые хотите слышать, включить автоматическую смену звуковых схем через определенный интервал, установить время для автоматического старта воспроизведения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C12F5CBA4D357149CB25C38A0A2819EC2141D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917801   (588983) от 12.07.2015
-
-Sim Aquarium 3.8 Build 63 Platinum [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sim Aquarium - реалистическая 3D экранная заставка, которая воссоздает красоту среды кораллового рифа. В составе экранной заставки 5 различных аквариумов с кораллами, с большими фонами и большим разнообразием среды и кораллов. Вы можете заполнить ваш аквариум до 100 особей из 30 высоко детализированных видов рыб со сложным поведением и искусственным интеллектом. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9E53E4DDDE053CF56DBC7835960734EB68C688
 ```
 
 https://mybot314.ru/tekegram_catalog/

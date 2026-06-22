@@ -6,7 +6,7 @@ Kikokugai - The Cyber Slayer (2003) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775945.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CLANNAD (2015) [En] (05.05.16) Repack R.G. Механики
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773887.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ KARAKARA (2016) [Ru/Multi] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772490.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Domina no Do (2009) [1-29 гл.] [Манга] [incomplete] [Русский]
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770490.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Somali to Mori no Kami-sama | Somali and the Forest Spirit | Сомали и Х�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765952.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jojo no Kimyou na Bouken Part 1: Phantom Blood | Невероятные Прик
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764272.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Maou no Hajimekata | How to book on the Devil | Как стать темным �
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760056.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ JoJo no Kimyou na Bouken Part 2: Sentou Chouryuu | Невероятные При
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758400.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ JoJo no Kimyou na Bouken Part 3: Stardust Crusaders | Невероятные п�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758383.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ookami Kodomo no Ame to Yuki | Волчьи дети Амэ и Юки (2012) [3 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757796.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dogs / Псы (2005) [1-11 томов (1-101 глав +2 ответвления)
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747309.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sewayaki Kitsune no Senko-san | Senko, the Always-Helpful Fox | Заботлив
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744935.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ ReLIFE | Повторная жизнь (2013) [222 главы и 5 спецвы�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741786.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tate no Yuusha no Nariagari | Становление Героя Щита (2013) 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737289.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume wo Minai | Этот глупый
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718579.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Yahari Ore no Seishun Love Comedy wa Machigatteiru | Моя юношеская �
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716329.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Sakura Dungeon (2016) [En] (1.0.1) Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715145.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704988.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Bungou Stray Dogs / Bungo Stray Dogs / Величайший из бродячи�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694865.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Princess Evangile W Happiness (2019) [En] (1.0) License GOG
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680116.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ NEKOPARA Vol.3 (2017) [En/Multi] License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666308.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ao Haru Ride | Blue Spring Ride | Неудержимая юность (2011) [13
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648405.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Neon Genesis Evangelion / Евангелион Нового Поколения (
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643671.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Otome Game no Hametsu Flag shika nai Akuyaku Reijou ni Tensei shite shimatta... 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642808.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ NEKOPARA Vol.2 (2016) [Ru/Multi] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637544.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Devil May Cry 5 -Before the Nightmare- | Devil May Cry 5: Предвестие �
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636984.jpg" />
 </div>
 
 

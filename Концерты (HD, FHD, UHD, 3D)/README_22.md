@@ -1,29 +1,3 @@
-###  Публикация: 1305948   (555916) от 02.06.2019
-
-Квартирник НТВ у Маргулиса. Юрий Лоза (01.06.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске в гости к Евгению Маргулису пришел российский певец и композитор Юрий Лоза. Известность к артисту пришла, когда он был участником группы «Зодчие», но его самая известная песня «Плот» была исполнена уже сольно. Артист поделился интересными воспоминаниями из жизни и творчества, а также исполнил свои лучшие композиции. Звездный гость и ведущий «Квартирника» (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3B376A36F31C05180DE9626114785FAC3D9876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305358   (555802) от 03.06.2019
 
 Квартирник НТВ у Маргулиса. Алексей Чумаков (11.05.2019) WEB-DL [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555802.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555800.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555798.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555795.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Queen - We Are The Champions: Final Live In Japan (1985/2019) Blu-ray [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554554.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554427.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553209.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553198.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552618.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551377.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ Just Play - Концерт в клубе "Вермель" (2017) WEBRip [H.264/1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549262.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ Santana & McLaughlin: Live at Montreux - Invitation to Illumination 2011 (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548168.jpg" />
 </div>
 
 
@@ -358,7 +332,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547305.jpg" />
 </div>
 
 
@@ -387,7 +361,7 @@ Michael Schenker's Temple of Rock - On a Mission - Live In Madrid (2016) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547303.jpg" />
 </div>
 
 
@@ -416,7 +390,7 @@ Kiss. Rocks Vegas 2014 (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545551.jpg" />
 </div>
 
 
@@ -446,7 +420,7 @@ Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545464.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545136.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543325.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541333.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540141.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535660.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535277.jpg" />
 </div>
 
 
@@ -644,7 +618,7 @@ The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534223.jpg" />
 </div>
 
 
@@ -679,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533969.jpg" />
 </div>
 
 
@@ -705,7 +679,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533314.jpg" />
 </div>
 
 
@@ -719,6 +693,35 @@ Europe — шведская рок-группа, созданная в Сток�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663513781AC6F6A1BA5B4F5FD1C4C8D110DFB8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926257   (533312) от 10.08.2015
+
+Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533312.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 июня 2013 года, «Europe» вышли на сцену на своей родине Швеции по особому поводу: празднование своей 30-й годовщины в рок-музыке. Эта Шведская рок-группа праздновала это событие вместе с 30 тысячами человек на популярном Шведском Рок Фестивале, играя подборку из 28 песен собирая свои персональные любимые моменты, начиная с ранних лет вплоть до их наиболее свежих (   Читать дальше...   )01. Intro / Riches To Rags
+02. Firebox
+03. Not Supposed To Sing The Blues
+04. Scream Of Anger(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Patric UllaeusПродолжительность: 02:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C964C9524F3D299AD74D0C9C01ECA4597A465FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

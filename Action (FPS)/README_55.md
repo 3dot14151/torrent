@@ -1,3 +1,29 @@
+###  Публикация: 1798948   (17156) от 24.05.2025
+
+Bloodshed (2024) [Ru/Multi] (1.0.4) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodshed - это захватывающий сплав элементов упрощенного рогалика с ретро-графикой и экшена от первого лица в стиле Survivors. Отражайте бесконечные волны нежити, собирайте очки опыта и улучшайте свои навыки и оружие, чтобы получить шанс пережить ночь. Заработанные тяжким трудом деньги останутся с вами даже после смерти. На них вы сможете приобрести постоянные улучшения (   Читать дальше...   )Тип издания: RepackРазработчик: com8com1 SoftwareЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292E5EBD54AD8EC5FD3A5ED452C50549F5FD18FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799369   (16795) от 27.05.2025
 
 Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
@@ -6,7 +32,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16795.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16629.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Atomic Heart (2023) [Ru/Multi] (Dev Build) Repack Chovka
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16488.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16310.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.9/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15688.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Roboquest (2020) [Ru/Multi] (51755 build 651/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15514.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1-51755) Repack Let'sРlay [Digital Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15503.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Dying Light 2: Stay Human (2022) [En] (1.22.4/dlc) Scene Tenoke [Reloaded Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15403.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14686.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Far Cry 2 (2008) [Ru] (1.03) Repack EXROW [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14343.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack FitGirl [Complete Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14268.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack seleZen [Complete Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14260.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12.0/dlc) Repack Other s [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14257.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Call of Duty: WWII (WW2) (2017) [Ru/En] (1.25.2244937.32767.0/dlc) Repack Decept
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14253.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Viscerafest (2021) [Ru/Multi] (1.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14025.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13763.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13637.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack EXROW [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13428.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13340.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13324.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13313.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Aliens vs. Predator (2010) [Ru] (2.27u7/dlc) Rip EXROW [Expanded Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13307.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13221.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13219.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13187.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0382F342CB42A1EC75516EF2D4704C3056E2561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773374   (12884) от 01.07.2025
-
-Blood West (2023) [Ru/Multi] (4.4.1/dlc) Repack FitGirl [Dead Man's Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blood West – это максимально захватывающий экшн, в котором все демоны Ада вырвались наружу. Ресурсы пользователя будут сильно ограничены, поэтому их стоит максимально экономить и как можно чаще пользоваться приемами стелса, в случае если бой необязателен и необходимо просто проникнуть на территорию. Тратить патроны попусту также не рекомендуется, так как на то, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: HyperstrangeЖанр: Шутеры, Экшны, ХоррорыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78123609B54DA32922C41672F10B099D78907B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

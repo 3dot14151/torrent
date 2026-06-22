@@ -1,3 +1,57 @@
+###  Публикация: 1710973   (61481) от 28.03.2024
+
+TablePlus 5.9.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управление базой данных стало проще
+Современный, родной и удобный графический интерфейс для реляционных баз данных: MySQL, PostgreSQL, SQLite и др.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2024Разработчик: © 2023 TablePlus Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2997AB63ED5EE21FFBA5307CF095984EC19C83A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711106   (61432) от 29.03.2024
+
+Charles Web Debugging Proxy 4.6.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Charles Web Debugging Proxy – это набирающий популярность зарубежный веб-прокси-сервер, работающий на вашем персональном компьютере, или ноутбуке, который зачастую относят к разделу программ HTTP Monitor. Свою популярность данная программа получила из-за высокой функциональности, быстроты работы и отличного, понятного и доступного дизайна.
+Множество работников IT-отделов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2023 Matthew BuchananПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C983A5133CC3E0B0424F18377BD6EBE28168F056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711524   (61292) от 30.03.2024
 
 OwlOCR Pro for Mac 6.0.6 [En]
@@ -6,7 +60,7 @@ OwlOCR Pro for Mac 6.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61292.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Studies 1.8.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61290.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61277.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ SiteSucker Pro 5.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61223.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Final Draft 13 v.13.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60969.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Cisdem PDFMaster 6.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60886.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ Wondershare PDFelement Pro 12.0.5 (OCR) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8630.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Microsoft Office 2024 16.101 (25091314) [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1748.jpg" />
 </div>
 
 

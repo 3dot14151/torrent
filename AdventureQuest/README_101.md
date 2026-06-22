@@ -1,3 +1,133 @@
+###  Публикация: 1781228   (26816) от 22.02.2025
+
+Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне постоянно снится кошмар: в нём моя голова висит на стене... Во время путешествия в незнакомый городок Харви Грин сталкивается с чередой паранормальных событий, которые заставляют его осознать, что его еженощный кошмар был предвестником неотвратимой судьбы. В этом квесте-триллере вы вместе с Харви попадёте в Вилла Вентата, осмотрите его улицы, магазинчики и окрестности (   Читать дальше...   )Тип издания: LicenseРазработчик: BlytsЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F0C4A669E16CE97B9D429333888E3DB16FDEBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781238   (26811) от 22.02.2025
+
+Geminism (2025) [Multi] (1.0.0/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geminism - это визуальный роман, который вовлекает геймеров в историю с интригами и мрачными тайнами. Повествование разворачивается в самом центре Токио в час колдовства под новой луной, когда две пары близнецов оказываются втянуты в смертельную конфронтацию. С импровизированным оружием в руках они сталкиваются с двумя таинственными людьми, одетыми в черное, намерения (   Читать дальше...   )Тип издания: LicenseРазработчик: CRAFTWORKЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF9C337EC4ED352497D5845F84203D6C1B61636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781499   (26725) от 23.02.2025
+
+A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копайте глубже, продавайте то, что найдете, улучшайте свое оборудование, чтобы продолжать путешествие все дальше и дальше. С каждым выкопанным кусочком вы становитесь ближе к истине. Здесь нет спешки, нет правил – только вы и подземное приключение. Минималистичная игра о копании ямы в саду недавно приобретенного дома. Собирайте ресурсы, продавайте их, улучшайте свое (   Читать дальше...   )Тип издания: RepackРазработчик: CyberwaveЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E94C2357853B967936092E0B2D3C582000FB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781321   (26712) от 23.02.2025
+
+Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.467.0/2.0.0/1.0.8.274/1.0.9/1.0.5) Repack EXROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький мальчик засыпает и попадает в ужасный кошмар. Сможете ли вы развеселить его?..Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure, Quest, Psychedelic HorrorЯзык озвучки: Чешско-звукоподражательныйЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CE7282B8B928D2921186119DC632F2E80B9457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781404   (26702) от 23.02.2025
+
+BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Столкнитесь с закоренелой ненавистью и древними тайнами, населяющими японскую деревню. Исследуйте гиперреалистичную, клаустрофобную среду, где царят сверхъестественные силы и трагические циклы. BrokenLore: LOW погружает игрока в напряженное путешествие, полное мистических тайн и сверхъестественных явлений, где каждый уголок тумана скрывает за собой давно забытые (   Читать дальше...   )Тип издания: SceneРазработчик: Serafini ProductionsЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3D89FB875C9B8997CCDF92FDA2B774D3E991D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781428   (26660) от 23.02.2025
 
 Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
@@ -6,7 +136,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26660.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26644.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26642.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26632.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26626.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26620.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26590.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26587.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26412.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26241.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26229.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26228.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25820.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25595.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25513.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25499.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25492.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25481.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25473.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25451.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25381.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3A39ACD51718F0D80BB94B799BD39BB59FE26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783859   (25373) от 08.03.2025
-
-Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FFC9067858B0B34C0A3A1B06F74A620866EF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783988   (25338) от 08.03.2025
-
-Split Fiction (2025) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытайте ошеломительные моменты, погружаясь в разнообразные миры Split Fiction, новаторского совместного приключения от студии, создавшей It Takes Two - игру года 2021. Мио и Зоя - писательницы-антиподы: одна пишет научную фантастику, другая - фэнтези. Они оказываются заперты в собственных сюжетах, после того, как их подключили к машине, созданной, чтобы украсть (   Читать дальше...   )Тип издания: SceneРазработчик: Hazelight StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9885A626F7AF605FB0F3B48B0DB40E0BE7A0113D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783916   (25315) от 08.03.2025
-
-Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории - это наша страсть, и мы обожаем их рассказывать в виде интерактивных игр. Если тебе нравятся романтические приключeния, визуальные новеллы и милые парни - наши игры для тебя! Окунитесь в романтические истории про любовь, где вы - главный герой! Клуб Романтики - это коллекция романтических историй, в которых вы можете делать выборы, тем самым влияя на сюжет.Тип издания: RepackРазработчик: Your Story InteractiveЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADB1A63367C655D1AD09336683502125E9B6229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784150   (25290) от 09.03.2025
-
-Biohazard: Siberia (2025) [En] (1.2) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Biohazard: Siberia - это психологический хоррор от первого лица, где ваша реальность на самом деле не ваша. Начать путешествие в качестве обычного сотрудника службы безопасности вскоре окажется слишком просто, чтобы быть правдой. Это игра, в которой смешаны выживание, исследование и психологический ужас. Вам придется быстро думать, решать головоломки, пробиваться (   Читать дальше...   )Тип издания: RepackРазработчик: Veilshift GamesЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0FC373BBB63F15EC3E25DCCC7FB53BD0003E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784258   (25280) от 09.03.2025
-
-Split Fiction (2025) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытайте ошеломительные моменты, погружаясь в разнообразные миры Split Fiction, новаторского совместного приключения от студии, создавшей It Takes Two - игру года 2021. Мио и Зоя - писательницы-антиподы: одна пишет научную фантастику, другая - фэнтези. Они оказываются заперты в собственных сюжетах, после того, как их подключили к машине, созданной, чтобы украсть (   Читать дальше...   )Тип издания: RepackРазработчик: Hazelight StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DCB7182F0DCD8C151C3580FB10058BE6426DB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

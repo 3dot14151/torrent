@@ -1,3 +1,55 @@
+###  Публикация: 1063487   (434282) от 16.10.2016
+
+Stand Up (2016.10.16) SATRip (сезон 5, выпуск 5)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C53BB24FCE83F341A2D08BE80EFDF655525116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945388   (433710) от 10.10.2015
+
+Comedy Баттл. Последний сезон. Выпуск №28  / Комеди Клаб / Comedy Club  (2015.10.09) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стартует заключительный сезон проекта, который уже давно стал кузницей кадров для многих других шоу. Причем не только канала ТНТ. Засветившись в эфире «Баттла», юмористы начинают активно стендапить, писать сценарии для крупных (и не обязательно юмористических) сериалов, выходят на сцену Comedy Club, в конце концов.Телекомпания: ТНТЖанр: ТВ-ШоуПродолжительность: ~ 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50ABE094D2DC5B3E40924EA03CB4A67A70C74DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945387   (433593) от 10.10.2015
 
 Comedy Woman  (2015.10.09) WEB-DL [H.264/720p-LQ]
@@ -6,7 +58,7 @@ Comedy Woman  (2015.10.09) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433593.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433253.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Stand Up (2018.09.23) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 6)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433127.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433113.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432684.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432251.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431652.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431363.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431251.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431084.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Stand Up. Сезон 3. Выпуск №5 (2015.10.11) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431081.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430844.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430830.jpg" />
 </div>
 
 
@@ -338,6 +390,38 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145502   (430699) от 11.10.2009
+
+Большая разница. Выпуск 16
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_430699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые смешные пародии на самые известные шоу российского телевидения! Большая разница!Смотрите! Только на kvnforall!Подробности:
+- Пародия на фильм "Тарас Бульба"
+- Пародия на проект "Следствие вели" с Леонидом Каневским
+- Пародия на проект "Играй, гармонь любимая!"
+- Пародия на фильм "Мясо. История всероссийского обмана"
+- Пародия на сериал "Понять. Простить"
+- Пародия на группу Quest Pistols(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165866   (430590) от 14.09.2017
 
 Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.09.14) SATRip (сезон 3, выпуск 11)
@@ -346,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430590.jpg" />
 </div>
 
 
@@ -372,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429470.jpg" />
 </div>
 
 
@@ -398,7 +482,7 @@ Comedy Woman (06.09.2019) WEB-DLRip (сезон 9, выпуск 2)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429448.jpg" />
 </div>
 
 
@@ -424,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429178.jpg" />
 </div>
 
 
@@ -442,6 +526,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145733   (429085) от 12.10.2009
+
+ПостКВН. Comedy Woman. Выпуск 16. Повестка из военкомата
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_429085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы думаете, что у женщин нет чувства юмора? Что они смеются только после 3х коктейлей и обязательно невпопад? Что когда женщина пытается шутить, то лучше вежливо улыбнуться и перевести разговор на другую тему? Так вот, Вы абсолютно правы и эта передача не для Вас!
+А Вы считаете, что женщина тоже человек и с ней можно даже иногда поговорить? Что женщина создана не только для домашнего хозяйства, но и для совместного просмотра телевизора и совместных прогулок на свежем воздухе? Так Вы тоже правы!Но эта передача рекомендуется тем, кто верит в женский юмор и хочет порадовать себя не только внешним видом участниц, но и текстами и актёрской игрой. Эти девушки знакомы нам по выступлениям в КВН, а теперь они отправились в свободное творческое плавание. Встречайте аплодисментами!Это Comedy Woman! Только на KVNforAll!!!Подробности:Все участники Comedy Woman
+- Танец и письма от поклонников
+- Танец Мити и повестка в военкомат
+- Об армии(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166011   (428647) от 15.09.2017
 
 Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.09.14) HDTV [H.264/1080i] (сезон 3, выпуск 11)
@@ -450,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428647.jpg" />
 </div>
 
 
@@ -476,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428588.jpg" />
 </div>
 
 
@@ -502,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428492.jpg" />
 </div>
 
 
@@ -520,6 +634,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246430   (428357) от 16.10.2010
+
+Чисто NEWS.  Выпуск №1 (15.10.2010) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_428357.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Чисто NEWS" - совершенно новый проект на телеканале "Интер", в котором непосредственное участие принимают не только ведущие шоу, но и победитель лотереи "Пороблено", обладатель 10 000 гривен! Искрометные шутки и юмористические новости - это лишь часть программы, ведь в центре внимания - Супер-игра, в которой наш счастливчик может выиграть 100 000 гривен! А это довольно просто - надо лишь отгадать содержание последней новости, тем более, что из трех вариантов только два похожи на правду. Выиграет гость или нет, а прочитать-то новость придется! Самому и на камеру!Жанр: Новосное ШоуРежиссёр: Владимир Зеленский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166090   (428312) от 15.09.2017
 
 Love Is / Comedy Club / Comedy  Woman (2017.09.15) SATRip (выпуск 5)
@@ -528,7 +668,7 @@ Love Is / Comedy Club / Comedy  Woman (2017.09.15) SATRip (выпуск 5)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428312.jpg" />
 </div>
 
 
@@ -539,136 +679,6 @@ Love Is / Comedy Club / Comedy  Woman (2017.09.15) SATRip (выпуск 5)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A70AFC47FFFFDE22076E5339358FBDC76AAB95EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166089   (428002) от 15.09.2017
-
-Камеди Клаб  в Барвихе / Комеди Клаб / Comedy Club (2017.09.15) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428002.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:42:51Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC06AD51D0A1866BD8594C509889EBF535C8E4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166419   (426803) от 16.09.2017
-
-Международная пилорама (2017.09.16) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426803.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Международная пилорама» сэкономит время телезрителей. Следить за политической обстановкой в мире, колебаниями курсов валют и новостями шоу-бизнеса теперь вовсе не обязательно. Каждую субботу Тигран Эдмондович в свойственной ему язвительной манере будет разбирать события мировой политики. Под огонь его едких комментариев попадут многие — от журналистов до политических (   Читать дальше...   )Производство: НТВЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:43:03Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E5A97C3C5C9A2607559FDD0A59A32A8E87653C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166214   (426799) от 16.09.2017
-
-Открытый микрофон (2017.09.15) WEB-DLRip (сезон 2, выпуск 5)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426799.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBA401EB1730CC86BA60AE1DA089CF6E51A35E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166178   (426792) от 16.09.2017
-
-Love Is / Comedy Club / Comedy  Woman (2017.09.15) WEB-DLRip (выпуск 5)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426792.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Love is» — это экшен, мелодрама, триллер, но прежде всего комедия, снятая по стандартам Голливуда и Болливуда. Сочная качественная картинка, киношные спецэффекты и реалистичные декорации ставят проект ТНТ особняком, позволяя говорить о рождении нового жанра — кино-скетчком. «Love is» — это пять разных историй о пяти совершенно непохожих друг на друга женщинах. Единственное, (   Читать дальше...   )Телекомпания: ТНТЖанр: Юмор, ТВ-ШоуРежиссер: Рустам ИльясовСубтитры: ОтсутствуютПродолжительность: ~ 00:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BE356AA796F338825BE1EAA737074148B041DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166218   (426673) от 16.09.2017
-
-Открытый микрофон (2017.09.15) HDTV [H.264/1080i] (сезон 2, выпуск 5)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426673.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747AB3340E80A315FBCF47A0D3462C9500C03BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

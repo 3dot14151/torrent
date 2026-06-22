@@ -1,3 +1,83 @@
+###  Публикация: 1791213   (21554) от 13.04.2025
+
+Соник 3 в кино / Sonic the Hedgehog 3 (2024) BDRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соник, Наклз и Тейлз воссоединяются против нового могущественного противника, Ежа Шэдоу, таинственного злодея с силами, не похожими ни на что, с чем они сталкивались раньше. С их способностями, превосходящими во многих отношениях, команда Соника вынуждена создать неожиданный союз в надежде остановить Шэдоу и защитить планету.Производство: США, Япония / Paramount Pictures, Sega Sammy Group, Original FilmЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Джефф ФаулерАктеры: Бен Шварц, Джим Керри, Киану Ривз, Идрис Эльба, Коллин О`Шонесси, Джеймс Марсден, Тика Самптер, Ли Мадждуб, Кристен Риттер, Адам ПаллиПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, 3x Full), английские (Full, SDH), украинские (Forced, Full) и др.Продолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A9E2FCEAF2A63F7B1A77B65FB5B32D200A6C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790753   (21514) от 13.04.2025
+
+Соник 3 в кино / Sonic the Hedgehog 3 (2024) BDRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соник, Наклз и Тейлз воссоединяются против нового могущественного противника, Ежа Шэдоу, таинственного злодея с силами, не похожими ни на что, с чем они сталкивались раньше. С их способностями, превосходящими во многих отношениях, команда Соника вынуждена создать неожиданный союз в надежде остановить Шэдоу и защитить планету.Производство: США, Япония / Paramount Pictures, Sega Sammy Group, Original FilmЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Джефф ФаулерАктеры: Бен Шварц, Джим Керри, Киану Ривз, Идрис Эльба, Коллин О’Шонесси, Джеймс Марсден, Тика Самптер, Ли Мадждуб, Кристен Риттер, Адам ПаллиПеревод: дублированный (SC Produb, Jaskier, Flarrow Films, Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E1D21003AD7AA39D4A76EF9823FCA9A83C06A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650018   (20820) от 20.04.2025
+
+Бунт ушастых / Hop (2011) BDRip [H.264/720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационная комедия про кролика Хэппи, который не хотел продолжать семейное дело и разносить детям подарки перед Пасхой, а хотел стать барабанщиком и играть рок-н-ролл.
+
+А в это время злобный цыпленок строит планы по захвату власти на острове Пасхи.Производство: США, Япония / Universal Pictures, Relativity Media, Illumination EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Тим ХиллАктеры: Джеймс Марсден, Расселл Брэнд, Кейли Куоко, Хэнк Азария, Гэри Коул, Элизабет Перкинс, Хью Лори, Тиффани Эспенсен, Дэвид Хассельхофф, Челси ХэндлерПеревод: дублированныйСубтитры: русские (forced), английские (full, SDH)Продолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6082F8B60BB88C80275DB1027D5442213C6F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795393   (19389) от 04.05.2025
 
 Соник 3 в кино / Sonic the Hedgehog 3 (2024) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
@@ -6,7 +86,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19389.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18464.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18461.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18459.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18442.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18438.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18350.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18317.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18288.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17726.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17501.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17473.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17443.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17414.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17336.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17119.jpg" />
 </div>
 
 
@@ -423,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16957.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16374.jpg" />
 </div>
 
 
@@ -475,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16255.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15197.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15178.jpg" />
 </div>
 
 
@@ -553,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14608.jpg" />
 </div>
 
 
@@ -579,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14603.jpg" />
 </div>
 
 
@@ -590,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339399DC1AF3E5770438CF1556E266DBD0CFA829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801989   (14602) от 14.06.2025
-
-Белоснежка / Snow White (2025) BDRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная принцесса Белоснежка прячется в домике семи гномов от злой мачехи-колдуньи, которая завидует её красоте.Производство: США / Marc Platt Productions, Walt Disney PicturesЖанр: мюзикл, фэнтези, мелодрама, приключения, семейныйРежиссер: Марк УэббАктеры: Рэйчел Зеглер, Галь Гадот, Эмилия Фоше, Эндрю Бернап, Эндрю Барт Фельдман, Титус Берджесс, Мартин Клебба, Джейсон Кравиц, Джордж Салазар, Джереми СвифтПеревод: дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F9E67571512A3E92EB32EDE3AE1835D99465EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802283   (14465) от 16.06.2025
-
-Белоснежка / Snow White (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision P7, 10-bit]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная принцесса Белоснежка прячется в домике семи гномов от злой мачехи-колдуньи, которая завидует её красоте.Производство: США / Marc Platt Productions, Walt Disney PicturesЖанр: мюзикл, фэнтези, мелодрама, приключения, семейныйРежиссер: Марк УэббАктеры: Рэйчел Зеглер, Галь Гадот, Эмилия Фоше, Эндрю Бернап, Эндрю Барт Фельдман, Титус Берджесс, Мартин Клебба, Джейсон Кравиц, Джордж Салазар, Джереми СвифтПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86AF1E08AAEA035B716FE9B2929F3B5C40AEA073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803629   (13607) от 24.06.2025
-
-Бесконечная история / The Neverending Story (1984) BDRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убегая от школьных хулиганов, 10-летний Бастиан спрятался в старой книжной лавке, где нашел таинственную книгу, изукрашенную орнаментом. Открыв ее, Бастиан попал в призрачный фантастический мир бегающих улиток, летающих собак, бескрылых Драконов Удачи, проказливых эльфов и ходячей каменоломни по имени Камнекус.
-Но волшебной стране Фантазии и ее правительнице, Девочке-Императрице, (   Читать дальше...   )Производство: Германия (ФРГ), США / Bavaria Film, Bavaria Studios, Neue Constantin Film, Warner Bros. PicturesЖанр: фэнтези, драма, приключения, семейныйРежиссер: Вольфганг ПетерсенАктеры: Бэррет Оливер, Джералд МакРэйни, Драм Гаррет, Дэррил Кукси, Николас Гилберт, Томас Хилл, Дип Рой, Тило Прюкнер, Моузес Ганн, Ноа Хэтэуэй и другиеПеревод: Многоголосый профессиональныйЯзык озвучки: русскийСубтитры: русские, английскиеПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3978AF41A1D336B7DE233D70E81D34A5560CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

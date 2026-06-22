@@ -6,7 +6,7 @@ Magimoji Rurumo | Ведьмочка Рурумо [2014, TV, 12 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854149.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gekijouban Kara no Kyoukai / The Garden of Sinners / Сад грешников (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852122.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Girl Friend (Kari) / Girl Friend Beta / Подружка Бета [2014, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848510.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Gintama° / Гинтама [ТВ-4] [2015, TV, 51 из 51] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848393.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848177.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Chain Chronicle (2016) / Цепные хроники [2016, Movie, 3 из 3] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848050.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847945.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847654.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ GJ-bu | Good Job Club | Клуб добрых дел [2013, TV, 12 ep.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847161.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Uchuu Patrol Luluco / Space Patrol Luluco / Космический патрул�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846645.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Love Hina | Любовь и Хина [2000, TV, 25 TV + 3 OVA + 2 SP] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842741.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Виолетта Эве�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840749.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Zegapain | Дзэгапэйн [2006, TV, 26 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839952.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839876.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ God Eater / Пожиратель Богов [2015, TV, 13 из 13] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839405.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kami nomi zo Shiru Sekai: Megami Hen | The World God Only Knows: Goddesses Arc |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838338.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Majimoji Rurumo: Kanketsuhen | Magimoji Rurumo: The Conclusion | Ведьмоч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836685.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Furuba / Fruits Basket / Корзинка фруктов [2001, TV, 26 из 26] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836338.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Megazone 23 | Мегазона 23 OVA-1,2,3 [1985, OVA, 3 эп.] BDRip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836326.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Cencoroll | Сэнкоролл [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835914.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Ookami-san to Shichinin no Nakama-tachi / Волчица и семеро дру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831802.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Bright: Samurai Soul | Яркость. Душа самурая [2021, Movie] WEB
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831746.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ikkitousen: Great Guardians / Школьные войны (сезон трети
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830486.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Senki Zesshou Symphogear GX | Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830470.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Dog Days'' | Собачья Жизнь 3 [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830347.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Fate/Kaleid Liner Prisma Illya Zwei Herz! | Судьба: Девочка-вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830277.jpg" />
 </div>
 
 

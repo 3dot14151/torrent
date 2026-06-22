@@ -1,3 +1,29 @@
+###  Публикация: 1844679   (1050296) от 27.12.2025
+
+Приходи на меня посмотреть (2000) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Новым годом окна огромного города светятся изнутри разноцветными елочными огнями. Кажется, что за каждым из этих окон осторожно хранят любимый праздник. Кажется, что за каждым из них ждут новогоднего исполнения желаний… К силуэту пожилой женщины за одним из окон старого московского дома соседи по двору наверняка привыкли как к чему-то неизменному. Софья Ивановна (   Читать дальше...   )Производство: Россия / Киностудия им. М.ГорькогоЖанр: Мелодрама, комедияРежиссер: Михаил Агранович, Олег ЯнковскийАктеры: Олег Янковский, Ирина Купченко, Екатерина Васильева, Наталья Щукина, Марк Рудинштейн, Иван ЯнковскийСубтитры: ОтсутствуютПродолжительность: 01:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D7B04AD45D388061092913FDCC943BE933B55B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844336   (1049997) от 25.12.2025
 
 Мастер и Маргарита (2023) Blu-ray [H.264/1080p] [ITA Transfer]
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049997.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049961.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049955.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049931.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049921.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049540.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049539.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049424.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049267.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048769.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048656.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048635.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048632.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048282.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048214.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047622.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047552.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047112.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047060.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047057.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046933.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046850.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046740.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046739.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046729.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FB6C4E557E1109B771336D5E1D53246BBBED3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839634   (1046700) от 29.11.2025
-
-Черная стрела (1985) BDRemux [H.264/1080i]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец ХV века. Идёт война за английский престол - война Алой и Белой розы. Дик Шелтон, отец которого был убит, будет сражаться под знаменами будущего короля Англии Ричарда III. Но поняв цели и стремления враждующих сторон, Дик отойдёт от борьбы.Производство: СССР / МосфильмЖанр: приключения, военный, историяРежиссер: Сергей ТарасовАктеры: Галина Беляева, Игорь Шавлак, Леонид Кулагин, Юрий Смирнов, Альгимантас Масюлис, Борис Химичев, Александр Филиппенко, Сергей Тарасов, Яна Друзь, Борис ХмельницкийПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94DBCE6B7FFEBA615A88E66C0D66ABF993A334E
 ```
 
 https://mybot314.ru/tekegram_catalog/

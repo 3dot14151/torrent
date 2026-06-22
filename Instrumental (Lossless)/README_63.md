@@ -6,7 +6,7 @@ Ben Hemming - Marked Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537453.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Black Banjo - The Beauty And The Burst (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537385.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tasha Taylor - Honey For The Biscuit (2016) [FLAC|Lossless|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536589.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dan Patlansky - Dear Silence Thieves (2014) [FLAC|image+.cue]<Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535473.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Josh Smith - Over Your Head (2015) [FLAC|image+cue]<Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535472.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chris Rea - The Platinum Collection (2006) [FLAC|Lossless|image + .cue] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533070.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dave Specter - Six String Soul 30 Years On Delmark (2021) 2xCD, Compilation [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531871.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Omar And The Howlers - Wall Of Pride (1988) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531571.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ A.J. Poliquin - The Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530180.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Andy Robson & Urban Fox - Be Forgiving (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530173.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Black Cat Biscuit - The Way It Is (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530077.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ LaBelle - Nightbirds (1974) /2015, Audio Fidelity/ [FLAC|image+.cue]<Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529930.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Exception - The Exceptional Exception (1969) Remastered /2006, Air Mail Arch
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529821.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mindi Abair And The Boneshakers - No Good Deed (2019) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529158.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cabinet - The Sugarhouse Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528852.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Guido vom Flockenberg - Listen to the Blues (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528848.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Doug Henthorn - Three (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528802.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wellington Heads - Southern Night Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528800.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gabriel Delta, Daniele Mignone and Paolo Baltaro - A New World (2022) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528799.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Moonshiners - Boot Legs (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528754.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kenny Neal - Straight from the Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528658.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ron Lasalle - When Hellhounds Meet Angels (2012) [APE|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528193.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eric Gales (Eric Gales, The Eric Gales Band, The Gales Bros. Eric Gales Trio, Pi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527272.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Rocky Athas Group featuring Larry Samford - Miracle (2003) [APE|Lossless|ima
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525959.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Sean Webster Band - If Only (2005) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525223.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Albert King - The Tomato Years (1994) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525221.jpg" />
 </div>
 
 

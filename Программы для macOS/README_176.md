@@ -1,3 +1,108 @@
+###  Публикация: 1696033   (120016) от 31.01.2024
+
+Bartender 5 v.5.0.50 beta [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 14.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CAE8590CEE1DB14B1F6FE970E9A1FF0ED5EF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695963   (119997) от 31.01.2024
+
+Native Instruments Traktor Pro Plus 3 for Mac v.3.11.1.17  [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119997.jpg" />
+</div>
+
+
+###  Подробнее
+
+TRAKTOR PRO Plus — это дополнительная подписка для существующих пользователей TRAKTOR PRO. Благодаря этой подписке мы будем выпускать постоянно растущий поток захватывающих новых функций помимо обычных основных выпусков. Эти функции не будут обязательными для базовой функциональности, но предназначены для улучшения звука и производительности за счет использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2023 Native Instruments GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B01FCD9727D3CE3C643B92A379D4FF060D04441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696044   (119988) от 31.01.2024
+
+coconutBattery 3 Plus for Mac 3.9.15 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нативное приложение для отображения заряда аккумуляторов с 2005 года. С помощью coconutBattery вы всегда будете в курсе текущего состояния батареи. Утилита показывает информацию о качестве заряда батареи в реальном времени на Mac, iPhone и iPad.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2023 coconut-flavourПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779D18812E654A7F3BE64DE592610E239425BAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695992   (119973) от 31.01.2024
+
+JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119973.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это IDE от JetBrains, нацеленная на создание эргономичной среды для разработки Go. IDE расширяет платформу IntelliJ с помощью кодирования и интеграции инструментов, специфичных для языка Go. IDE анализирует ваш код, ищет соединения между символами, обеспечивает завершение кода, быструю навигацию, умный анализ ошибок, форматирование и рефакторинг.Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FDED619F034DFBE554CB258B944ED0140EC89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695907   (119961) от 31.01.2024
 
 Cycling'74 Max 8.6.0 + RNBO U2B [En]
@@ -6,7 +111,7 @@ Cycling'74 Max 8.6.0 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119961.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119953.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ CopyQueue Evaluation for Mac 3.1E [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119916.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ iStat Menus 6 v.6.73 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119891.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ SwitchResX 4.13.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119802.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ OmniFocus Pro 4.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119793.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ My PaintBrush Pro 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119790.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ LuLu 2.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119656.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ AnyMP4 Audio Converter for Mac 8.2.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119616.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ HitPaw Photo AI for Mac 3.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119533.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ HitPaw Watermark Remover for Mac 2.4.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119514.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ dBpoweramp Music Converter 2024-02-01 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119504.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ PowerPhotos 2.5.6 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119446.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ XMind Pro 2024 24.03 beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119154.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ Tipard DVD Creator for Mac 3.2.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119101.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ iToolab UnlockGo (Android) for Mac 7.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118663.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ JetBrains DataGrip for Mac 2023.3.4 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118653.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ FonesGo Android Unlocker for Mac 7.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118642.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ FonesGo iPhone Unlocker for Mac 6.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118641.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ iToolab UnlockGo 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118631.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ RocketSim for Xcode Simulator on Mac 12.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118601.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118594.jpg" />
 </div>
 
 
@@ -575,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB3DD5C49301D5E3C9F5C1D1E33C96A47CC3723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698261   (118584) от 08.02.2024
-
-SILKYPIX JPEG Photography 11 v.11.2.14.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118584.jpg" />
-</div>
-
-
-###  Подробнее
-
-С SILKYPIX JPEG Photography вы можете раскрыть свой творческий потенциал. Улучшите свои фотографии в формате JPEG, сделанные цифровыми камерами, смартфонами и другими устройствами. Используйте инструменты четкости для настройки резкости, кисть выделения от руки и другие инструменты. Создайте высококачественную фотографию, которую вы себе представляли, когда делали (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2024Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45A605E0CDC3739D188769C8C2C7D379B2B4E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698154   (118582) от 08.02.2024
-
-Athentech Perfectly Clear Video for Mac 4.6.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя возможности использования улучшенного Perfectly Clear’s AI Automatic Video Enhancement в своем бизнесе. Эта технология автоматического улучшения видео на основе искусственного интеллекта произвела революцию в отрасли, используйте ИИ для повышения качества вашего видео кадр за кадром.
-Если вы собираетесь улучшать видео с помощью Perfectly Clear’s (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2023 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90D1C82B155B40414860D5162D744EA91044956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698146   (118581) от 08.02.2024
-
-Movie Thumbnails Maker 4.5.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите сделать нарезку кадров из любимого фильма? Как насчет создания потрясающего обзора для всех последних фильмов? Movie Thumbnail Maker - это комплексное решение для быстрого и удобного создания миниатюр фильмов.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2024 yumysoft.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF76EE6A01E4CB92553B90125356FED6BEE92A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698359   (118573) от 08.02.2024
-
-FonesGo Location Changer for Mac 7.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имитируйте движение по GPS более реалистично на iOS/Android. FonesGo Location Changer — лучший партнер во время игры в Pokemon Go. Вы можете имитировать движение GPS с настраиваемой скоростью, например ходьбу, езду на велосипеде или вождение. Какой бы ни была причина, по которой вы застряли дома, вы всегда можете использовать этот инструмент, чтобы играть в Pokemon (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 FonesGoПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF643E3BD62C2C3EEF6A94FE27A1D1046C4D875D
 ```
 
 https://mybot314.ru/tekegram_catalog/

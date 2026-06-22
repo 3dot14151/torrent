@@ -6,7 +6,7 @@ Sueye Park - Paganini: 24 Caprices (2017) [FLAC|Lossless|tracks] <Classical>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321193.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318874.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318863.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318704.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Arturo Benedetti Michelangeli - Arturo Benedetti Michelangeli Plays Debussy (197
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318240.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Falla - Complete Works for Piano Solo (Ricardo Requejo) (1999) [FLAC|image +.cue
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317071.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rondo Veneziano - Marco Polo (1997) [FLAC|tracks+.cue]<Baroco>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316959.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316800.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deu
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315773.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und O
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315678.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Classical Romance, Vol. 2 (Famous Classical Music) (2018) [FLAC|Lossless|WE
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313978.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Classical Romance, Vol. 1  (Famous Classical Music) (2018) [FLAC|Lossless|W
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313975.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Julian Bream - Dances of Dowland (1967-1976) 1993 BMG Music [FLAC|Lossless|image
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313530.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Julian Bream - The Golden Age of English Lute music (1960-1963) 1993 BMG Music [
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313342.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311741.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Piano Novel - Fendre l'ecorce (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311690.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Florian Christl - Inspiration (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311002.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Pierre Fournier - Johann Sebastian Bach - Suites for Solo Cello nos.1-3-6 (1961)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310937.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sergei Rachmaninov (Сергей Рахманинов) - Complete Works For Cell
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310922.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Schubert - Piano Sonatas - Christian Zacharias (Vol.2) (2CDs) (1998) [FLAC|image
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309924.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Andre Rieu - December Lights (2012) [MP3|320 kbps]<Classical, Violin>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309894.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Schubert - Piano Sonatas - Christian Zacharias (Vol.1) (3CDs) (1998) [FLAC|image
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309825.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309405.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309272.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309268.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309258.jpg" />
 </div>
 
 

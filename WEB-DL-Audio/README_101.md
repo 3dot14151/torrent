@@ -6,7 +6,7 @@ Elvenking - Reader Of The Runes - Luna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67806.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67802.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mentalist - Earthbreaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67777.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Crow's Flight - The Dark Horizon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67770.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Insolate - Full Disclosure (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67764.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Juno Francis - Melancholia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67763.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67754.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Darkness - Easter is Cancelled (2019) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67751.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67724.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67690.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67662.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Storm Orchestra - Get Better (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67661.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Beirut - A Study of Losses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67660.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67655.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67615.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67612.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67608.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67607.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Rwake - The Return Of Magik (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67590.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Tunde Adebimpe - Thee Black Boltz (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67588.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Melvins - Thunderball (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Grunge, Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67586.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Davido - 5ive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67583.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Niviane - Queen Of Phantoms (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67578.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Black Stone Cherry - This is Black Stone Cherry's RSD album. The band really lik
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67577.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67570.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Party Pupils - Virtual Clarity (2025) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67565.jpg" />
 </div>
 
 

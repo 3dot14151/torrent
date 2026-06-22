@@ -1,3 +1,159 @@
+###  Публикация: 1711754   (112420) от 31.03.2024
+
+The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: Последствия Фортуны (2024) [Ru] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр The Unseen Fears. Это леденящее душу мистическое приключение в Норвегии, очередное дело сверхъестественного детектива Натаниэля. В этой части игры вы прикоснетесь к смертельно морозному дыханию ледяного монстра, который забрал души ваших друзей. Кошмары Натаниэля воплощаются в реальность и мешают сосредоточиться после пробуждения (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1142ABCBFAA27FCDE04B5CDE18EE4DFFBC676D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711684   (112381) от 31.03.2024
+
+Criminal Archives 3: Murder in the Pages / Криминальные архивы 3: Книжное убийство (2024) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающих историй из криминального архива Criminal Archives. Идеальных преступлений не бывает! Ты - криминальный репортер, стремящийся запечатлеть в своей книге самые неординарные истории, с которыми тебе довелось столкнуться. Тебе предстоит раскрыть серию загадочных убийств в Сан-Франциско. Оказывается, у этого светлого города есть своя темная сторона... (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CEE49B4E6BFF9C375A8B72EE78F26907F91DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711741   (112379) от 31.03.2024
+
+Edge of Reality 9: The Legend of Greenbush (2024) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Edge of Reality. Когда ваш старый друг обнаружил странный амулет, вы с радостью поделились своими познаниями в археологии, чтобы определить его происхождение. Но радость от возвращения домой была недолгой - вашего друга похищает разгневанный призрак, а затем со дна озера поднимается некогда легендарный город. Хватит ли у вас сил, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FD850C7195C2A6DF6AD9E0AA5AB996B7904DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713155   (111934) от 05.04.2024
+
+Wilde Investigations 2: Animal Sanctuary Shuffle (2024) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр Wilde Investigations. Богатый филантроп занимается строительством роскошного приюта для животных, и ему просто необходима ваша помощь! Прибыв на место, благодаря своему дару общения с животными вы узнаёте, насколько они несчастны. А затем прямо во время последних приготовлений из приюта сбегает красная панда! Сможете ли вы с помощью (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Я ищу, КазуальнаяЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1683A34356C2101CD123F2864AA6B472D7226C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713831   (111848) от 07.04.2024
+
+Lucky Season: King of Fools / Сезон удачи: Король глупцов (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую сказочную игру. День Святого Патрика уже совсем скоро! Вместе с другими лепреконами вы собираетесь нести людям удачу и пополнить магию своего мира. Но всё меняется, когда злые клуриконы похищают вашего брата вместе с волшебными монетами - источником силы лепреконов. Без них человечество ждут сплошные несчастья, а магия вашего мира скоро угаснет навсегда. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC41B8DF93A97FEA8321B5880337EE515C33BBEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713826   (111828) от 07.04.2024
+
+Reflections of Life 12: The Shattered Timeline / Отражения жизни 12: Песок времени (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательное продолжение сказочной серии игр Reflections of Life. Небесные Сёстры управляют потоком времени уже сотни лет. После того как злой колдун похитил Рассвет, День, Сумерки и Ночь, судьбы всех королевств оказываются в опасности. Только воин Ордена Стражей может восстановить артефакт времени и вернуть сестрам их законное место в космосе. Сможете ли вы побывать (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5D5F7341B0AF3F78B7ACE72B3AA479EADC8BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715815   (111488) от 13.04.2024
 
 Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Collector's Edition]
@@ -6,7 +162,7 @@ Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111488.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ It Happened Here 3: A Storm is Brewing (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111206.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110786.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109005.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Criminal Archives 4: Blade of Deceit (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107712.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Detectives United 7: Mission Possible (2024) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107335.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ City of Stories 2: The Professor's Secret (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106460.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Enchantment: Secret Hideaway (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105869.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Enchantment 2: Sun's Tear (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105806.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятв
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104370.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Abandoned: Chestnut Lodge Asylum / Заброшенная клиника "Каш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102476.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Dark Tales: Edgar Allan Poe's Murders in the Rue Morgue / Страшные ис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102466.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ The Book of Desires / Книга желаний (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102409.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101860.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Royal Romances 6: Fortunes and Foes / Королевские романы 6: У�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101434.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Ба
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101392.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Book Travelers 3: A Gothic Story / Книжные странники 3: Готи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101361.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Theatre of The Absurd Collector's Editon (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100132.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Tiger Eye 2: The Sacrifice (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99649.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99562.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition (P) [En] 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106D68B60E1B5F30B918BB3AE4AC6A9136F011D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481888   (99456) от 12.04.2012
-
-Inspector Magnusson: Murder on the Titanic (P) [En] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя месяц после гибели Титаника экипаж рыболовного судна "Plymouth" обнаружил тело Ричарда Гринфилда Бартоломью ІІІ. Тело идентифицировать не удалось, но экипаж рыболовного судна заинтересовал документ, найденный на теле, в котором сообщалось о плане собрать деньги на страхование от гибели лайнера "Олимпик".(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBCDDF434D27F16DDACABB9352FDBCC9746E17A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481521   (99290) от 11.04.2012
-
-The Book of Desires (P) [En] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая красивая игра от Big Fish Games и Meridian. Эшли приснился сон, в котором она очутилась в странном мире Книги Желаний. Проснувшись она понимает, что это был просто кошмар, но реальность оказывается не менее страшной. Путешествуйте по Книге желаний и помогите Эшли выйти из нее живой. Вас ожидают интригующие путешествия в другие миры, коварные головоломки и весьма увлекательный сюжет.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F779E45CB730C2D29B7B6BD8BB306D12ED900B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475062   (97993) от 29.03.2012
-
-Family Vacation: California / Семейные каникулы. Калифорния (P) [Ru] 2011
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барб с семьей собираются отдохнуть в солнечной Калифорнии! Помогите им упаковать чемоданы и добраться до аэропорта вовремя. Затем им нужно помочь попасть на борт, совершить безопасный перелет, попасть в отель, что находится в противоположной стороне... Потом нужно будет пристать к берегу, сыграть в мяч, сходить развлечься в парк аттракционов, прокатиться на сумасшедших американских горках, после чего Барб должна принять участие в своем любимом игровом шоу! Присоединяйтесь к очаровательной семье Симмонсов в этой веселой и захватывающей игре!(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский (любительский перевод)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF169520967F280D86E35D06AA16731BF8DE245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472800   (97604) от 24.03.2012
-
-Tales From The Dragon Mountain: The Strix (P) [Ge] 2011
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня игры - молодая девушка по имени Мина Локхарт. Ее постоянно преследует один и тот же ночной кошмар. Она напугана яростным пламенем: их старый дом охвачен пожаром и в конце сна сгорает дотла. Мина принимает решение отправиться в это место, где она провела все детство, чтобы раз и навсегда покончить со своими страшными видениями. Но ее ожидает нечто большее, чем путешествие в прошлое...(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA0DD79EC93C849608DE8E5620F9B681F7F97BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469234   (97014) от 17.03.2012
-
-Small Town Terrors: Livingston (P) [En] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша семья пропала, а город погрузился в хаос. Вам предстоит отыскать свою семью и остановить зло, которое окутало город. Исследуйте заброшенные здания и ищите полезные подсказки, которые помогут вам выяснить, что же на самом деле произошло с городом и спасти свою семью!(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1639BCBAC1D301480529F003C4381D4094D3D6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486608   (89975) от 22.04.2012
-
-Runaway With The Circus (P) [En] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в мир 30-ых годов Франции, время любви, борьбы, надежды. Вместе с красивой и молодой Матильдой начните путешествие в цирковой труппе артистов. Помогите ей завоевать сердце неприступного дрессировщика животных. Роскошные иллюстрации, захватывающие костюмы и покоряющий любовный роман перенесут вас к элегантности и стилю 1930-ых годов в новой игре от BigFish Games "Runaway With The Circus"(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2778EFD4491F18BD935494424CBA7C2E1F4746
 ```
 
 https://mybot314.ru/tekegram_catalog/

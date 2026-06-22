@@ -1,3 +1,171 @@
+###  Публикация: 622299   (960464) от 22.02.2013
+
+"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Blue
+02. An Universe Is In A Pocket
+03. Autumn
+04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622058   (960319) от 22.02.2013
+
+Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277969   (959978) от 03.01.2011
+
+Дискотека 80-х: 3D-Шоу. Авторадио представляет (2011.01.01) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959978.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Дискотека 80-х" стала дискотекой в полном смысле этого слова, где в одном непрерывном музыкальном ряду встали кумиры 80-х: C.С.Сatch, Alphaville, Secret Service, Ricchi e Poveri, Ottawan, Savage, Pupo, Barrabas, Олег Газманов, Стас Намин и группа "Цветы", Юрий Шатунов… В качестве специального гостя на фестиваль были приглашены музыканты легендарной (   Читать дальше...   )01. Юрий Шатунов - Белые розы
+02. Юрий Шатунов - Седая Ночь
+03. Ottawan - Hands Up
+04. Ottawan - D.I.S.C.O.(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3F4D7042BC1C0D3B89237139C1909A4977E191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979166   (959700) от 26.01.2016
+
+Квартирник у Маргулиса - Найк Борзов (2016) DVBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса  автор песен Найк Борзов. Дата эфира: 16.01.201601. Верхом на звезде
+02. Ты говоришь
+03. Ева
+04. Приснится мне(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A96425748D61632B71FB9C79FEBFEE7869CB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278293   (959028) от 04.01.2011
+
+Лучшие песни 2010 года (31.12.2010) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Лучшие Песни пройдет на самой главной концертной площадке страны, в Кремлевском Дворце. Лучшие Песни 2010, как ежегодное шоу, проводится именно на этой сцене мирового уровня, так как в программе звучат только - самые лучшие песни, выступают - самые талантливые и одаренные исполнители. Концерт Лучшие Песни 2010 - это прекрасный вечер, проведенный в кругу семьи, (   Читать дальше...   )01.Николай Басков - Все цветы
+02.Валерия - Птица-разлука
+03.Валерий Меладзе - Небеса
+04.Анна Вески - Радоваться жизни(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDD8445A21CD4580C370E62F9B547C1C96DDF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622600   (958682) от 23.02.2013
+
+Helene Fischer -Live/Fur einen Tag (2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958682.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свою успешную семилетнию карьеру, Хелене Фишер отмечена большим успехом и была удостоена многочисленными наградами. В 2012 году Хелене отправилась в тур под названием "Fur einen Tag", 50 концертов в семи странах. 350000 зрителей были восхищены профессионально поставленым шоу. "Fur einen Tag" - это не просто еще одна достопремечательность, но (   Читать дальше...   )Производство: EMI Music Germany GmbHЖанр: PopПеревод: ОтсутствуетПродолжительность: 02:33:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979857   (958414) от 27.01.2016
 
 Status Quo – The One And Only (2006) DVDRip
@@ -6,7 +174,7 @@ Status Quo – The One And Only (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958414.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958245.jpg" />
 </div>
 
 
@@ -65,7 +233,7 @@ ABBA – Number Ones (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958192.jpg" />
 </div>
 
 
@@ -94,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957360.jpg" />
 </div>
 
 
@@ -123,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957295.jpg" />
 </div>
 
 
@@ -152,7 +320,7 @@ R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957286.jpg" />
 </div>
 
 
@@ -181,7 +349,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957219.jpg" />
 </div>
 
 
@@ -210,7 +378,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957198.jpg" />
 </div>
 
 
@@ -239,7 +407,7 @@ Scorpions – Acoustica (2001) DVDRip [AVC, AC-3, DTS, PCM]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957095.jpg" />
 </div>
 
 
@@ -268,7 +436,7 @@ Eruption - One Way Ticket (1979) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956547.jpg" />
 </div>
 
 
@@ -294,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955877.jpg" />
 </div>
 
 
@@ -323,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955675.jpg" />
 </div>
 
 
@@ -352,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955554.jpg" />
 </div>
 
 
@@ -381,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955512.jpg" />
 </div>
 
 
@@ -410,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955288.jpg" />
 </div>
 
 
@@ -439,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955066.jpg" />
 </div>
 
 
@@ -465,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955042.jpg" />
 </div>
 
 
@@ -494,7 +662,7 @@ Snow Пати 2 (2017.01.01) WEB-DLRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955029.jpg" />
 </div>
 
 
@@ -520,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955022.jpg" />
 </div>
 
 
@@ -547,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955020.jpg" />
 </div>
 
 
@@ -558,169 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E0BC12D03EA450CCB0C67C92EDA02FF41AA6F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088886   (955016) от 01.01.2017
-
-Hit Non Stop New Year 2017 (2016.12.31) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только самые топовые артисты, зажигательные выступления, неожиданные сюрпризы, искрометные шутки и 100%-ый HIT NON STOP!
-ВСТРЕЧАЙ САМЫЙ ЖАРКИЙ НОВЫЙ ГОД С ТЕЛЕКАНАЛОМ EUROPA PLUS TV!
-Егор Крид, SEREBRO, 5sta Family, Ханна, Алина Артц, Джиган, Мот, Burito, Банд'Эрос, Artik & Asti, Глюк'OZA, Пицца, Иракли, Олег Майами, Анна Седокова и многие другие выступят специально (   Читать дальше...   )Производство: Europa Plus TVЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 04:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5150F575AB00891C7014DDFC90F686C751DCBBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088823   (954925) от 01.01.2017
-
-Легенды Ретро FM на Первом канале (2017.01.01)  HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступление 2017 года в эфире Первого ознаменует новогоднее супершоу лучшей музыки 70-х, 80-х и 90-х с участием ВИА «Верасы», Татьяны Булановой, Михаила Муромова, Игоря Николаева, Дмитрия Маликова, Игоря Корнелюка и других исполнителей.Телекомпания: Первый канал HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6584A6E3B4ABDF6C5CD947A2DED6AB88DB863747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088834   (954919) от 01.01.2017
-
-Новогодняя Дискотека 80-х от Авторадио (2016-2017) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное музыкальное событие года - Дискотека 80-х от Авторадио! С каждым годом фестиваль Авторадио становится все более масштабным. Сегодня Дискотека 80-х - не просто праздник поколения, возвращающий зрителей во времена их юности, а современное, неординарное и динамичное супершоу, привлекающее зрителей самых разных возрастов. В Новый Год мы имели возможность увидеть (   Читать дальше...   )Телекомпания: НТВ HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E433D2C7506C70BE123EE135D35509BE5CCDB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623268   (954820) от 26.02.2013
-
-AC/DC - No Bull (2008) Blu-Ray [VC-1/1080p] [Directors Cut]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockФормат: BDMVПродолжительность: 02:03:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980936   (954667) от 30.01.2016
-
-VA - The Paris Concert For Amnesty International The Struggle Continues… (1999) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Artist - Opening Credits
-02. No Artist - Introduction Presenter – Anita Roddick
-03. Peter Gabriel, Tracy Chapman, Bruce Springsteen & Youssou N'Dour - Get Up, Stand Up
-04. No Artist - Animation Short - Keep The Light(   Читать дальше...   )Жанр: Alternative Rock, Classic Rock, AfricanПеревод: ОтсутствуетПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBDD3D3781DF536B9310A6F8CBA38C56F075D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980587   (954445) от 30.01.2016
-
-Владимир Высоцкий - Кинохроника (2009-2010) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954445.jpg" />
-</div>
-
-
-###  Подробнее
-
-В "Кинохронику Владимир Высоцкий" вошли кадры, где Владимир Семенович поет, рассказывает о своей работе в театре, в кино, о музыке.
-Время не властно над памятью...
-Яркое тому подтверждение-неугасающий интерес к личности и творчеству Владимира Высоцкого. Три десятилетия, прошедших с момента его ухода из жизни, ничуть не отдалили во времени легендарный образ (   Читать дальше...   )Производство: Россия, "Ракурс" & "Квадро-Диск"Жанр: Документальный, Фильм-концертАктеры: Владимир ВысоцкийПродолжительность: 03:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677B1C9628CC5BA0C031BFDE3ABF8D745690DE2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

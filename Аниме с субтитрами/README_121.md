@@ -1,3 +1,30 @@
+###  Публикация: 1808601   (64946) от 25.07.2025
+
+D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: Святые [2016, TV, 13 из 13] HDTV 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие аниме разворачивается в альтернативной вселенной, все в той же Европе 19-ого века.
+Эта история рассказывает нам о противостоянии экзорцистов с Тысячелетним Графом. Они ведут борьбу за обладание Чистой Силой, божественной субстанцией, которая была создана для борьбы с Графом. В виде 109 частиц Чистая Сила была разбросана по всему миру. Но Тысячелетнему Графу (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメント, 8 PanЖанр: приключения, комедия, фэнтезиРежиссер: Асино ЁсихаруПеревод: YakuSub StudioЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DB52D725ED4A7E4CCC8ED6DE608D055A9422D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693689   (62686) от 17.03.2024
 
 Meiji Gekken: 1874 | Самураи эпохи Мэйдзи: 1874 [2024, TV, 10 эп.] WEBRip 720p raw
@@ -6,7 +33,7 @@ Meiji Gekken: 1874 | Самураи эпохи Мэйдзи: 1874 [2024, TV, 10 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62686.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Hikari no Ou | The Fire Hunter | Пожинатель огня [2023, TV, 20 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62520.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Nozomanu Fushi no Boukensha | The Unwanted Undead Adventurer | Нежеланн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62180.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Sasaki to P-chan / Sasaki and Peeps / Сасаки и Пи-тян [2024, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62177.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Momochi-san Chi no Ayakashi Ouji | The Demon Prince of Momochi House | Прин�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62171.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62075.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Saikyou Tank no Meikyuu Kouryaku / The Strongest Tank's Labyrinth Raids / Сил
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62074.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Yubisaki to Renren | A Sign of Affection | Любовь с кончиков па
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62052.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61980.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Ao no Exorcist: Shimane Illuminati Hen | Blue Exorcist: Shimane Illuminati Saga 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61978.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61968.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ Dosanko Gal wa Namara Menkoi / Hokkaido Gals Are Super Adorable! / Досанк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61891.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ Hime-sama Goumon no Jikan Desu | Tis Time for Torture, Princess | Время "п
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61863.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Jaku Chara Tomozaki-kun 2nd Stage / Bottom-tier Character Tomozaki 2nd Stage / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61658.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3nd / Classroom of the Elite III
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61655.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ Gekai Elise | Doctor Elise: The Royal Lady with the Lamp | Королева со
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61630.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ Gekkan Mousou Kagaku | Delusional Monthly Magazine | Псевдонаучный 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61537.jpg" />
 </div>
 
 
@@ -462,7 +489,7 @@ Mahou Shoujo ni Akogarete / Gushing over Magical Girls / Восхищаясь д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61472.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] Web
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61467.jpg" />
 </div>
 
 
@@ -514,7 +541,7 @@ Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61210.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61073.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ Metallic Rouge | Металлическая Руж [2024, TV, 13 эп.] WebRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60915.jpg" />
 </div>
 
 
@@ -597,7 +624,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60822.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ Bucchigiri?! | Буттигири [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60612.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ Kuramerukagari | Ослепляющая Кагари [2024, Movie] WEBRip 544p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59911.jpg" />
 </div>
 
 
@@ -660,32 +687,6 @@ Kuramerukagari | Ослепляющая Кагари [2024, Movie] WEBRip 544p r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CAEDFDB03D5C992C1398A15154EC573B9B65128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670514   (59447) от 17.04.2024
-
-Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights of the Apocalypse | Семь смертных грехов: Четыре всадника Апокалипсиса [2023, TV, 24 эп.] WEBRip 1080 raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59447.jpg" />
-</div>
-
-
-###  Подробнее
-
-5ый сезон Семи смертных грехов с новыми героямиПроизводство: студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: приключения, фэнтeзи, комедияРежиссер: Кодайра МакиПеревод: Anilibria(Манипулятор)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E97729C7DFC1DD1E2A65DD53083E6FE6F783F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

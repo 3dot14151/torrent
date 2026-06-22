@@ -6,7 +6,7 @@ Dragon's Crown (2013) [PS3] [USA] 4.41 [Cobra ODE / E3 ODE PRO ISO] [License] [R
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002353.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Venetica (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002120.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dragon's Crown (2013) [PSVita] [USA] 3.65 [NoNpDRM] [Unofficial] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001223.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mass Effect 3 (2012) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000923.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Knytt Underground [PS3] [ENG] [PSN] [3.55/4.21] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000619.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000598.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fat Princess / Принцесса-обжора [PS3] [RUS] [PSN] [3.55] (2009)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000586.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Vanquish [PS3] [ENG] [NTSC-U] (2010)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000581.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ New Super Mario Bros Wii The Next Levels [Wii] [ENG] [NTSC] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000578.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Showtime Championship Boxing [Wii] [NTSC] [Eng] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000337.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Start The Party! Save the World / Зажигай! Спасая мир [PS3] [RUS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000308.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Get Fit With Mel B [Wii] [Multi5] [PAL] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999275.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Bee Movie Game [Wii] [PAL] [Multi3] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999269.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Dead Rising 2 [xbox 360] [Region Free] [rus v2.1] (2010)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999211.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Agatha Christie: And Then There Were None [Wii] [NTSC] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998245.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Catz [Wii] [Region Free] [ENG] (2006)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997977.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Chicken Little: Ace in Action [Wii] [ENG] [NTSC] (2006)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997974.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Summoner A Goddess Reborn [GameCube] [NTSC] [ENG] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997938.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Hunter The Reckoning [GameCube] [NTSC] [ENG] (2002)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997922.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ WinUAE 2.5.1 + BIOS (эмулятор Amiga) [Amiga CD32] [English] (2012)
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996824.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Buffy Chaos Bleeds [CameCube] [NTSC] [ENG] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996614.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SoulCalibur II [GameCube] [NTSC] [ENG] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996599.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Marvel Nemesis: Rise of the Imperfects [GameCube] [PAL] [ENG] (2005)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996584.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Teenage Mutant Ninja Turtles 2 Battle Nexus [GameCube] [NTSC] [ENG] (2004)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996574.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Drop Zone: Under Fire [WiiWare] [RegionFree] [Eng] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996335.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Vampire Crystals [WiiWare] [RegionFree] [Eng] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996316.jpg" />
 </div>
 
 

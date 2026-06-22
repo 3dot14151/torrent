@@ -1,3 +1,107 @@
+###  Публикация: 1477567   (1010927) от 15.06.2021
+
+Шоу Тома и Джерри / The Tom and Jerry Show (2021) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-78 из 78)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые истории соперничества кота Тома и мышонка Джерри. Том упорно гоняется за Джерри и каждая новая уловка хитрого кота изобретательней предыдущей, но мышонок дает достойный отпор своему сопернику, не теряя возможности сделать ему между прочим какую-нибудь пакость. Погоня началась! Любимые кот и мышка каждого человека, Том и Джерри, вернулись в совершенно новых (   Читать дальше...   )Производство: США / Slap Happy Cartoons, Turner Entertainment, Warner Bros. AnimationЖанр: мультфильм, короткометражка,  комедия, приключения,  семейныйРежиссер: Даррел Ван Ситтерс, Дэн РутАктеры: Стефен Стэнтон, Грэй Гриффин, Рик Зефф, Джои Д’Аурия, Кэт Суси, Элисин Паккард, Дэниэл Росс, Крис Эджерли, Сэм Квасман, Рэйчел МакФарлейн  и др.Перевод: ДублированныйСубтитры: АнглийскиеПродолжительность: ~00:07:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F998DD608117E378C451FF7DDACB5A186E0D14A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478264   (1010472) от 18.06.2021
+
+Тресе: Защитница города / Trese (2021) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальный мир Манилы заполоняют темные сверхъестественные силы. Александре Тресе предстоит спасти город от надвигающейся катастрофы.Производство: Филиппины, Сингапур, BASE EntertainmentЖанр: фэнтези, боевик, детектив, для взрослыхРежиссер: Дэвид Хартман, Джей Олива, Тим ДиварАктеры: Лиза Соберано, Шэй Митчелл, Джон Джон Брионес, Стивен Блум, Карлос Аласраки, Мэнни Хасинто, Эрик Бауза, Даррен Крисс, Данте Баско, Саймон Дела КрусПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD07F76C28063D78EC6125A64D7B59B6086756A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478263   (1010451) от 18.06.2021
+
+Тресе: Защитница города / Trese (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальный мир Манилы заполоняют темные сверхъестественные силы. Александре Тресе предстоит спасти город от надвигающейся катастрофы.Производство: Филиппины, Сингапур, BASE EntertainmentЖанр: фэнтези, боевик, детектив, для взрослыхРежиссер: Дэвид Хартман, Джей Олива, Тим ДиварАктеры: Лиза Соберано, Шэй Митчелл, Джон Джон Брионес, Стивен Блум, Карлос Аласраки, Мэнни Хасинто, Эрик Бауза, Даррен Крисс, Данте Баско, Саймон Дела КрусПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792F0B064572E7AB6EDDDD790ABF2A914AD4589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478265   (1010431) от 18.06.2021
+
+Тресе: Защитница города / Trese (2021) WEB-DLRip  (сезон 1, серии 1-6 из 6) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальный мир Манилы заполоняют темные сверхъестественные силы. Александре Тресе предстоит спасти город от надвигающейся катастрофы.Производство: Филиппины, Сингапур, BASE EntertainmentЖанр: фэнтези, боевик, детектив, для взрослыхРежиссер: Дэвид Хартман, Джей Олива, Тим ДиварАктеры: Лиза Соберано, Шэй Митчелл, Джон Джон Брионес, Стивен Блум, Карлос Аласраки, Мэнни Хасинто, Эрик Бауза, Даррен Крисс, Данте Баско, Саймон Дела КрусПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DBFBE1D9A1BD96D3CE4DD860E424247EC87D13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479568   (1009518) от 24.06.2021
 
 Дружные мопсы / Puppy Dog Pals (2019) SATRip (Сезон 3, серий 1-26 из 26)
@@ -6,7 +110,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009518.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008393.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007681.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007244.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007218.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006004.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003653.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001709.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001669.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001667.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001627.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001626.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001304.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000920.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000798.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000107.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999252.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998466.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997107.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996593.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996039.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995742.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B97362F1833B9759918A3C68689CC5C8E6C05AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606220   (995344) от 20.01.2013
-
-Винни Пух и его друзья. Маленькие приключения /  Mini Adventures of Winnie The Pooh (2011-2012) BDRip (серии 1-10) (Обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто такой Винни Пух, думаю знают все. Эти короткометражки производства компании Уолта Диснея основаны на оригинальных иллюстрациях четырехтомного собрания о Винни Пухе Эрнеста Шепарда.Жанр: МультфильмПеревод: Профессиональный (дублированный) НевафильмПродолжительность: Каждая серия ~ 00:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BACFE187AB5AAFCBE23A9A93EDEE8745AD7E857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605990   (994581) от 22.01.2013
-
-ВакФу / WakFu (сезон 2, 26 серий из 26 + 1 SP) (2011) [H.264/720p-LQ] WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994581.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением в мир Вакфу!
-Наши герои окрепли и слегка повзрослели. Всё казалось бы хорошо — Нокс повержен, царит мир и порядок... Лишь доблестного рыцаря Сэдлигроува не хватает нашей компашке. Но действительно ли он погиб? Еву терзают сомнения...Жанр: Компьютерная анимация, Приключения, КомедияРежиссер: Тот, Оливье Тулье / Tot, Olivier "Güss" ThulliezПерсонажи: Юго, Седлигроув, Руэль, Амалия, ЕвангелинПродолжительность: 26 серий по ~ 00:22:00 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BC02575F212338E23FC9E47D26DAD665A17FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608622   (992615) от 26.01.2013
-
-Зеленый Фонарь: Анимационный сериал / Green Lantern: The Animated Series (1 сезон: 14 серий из 18) (2011-2013) WEB-DLRip (обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал с компьютерной анимацией, посвящённый приключениям Хэла Джордана, Зелёного Фонаря Сектора 2814 и его союзника Киловога. К ним потом присоединяются Рэйзер и Айя (робот с искусственным интеллектом). Они борются против главных злодеев сериала - Красных Фонарей, возглавляемых Атроситусом.Жанр: Компьютерная анимация, фантастика, боевик, приключенияРежиссер: Сэм Лью, Рик МоралесПерсонажи: Джошуа Китон, Том Кенни, Кевин Майкл Ричардсон, Джонатан Адамс, Грей ДеЛайл, Джейсон Спайсэк, Дженнифер Хейл, Йен Эберкромби, Сьюзан Блэйксли, Брайан Джордж и др.Перевод: Двуголосый закадровый, любительскийПродолжительность: 14 х ~ 00:20:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590245   (991500) от 27.01.2013
-
-Сорвиголова Кик Бутовски / Kick Buttowski: Suburban Daredevil (Сезон 2, 1-32(32)) (2011-2012) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кик Бутовски — очень необычный ребенок, живущий в самом обычном городе. Он — великий борец с обыденностью, который стремится сделать каждое мгновение своей жизни особенным. Твердо решив стать самым отчаянным каскадером в мире, Кик понимает, что ему необходимо преодолеть все жизненные обстоятельства на этом пути.Жанр: КомедияРежиссер: Крис Савино, Шерм КоэнПерсонажи: Кларенс Фрэнсис «Кик» Бутовски, Гюнтер Магнусон, Брэдли Фрэнсис «Бред» Бутовски, Брианна Фрэнсис «Брит» Бутовски, Кендалл Перкинс, Брианна Фрэнсис «Брит» БутовскиПеревод: Полный дубляж, вкл. песниПродолжительность: Cерия ~ 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFF5FBC409A2CC598758A82D5386E58A8ED6E48
 ```
 
 https://mybot314.ru/tekegram_catalog/

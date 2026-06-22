@@ -1,3 +1,134 @@
+###  Публикация: 1013901   (776815) от 06.05.2016
+
+Двое во вселенной / La corrispondenza  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эд и Эми - ученый и студентка, изучающие теорию струн и космических двойников, вселенную и параллельные измерения. Они - родственные души, созданные друг для друга. Их любовь не знает границ и расстояний. Но внезапно Эд исчезает. И все, что у нее остается - это регулярно приходящие от него послания. В какую игру втягивают Эми? Эксперимент ученого, решившего скрыться (   Читать дальше...   )Производство: Италия, Paco Cinematografica, Rai Cinema, Ministero per i Beni e le Attività Culturali (MiBAC), Business Location Sudtirol Alto Adige, Trentino Film Commission, Film Commission Torino-PiemonteЖанр: драма, мелодрамаРежиссер: Джузеппе ТорнатореАктеры: Ольга Куриленко, Джереми Айронс, Шона МакДональд, Анна Савва, Джеймс Смилли, Саймон Микок, Джерри Квартенг, Род Гленн, Джеймс Блур, Ирина Кара, Стюарт Адамс, Колин МакДугаллПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7818D26353D8D1E8328FBCB1726C88F2D0E9BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211945   (776702) от 09.03.2018
+
+Аутсайдер / Изгой / The Outsider (2018) WEBRip [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония после Второй мировой войны. Американского военнопленного освобождают благодаря помощи сокамерника, принадлежащего к якудза. Став свободным, солдат начинает завоевывать их уважение и возвращает свой долг в опасном криминальном мире.Производство: США, Linson Entertainment, Waypoint EntertainmentЖанр: Криминал, Драма, Детектив, ТриллерРежиссер: Мартин ЗандвлиетАктеры: Джаред Лето, Таданобу Асано, Киппэй Сина, Рори Кокрейн, Эмиль Хирш, Сиори Куцуна, Юрино, Нозоми де Ланкесэ, Кодзи Като, Сотаро ЯсудаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Португальские, Голландские, Французские, НемецкиеПродолжительность: 02:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0F4F562AFBAA85AD8AFF4E2F67AC373A5753D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014174   (776655) от 06.05.2016
+
+Ведьма / The Witch / The VVitch: A New-England Folktale  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья колонистов покидает плантацию, чтобы жить на уединенной ферме рядом с лесом в Новой Англии. Но вскоре младший ребёнок, ещё младенец, исчезает.Производство: США, Великобритания, Канада, Бразилия, Parts and Labor, RT Features, Rooks Nest Entertainment, Code Red Productions, Scythia Films, Maiden Voyage Pictures, Mott Street Pictures, Pulse Films, Very Special ProjectsЖанр: ужасы, детективРежиссер: Роберт ЭггерсАктеры: Аня Тейлор-Джой, Ралф Айнесон, Кейт Дики, Харви Скримшо, Элли Грэйнджер, Лукас Доусон, Батшеба Гарнетт, Сара Стефенс, Джулиан Ричингс, Вахаб Каудхри, Дерек ХердПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F85A1FFF4A61DAC6D2780C71533B7ECAE71C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212140   (776271) от 10.03.2018
+
+Звёздные войны: Последние джедаи / Star Wars: Episode VIII - The Last Jedi (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая история о противостоянии света и тьмы, добра и зла начинается после гибели Хана Соло. В Галактике, где Первый Орден и Сопротивление яростно сражаются друг с другом в войне, героиня Рей пробудила в себе Силу. Но что произойдет, когда она встретится с единственным оставшимся в живых рыцарем-джедаем — Люком Скайуокером?
+Кайло Рен перешел на Темную сторону Силы (   Читать дальше...   )Производство: США, Lucasfilm, Ram Bergman Productions, Walt Disney PicturesЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Райан ДжонсонАктеры: Марк Хэмилл, Кэрри Фишер, Адам Драйвер, Дэйзи Ридли, Джон Бойега, Оскар Айзек, Энди Серкис, Лупита Нионго, Донал Глисон, Энтони Дэниелс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (idx/sub) (отдельным файлом)Продолжительность: 02:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166C4CC6FBD3220BBA1A797ED39E1F30B97DA6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212554   (775586) от 12.03.2018
+
+Аннигиляция / Annihilation (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не знает, откуда взялась Зона Икс — смертельно опасная территория, кишащая аномальными явлениями. Там не бегают чудовища, оттуда не приносят трофеев, и охотники за наживой там не промышляют. Тайная правительственная организация отправляет в Зону одну исследовательскую экспедицию за другой, но чаще всего те не возвращаются — или возвращаются, но неуловимо и (   Читать дальше...   )Производство: Великобритания, США / DNA Films, Paramount Pictures, Scott Rudin ProductionsЖанр: Приключения, Драма, Фэнтези, Ужасы, Детектив, Фантастика, ТриллерРежиссер: Алекс ГарлендАктеры: Натали Портман, Бенедикт Вонг, Соноя Мидзуно, Дэвид Гяси, Оскар Айзек, Джон Шваб, Дженнифер Джейсон Ли, Джина Родригез, Тува Новотны, Тесса Томпсон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Aрабские, Датские, Немецкие, Греческие, Испанские, Финские, Французские, и др...Продолжительность: 01:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF16A200A4C82B45B47BC4F4055427987C2E521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014617   (775458) от 09.05.2016
 
 Сакуран / Sakuran (2006) BDRip [H.264 /1080p] [Jp / Ru, En Sub]
@@ -6,7 +137,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775458.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774971.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774172.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773968.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773312.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773051.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772894.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772889.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770031.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769184.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768799.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768781.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768445.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768258.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768213.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768043.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767758.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767704.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767582.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767309.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767262.jpg" />
 </div>
 
 
@@ -541,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6706172FE7E92B56FEFA909A0757E2B2F04B475C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213738   (767166) от 18.03.2018
-
-Астрал 4: Последний ключ / Insidious: The Last Key (2018) WEBRip [H.264/1080p-LQ] [EN / RU, EN, KOR Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая глава истории об экстрасенсе, которая умеет разговаривать с мертвыми. На этот раз в жизнь воплощается ее самый страшный кошмар: сущности из потустороннего мира проникают в ее собственный дом.Производство: США, Канада / Blumhouse Productions, Entertainment One, LStar CapitalЖанр: Ужасы, Детектив, ТриллерРежиссер: Адам РобителАктеры: Лин Шэй, Ли Уоннелл, Энгус Сэмпсон, Кирк Асеведо, Кейтлин Джерард, Спенсер Лок, Джош Стюарт, Тесса Феррер, Алек Рид, Ава Колкер ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (Notabenoid), Английские, Корейские (вшитые, не отключаемые)Продолжительность: 01:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ED35CC39A3CFA2EBC1632168F95575353D2DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279346   (765833) от 29.01.2019
-
-Суспирия / Suspiria (2018) BDRip [H.264/1080p] [En / Ru, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая американка приезжает в Берлин, чтобы присоединиться к знаменитой танцевальной труппе. Однако в стенах студии девушка внезапно обнаруживает нечто зловещее и сверхъестественное. Вскоре она понимает, что станет следующей жертвой, если не успеет раскрыть тайну проклятия, которое окутало легендарную танцевальную академию.Производство: Италия, США / Frenesy Film Company, Videa, First Sun, MeMo Films, Mythology Entertainment, Amazon StudiosЖанр: Фэнтези, Ужасы, Триллер, ДетективРежиссер: Лука ГуаданьиноАктеры: Дакота Джонсон, Тильда Суинтон, Дорис Хик, Малгоша Бела, Хлоя Грейс Морец, Миа Гот, Ангела Винклер, Ванда Каприоло, Алек Век, Джессика Батю, Елена ФокинаПеревод: ОтсутствуетСубтитры: Русские, Английские (full, SDH)Продолжительность: 02:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B3FC356D52CD3F5152E4524821C306889EC49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279330   (765824) от 29.01.2019
-
-Экстаз / Climax (2018) BDRip [H.264/1080p-LQ] [Fr / Fr, EN Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождение и смерть — невероятный опыт, а жизнь — ускользающее наслаждение. Выпускники академии современного танца решают устроить прощальную вечеринку. Однако таинственным образом под нарастающий ритм музыки их всех охватывает эйфория, которой невозможно сопротивляться. Теперь балом правит зловещий хаос и спасение можно найти, только отдав свою душу танцу. Для одних (   Читать дальше...   )Производство: Франция, Бельгия, США / Rectangle Productions, Wild Bunch Company, Arte France and otherЖанр: Драма, Ужасы, Музыкальный, ТриллерРежиссер: Гаспар НоэАктеры: София Бутелла, Ромен Гийермик, Сухейла Якуб, Смайл Кидди, Клод Гаян Малл, Жизелль Палмер, Тейлор Кастл, Теа Карла Шотт, Шерлин Темпл, Леа Вламос и др.Перевод: ОтсутствуетСубтитры: Французские (forced), АнглийскиеПродолжительность: 01:36:25Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D41D780AFA3F16EA3EBB10F5EE25B59D77DA325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126538   (764324) от 19.04.2017
-
-Золото / Gold (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764324.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Кенни Уэллса — современного золотоискателя, хваткого дельца и мечтателя, который отчаянно ждёт шанса переломить судьбу. Оставшись без особых вариантов, Уэллс находит себе такого же неудачливого напарника — геолога, чтобы реализовать грандиозный план: найти золото в неизведанных индонезийских джунглях.Производство: США, Black Bear Pictures, Boies / Schiller Film Group, Hwy61, Living FilmsЖанр: Приключения, Драма, ТриллерРежиссер: Стивен ГейганАктеры: Мэттью МакКонахи, Эдгар Рамирес, Брайс Даллас Ховард, Кори Столл, Тоби Кеббелл, Билл Кэмп, Джошуа Харто, Тимоти С. Саймонс, Крэйг Т. Нельсон, Мэйкон Блэр ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1814896904736324EDE6197142614CC797BA26E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394268   (764208) от 04.07.2020
-
-Форпост / The Outpost (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764208.jpg" />
-</div>
-
-
-###  Подробнее
-
-A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afghanistan.Производство: США, Болгария / Millennium Media, York FilmsЖанр: Боевик, военный, драма, историяРежиссер: Rod LurieАктеры: Orlando Bloom, Scott Eastwood, Caleb Landry Jones, Milo Gibson, Bobby Lockwood, Jacob Scipio, Jack Kesy, Celina Sinden, Taylor John Smith, Alexander ArnoldПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: English (Full, SDH)Продолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F041C16F572B93C6A6F30A544FD527068D3D95
 ```
 
 https://mybot314.ru/tekegram_catalog/

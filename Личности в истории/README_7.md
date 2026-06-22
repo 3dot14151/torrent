@@ -1,3 +1,29 @@
+###  Публикация: 1552545   (586653) от 21.05.2022
+
+Де Голль. Великое и сокровенное / Де Голль: история и судьба / De Gaulle, l eclat et le secret (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) Культура
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Июнь 1940 года. Франция переживает тревожные часы — немцы в Париже. Генерал Шарль де Голль просит семью — жену Ивонн, детей Элизабет, Филиппа и Анну — собрать вещи и отплыть на пароходе в Алжир. Сам же направляется в Лондон с миссией предложить Уинстону Черчиллю объединить усилия для противостояния нацистской Германии и продолжить борьбу во имя Франции вместе с англичанами. (   Читать дальше...   )Производство: Франция / Effervescence, France Télévisions, Région Grand EstЖанр: драма, военный, биография, историяРежиссер: Франсуа ВельАктеры: Самюэль Лабарт, Констанс Долле, Батист Русийон, Жан-Луи Трибе, Стефан Жобер, Марго Шателье, Пьер Рошфор, Кристофер Крэйг, Франсис Юстер, Кристоф БарбьеПеревод: Многоголосый профессиональный (ТК "Культура")Язык озвучки: РусскийПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEFF762C02AD1431C41CF067342DBEB7B161FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041144   (584518) от 07.08.2016
 
 Флотоводцы России XX век (2009) DVB
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584518.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581436.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580431.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579485.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578391.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578385.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578209.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578207.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576533.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576447.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576441.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576440.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576435.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576432.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576309.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576300.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574571.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574382.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574142.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572968.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572330.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567158.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561330.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559843.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557076.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A553A33E494988BCDF268D67089A2A0CA910F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557076   (556438) от 12.06.2022
-
-Петр Великий. История с французским акцентом (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм к 300-летию со дня присвоения Петру I титула императора и 350-летию со дня рождения Петра. Фильм расскажет о том, как советник императрицы Елизаветы Петровны Иван Шувалов убедил главного вольнодумца Европы Вольтера написать биографию Петра Великого, как происходило это написание и какой в этой книге предстала Россия. Малоизвестный факт: весь (   Читать дальше...   )Производство: Россия, т/к "Россия-Культура", ВГТРКЖанр: документальный, биография, историяРежиссер: Андрей КияницаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5215CD9FDA1AD0D6B543EDD8EDA5A5BA6682B762
 ```
 
 https://mybot314.ru/tekegram_catalog/

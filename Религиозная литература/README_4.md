@@ -1,3 +1,58 @@
+###  Публикация: 1444748   (1033999) от 04.02.2021
+
+Фонд Иоанна Чудотворца (изд.) | Не печальтесь, не падайте духом, я с вами. [Свидетельства о помощи и почитании Иоанна Чудотворца] (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иоанн Чудотворец, к сожалению, ещё не все знают это удивительное имя. Но те, кто узнал, однажды обратившись к нему, уже не расстаются с этим дивным небесным помощником и верным другом.
+
+Наша книга посвящена: Великому чудотворцу XX века; его помощи людям; почитанию святого в различных уголках нашей прекрасной планеты; созданию музея Иоанна Чудотворца в России.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3C2F22B26D63158B3425CC5C81F1781F46122D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618585   (1033899) от 12.03.2023
+
+Иеромонах Серафим (Роуз) | Православие и религия будущего (2003) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая ересь имеет свою собственную «духовность», свой особый характерный подход к практике религиозной жизни. Так католицизм до недавнего времени обладал своим особым, легко отличимым видом благочестия, связанным с «сердцем Христовым», папством, чистилищем и индульгенциями, с откровениями различных «мистиков» и тому подобным; и внимательный православный наблюдатель (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4A9AC98DC0E364C69B9AAA68B12F0A9B103A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618789   (1033897) от 12.03.2023
 
 Святитель Григорий Палама | Как можно видеть Бога (2017) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +61,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033897.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033388.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033214.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033207.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033004.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032932.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032724.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032585.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032531.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032099.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032097.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032048.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032037.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031909.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031902.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031875.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031435.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030278.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030237.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030029.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029815.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029776.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029245.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ Cергей Милов (сост.) | Таинство Покаяния (2011) [F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028926.jpg" />
 </div>
 
 
@@ -625,58 +680,6 @@ Cергей Милов (сост.) | Таинство Покаяния (2011) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15116E3E8E7B63150E6AC6573B7696E402519952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451690   (1028244) от 03.03.2021
-
-Архимандрит Кирилл (Павлов) | Вступая на поприще Великого поста... (2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пост — это одно из самых действенных средств в борьбе с искушениями. «Наш дух постоянно противоборствует плоти, они друг другу противятся, поэтому, если хочешь, чтобы дух твой был крепким, обуздай плоть постом», — наставлял архимандрит Кирилл (Павлов), не забывая напоминать и о другой, духовной стороне поста, которой посвящены многие великопостные молитвы.Жанр: Духовно-просветительская православная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E6C307E6E1EB7027065D50EA3E590353CA2385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451585   (1028221) от 03.03.2021
-
-Иркутск (изд.) | О цели христианской жизни. Беседа преподобного Серафима Саровского с Н.А. Мотовиловым (1994) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беседа преподобного Серафима с Николаем Александровичем Мотовиловым (1809-1879 гг.) о цели христианской жизни произошла в ноябре 1831 года в лесу, неподалёку от Саровской обители, и была записана Мотовиловым. Рукопись была обнаружена через 70 лет в бумагах жены Николая Александровича, Елены Ивановны Мотовиловой. Мы публикуем текст беседы издания 1903 года с некоторыми (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0631F7744A94152A5F1D1769D3AAC8B3AEB11E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

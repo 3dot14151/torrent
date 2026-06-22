@@ -1,3 +1,55 @@
+###  Публикация: 1522086   (731621) от 08.02.2022
+
+Цена риска / Le Prix du danger (1983) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по рассказу Роберта Шекли «Премия за риск». В недалёком будущем мир развлекается жестокой телевизионной забавой, где пять охотников гонятся за безоружной жертвой. Если беглец сумеет избежать смерти, он получит солидное денежное вознаграждение. Новая жертва ТВ безработный Франсуа Жакемар соглашается стать дичью. Но чем дальше ему удаётся убежать, тем сильнее (   Читать дальше...   )Производство: Франция, Югославия, Авала-фильм, Swabie Production, TF1 Films Productions, Top 1Жанр: фантастика, драма, боевик, триллерРежиссер: Ив БуассеАктеры: Жерар Ланвен, Мишель Пикколи, Мари-Франс Пизье, Бруно Кремер, Андреа Ферреоль, Жан Ружери, Жан-Клод Дрейфус, Жан-Пьер Баго, Анри-Жак Юэ, Драган СтюлжаненПеревод: дублированный (к/с им. Горького), профессиональный многоголосый (ОРТ)Субтитры: английскиеПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779F75770C2253E433C069B07E7C04777B468A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282682   (729713) от 20.02.2019
+
+Происшествие у Фантом-Хилл / Incident at Phantom Hill (1966) BDRip [H.264/720p-LQ] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце гражданской войны груз золота, ценой в миллион долларов, был похищен и спрятан в пустыне. Многие хотят до него добраться, но сделать это не просто. Трое отчаянных парней сражаются с индейцами, слепыми силами природы, и друг с другом, чтобы заполучить эти деньги.Производство: США / Universal PicturesЖанр: Приключения, ВестернРежиссер: Эрл БелламиАктеры: Роберт Фуллер, Жослин Лэйн, Дэн Дюрьи, Том Симкокс, Линден Чайлз, Клод Экинс, Ной Бири мл., Пол Фикс, Денвер Пайл, Уильям ФиппсПеревод: Одноголосый закадровый (NezPerce)Субтитры: Русские, английскиеПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C965918AD614D27C58D6F13318B78EBF5E2200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127652   (728542) от 24.04.2017
 
 Под нами враг / The Enemy Below (1957) BDRip [H.265/1080p-LQ]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728542.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728532.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728298.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_728060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_728060.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727631.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727301.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727073.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726445.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725860.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725115.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724743.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724091.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724071.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723987.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723942.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723865.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723442.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723008.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722477.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722266.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722142.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722134.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_721517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_721517.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720735.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AA1C6ED48D41BC8868836E516FA4EF98E5A99BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273310   (720505) от 26.02.2019
-
-Назад в будущее / Back to the Future (1985) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток Марти с помощью машины времени, сооруженной его другом профессором доком Брауном, попадает из 80-х в далекие 50-е. Там он встречается со своими будущими родителями, еще подростками, и другом-профессором, совсем молодым.Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: Комедия, Приключения, ФантастикаРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Томас Ф. Уилсон, Лиа Томпсон, Мэри СтинбёргенПеревод: Дублированный, профессиональный (студия "Пифагор")Субтитры: Русский, АнглийскийПродолжительность: 01:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3D863FECCA079736A0EAF534121A83957C0283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525611   (720419) от 16.02.2022
-
-Последний киносеанс / The Last Picture Show (1971) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит с ноября 1951 по октябрь 1952 года в небольшом городке Анарин на севере Техаса, приходящего в упадок. Двое закадычных друзей, Сонни Кроуфорд и Дуэйн Джексон, заканчивают школу. Сонни — второй капитан школьной футбольной команды, чувствительный и ответственный, переживающий из-за постоянных проигрышей на межшкольных чемпионатах. У него есть подруга (   Читать дальше...   )Производство: США, BBS Productions, Columbia Pictures Corporation, Last Picture Show ProductionsЖанр: драма, мелодрамаРежиссер: Питер БогдановичАктеры: Тимоти Боттомс, Джефф Бриджес, Сибилл Шепард, Бен Джонсон, Клорис Личмен, Эллен Бёрстин, Айлин Бреннан, Клу Гулагер, Сэм Боттомс, Шэрон УллрикПеревод: профессиональный многоголосый (1 канал), профессиональный двухголосый (Кармен Вмдео)Субтитры: русские, английскиеПродолжительность: 02:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D0F8F70C21472F7F921E597808D02A096DD1FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1631188   (174927) от 10.10.2023
+
+Мирный-21 / Мирний-21 (2023) WEB-DL [H.264/1080p] [UKR / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 2014-го года, Луганская область. Российская армия начинает первые военные действия на территории Украины. Граница Луганской области, охраняемая украинскими пограничниками, подвергается серии атак. В скором времени командир отряда пограничников Сергей Дейнеко и его подчиненные получают предложение от российских военнослужащих сдать оружие, и перейти на сторону (   Читать дальше...   )Производство: Украина / Kinomania Film DistributionЖанр: драма, военныйРежиссер: Ахтем СейтаблаевАктеры: Андрей Саминин, Максим Девизоров, Евгений Ламах, Роман Ясиновский, Виктор Жданов, Андрей Мостренко, Алексей Тритенко, Лорена Колибабчук, Мария Штофа, Павел ЛиПеревод: ОтсутствуетЯзык озвучки: украинскийСубтитры: украинские, английскиеПродолжительность: 01:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD31D7909D7D2993B35E8CE29715FBB22E4EC3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669854   (172413) от 18.10.2023
 
 Максим Оса / Maksym Osa (2022) BDRemux [H.264/1080p] [UKR / GER Sub]
@@ -6,7 +32,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172413.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171650.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171628.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170845.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170679.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170094.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169630.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169582.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168706.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168684.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168645.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166011.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164980.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164865.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163194.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161613.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161541.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161115.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160798.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159604.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152732.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152083.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150782.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149415.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146935.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73F54A4C6939820DC5B45A77FF7B5B9588D890FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678186   (146542) от 20.11.2023
-
-Узбечка / Uzbechka / O’zbek Qizi / Uzbek qizi (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна, 1943 год, Калининский фронт. Девушки-снайперы проходят боевое крещение. Выпускницы стрелковой школы впервые на фронте. Одна из них — восемнадцатилетняя узбечка Джамиля.Производство: Узбекистан, Беларусь / Сinema of Сentral Аsia, Беларусьфильм,  Агентство кинематографии УзбекистанаЖанр: военный, драмаРежиссер: Акбар БектурдыевАктеры: Айсенем Юсупова, Зулхумор Муминова, Мухаммадисо Абдулхаиров, Фарход Худойбердиев, Александра Алексеева, Елизавета Шукова, Милана Иванова, Олег Тактаров, Йигитали МамаджановПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: Русские (hardsub на Узбекскую речь)Продолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56366ACDBDE3AB895C9526055FAC547F1D13020D
 ```
 
 https://mybot314.ru/tekegram_catalog/

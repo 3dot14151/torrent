@@ -1,3 +1,107 @@
+###  Публикация: 1486451   (855694) от 27.09.2021
+
+Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбор душ умерших от звонка до звонка — серые будни любой вороны, зарабатывающей на жизнь честным трудом. Однако работа может заиграть новыми красками, когда порученная тебе душа похищена, а отчаянный вор скрылся в краях, неподвластных смерти, — там, где раздувшиеся от собственной алчности и мощи существа уже давно пережили отведенный им срок.Тип издания: LicenseРазработчик: Acid NerveЖанр: Adventure, Action, RPG, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4456A4CDD4B9053748C673817E5F99EC17F75B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377044   (854466) от 20.04.2020
+
+Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.7) License GOG (обновляемая)
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854466.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Stygian: Reign of the Old Ones вам предстоит спуститься из обреченного Аркхема в жуткие глубины Бездны. Вы должны создать персонажа, основываясь на архетипах 1920-х годов, и прорубить себе путь сквозь полный загадок изломанный мир.Тип издания: LicenseРазработчик: Cultic GamesЖанр: Ролевая игра, Пошаговая, ХоррорЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30C3B904031B8A09F1775B0960F07BB56F46C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498919   (852324) от 29.09.2021
+
+NEO: The World Ends with You (2021) [Multi] (1.00) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжение сюжета The World Ends with You наконец доступно игрокам! Действия продолжат разворачиваться в Шибуе, где Игроки в Игре Жнецов будут пытаться получить второй шанс на жизнь. Каждому игроку полагается значок с дизайнерским черепом, с помощью которого можно не только определить себе подобных, но и читать мысли живых людей. Мёртвых как-то не очень (   Читать дальше...   )Тип издания: LicenseРазработчик: h.a.n.d., Inc.Жанр: RPG, Action, AdventureЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466FB0C573D94209894A13CC3460AE5307A6B07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000851   (851611) от 29.03.2016
+
+Divinity II (2012) [Ru/En] (1.4.700.49) Repack R.G. Origami [Developer's Cut]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пламенный рыцарь, последний из легендарных посланников драконов, возвращается в Ривеллон! Вырвавшись из астральной тюрьмы, он оказывается в Алероте - древнем городе, осаждённом войсками Дамиана Проклятого. Начинается решающая битва светлых сил и армий Хаоса. Игроков ждет более 80 часов игрового времени и более сотни увлекательных квестов. Выполняя задания, поклонники (   Читать дальше...   )Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72937D9A4BC754B52F6A16892F244DA870F4993E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110781   (851399) от 03.03.2017
 
 Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License GOG
@@ -6,7 +110,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851399.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Leap of Fate (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849941.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Guild of Ascension (2021) [Multi] (8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849065.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848226.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Crystal Rift (2016) [En] (1.2.4) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848224.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847941.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847761.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Gothic II: Gold Edition / Готика 2: Золотое издание (2005) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847755.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846696.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845893.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BELOW (2018) [Ru/Multi] (1.1.0.82) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845793.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Rustler (2021) [Ru/Multi] (1.02.01) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845705.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Hyper Light Drifter (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842493.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430/dlc) Repack =nemos= [Enhan
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842487.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842441.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Mana Spark (2018) [Ru/Multi] (1.1.08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842376.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842212.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Atelier Firis: The Alchemist and the Mysterious Journey (2017) [En] (1.0.0.9/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840852.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ The Incredible Adventures of Van Helsing II/2 / Van Helsing 2: Смерти во
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838482.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Torment: Tides of Numenera (2017) [Ru/En] (1.0.1/dlc) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837500.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833099.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830968.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:004DB6A928B98A34D216D80A9960A3A197EA93FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156224   (830762) от 04.05.2020
-
-Children of Zodiarcs (2017) [Multi] (1.0.3.7-2f11118c226f) License GOG [Collector's Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Children of Zodiarcs - это сюжетное-ориентированная тактическая jRPG от канадской студии Cardboard Utopia, которая разбавила классический игровой процесс элементами коллекционных карточных игр, бросками изготавливаемых игроками кубиков и некоей новой для жанра тактических jRPG динамической системой битв. Карты ответственны за все доступные персонажам атаки и активируемые (   Читать дальше...   )Тип издания: LicenseРазработчик: Cardboard UtopiaЖанр: Ролевая игра, Стратегия, ТактическаяЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726B975A9D64827EE1DAA6DC042441633CF11B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005952   (830075) от 10.04.2016
-
-Convoy (2015) [Ru/En] (1.1.51) Repack ARMENIAC
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convoy - постапокалиптический тактический рпг-рогалик с процедурно генерируемым миром от независимой студии Convoy Games, которые вдохновлялись вселенной Безумного Макса и известным инди-хитом FTL: Faster Than Light. События игры разворачиваются на поверхности планеты. Цивилизация находится на грани уничтожения, а единственным средством выживания стали боевые машины. (   Читать дальше...   )Тип издания: RepackРазработчик: Convoy GamesЖанр: RPG (Rogue,Action), Top-downЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796E8567F9572DE247AB2FE7E6917B4409CED968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381013   (829056) от 05.05.2020
-
-Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.10/dlc) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dragon Ball Z: Kakarot – долгожданное продолжение серии игр Dragon Ball Z. Игра сделана по мотивам манги и аниме сериала «Драконий Жемчуг». Главный герой Сон Гоку – протагонист вселенной; нам предстоит отправиться с ним в приключение и узнать его историю. События разворачиваются во вселенной «Dragon Ball Z»; развитие происходящего дополнено сайд-квестами и различными (   Читать дальше...   )Тип издания: RepackРазработчик: CyberConnect2 Co. Ltd.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A62FCC72F31CDFB03D66EF932036375C7BDDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195723   (828340) от 26.04.2010
-
-Fallout [Ru] (P) 1997
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2077 году разразилась Третья Мировая война. Ядерная война. Всего за два часа большая часть планеты превратилась в радиоактивное пепелище. Лишь немногим счастливчикам удалось укрыться в огромных подземных убежищах до начала войны. Новое поколение людей росло в бункерах, даже не предполагая о существовании внешнего мира. Вскоре в жизни одного из них наступят серьезные перемены: ему предстоит покинуть убежище и подняться на поверхность. Впереди - встреча с новым, пережившим ад ядерной войны миром и его кошмарными обитателями.Тип издания: ПираткаРазработчик: Interplay Productions / Black IsleЖанр: RPG / IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский (Fargus)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

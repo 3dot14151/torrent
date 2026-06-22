@@ -1,3 +1,56 @@
+###  Публикация: 1011252   (796600) от 27.04.2016
+
+Вспомнить всё / Total Recall (1990) BDRip [H.265/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь простого рабочего парня Дага Куэйда скучна и однообразна. Поэтому, чтобы хоть как-то поразвлечься, он решает воспользоваться услугами некой компании, которая за определенную плату посылает в его мозг импульсы, создающие полную иллюзию того, что он — другой человек, живущий другой, интересной жизнью.
+Все бы хорошо, но после сеанса Дагу совершенно невозможно (   Читать дальше...   )Производство: США / Carolco International N.V., Carolco Pictures Inc.Жанр: Боевик, Приключения, ФантастикаРежиссер: Пол ВерховенАктеры: Арнольд Шварценеггер, Шэрон Стоун, Рейчел Тикотин, Ронни Кокс, Майкл Айронсайд, Маршалл Белл, Мэл Джонсон мл., Майкл Чэмпион, Рой Броксмит, Рэй БэйкерПеревод: Многоголосый закадровый, профессиональный (R5, CP Digital)Язык субтитров: Русский, португальский, датский, немецкий, испанский, французский, итальянский, норвежский, финский, шведский, английскийПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536BDCE72C8563EB9901CBE002120D273830FDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376574   (796538) от 26.05.2020
+
+Это началось в Неаполе / It Started in Naples (1960) WEB-DLRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адвокат Майкл Гамильтон приезжает из Филадельфии в Неаполь, чтобы уладить дела своего умершего брата Джозефа, с которым он долгое время не виделся. Он придерживается невысокого мнения об итальянцах, и его предубежденность усиливается, когда от адвоката Марио Витале он узнает, что Джозеф, несмотря на то, что у него в Филадельфии осталась жена, завел семью в Неаполе (   Читать дальше...   )Производство: США / Capri Productions, Paramount PicturesЖанр: Драма, КомедияРежиссер: Мелвилл ШэвелсонАктеры: Кларк Гейбл, Софи Лорен, Витторио Де Сика, Мариэтто, Паоло Карлини, Джованни Филидоро, Клаудио Эрмели, Боб Каннингэм, Марко Тулли, Карло РиццоПеревод: Многоголосый профессиональныйСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7978299E31B8BC2B85EDDF5603496EF5EA3C394A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414318   (796026) от 10.11.2021
 
 Прощай, полицейский / Adieu, poulet (1975) BDRip [H.264/1080p]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796026.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795758.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795492.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795112.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794817.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794652.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793958.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793944.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793866.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792897.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792850.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792788.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792410.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792061.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792012.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791740.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791550.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791503.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791371.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791277.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790727.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790293.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790149.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789827.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A8C5BCD9ECA2BD0F8DF49B110304F136C09AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507126   (789579) от 19.11.2021
-
-Камо грядеши? / Quo Vadis (1951) BDRip [H.265/2160p] [4K, SDR, 10-bit]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Римская империя I века н.э. Военные победы. Кровавые зрелища в амфитеатрах. Гонения на новую веру. Запретная любовь патриция к пленнице-христианке. Пожар в Вечном городе (дело рук одержимого манией величия Нерона). Приговор императору, вынесенный разгневанным народом.Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, биография, историяРежиссер: Мервин ЛеРой, Энтони МаннАктеры: Роберт Тэйлор, Дебора Керр, Питер Устинов, Лео Генн, Пэт Лэффан, Финлэй Керри, Марина Берти, Бадди Баэр, Феликс ЭйлмерПеревод: Дублированный, Многоголосый профессиональный, АвторскийСубтитры: отсутствуютПродолжительность: 02:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BE044E048F0581D06E2CBF0ED2935D161636F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275700   (789322) от 13.01.2019
-
-Ва-банк / Vabank (1981) HDTVRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие развивается в Варшаве 1930- годов. После шести лет тюремного заключения на свободе оказывается легендарный взломщик сейфов Квинто. Он был обвинен в ограблении банка своим бывшим сообщником, и теперь у него на уме только месть. Вскоре Квинто узнает, что его старый приятель был убит тем же человеком, который теперь является президентом банка. Крамер надеется (   Читать дальше...   )Производство: Польша / Zespol Filmowy "Kadr"Жанр: Комедия, криминалРежиссер: Юлиуш МахульскийАктеры: Ян Махульский, Леонард Петрашак, Витольд Пыркош, Эва Шикульска, Кшиштоф Кершновский, Здислав Кузняк, Юзеф Пара, Эльжбета Зайонцувна, Яцек Хмельник, Збигнев Гейгер, Януш Михаловский, Рышард КотысПеревод: Многоголосый закадровый, одноголосый закадровый  к/ст. Ленфильм со вставками многоголосого в отдельные фрагментыСубтитры: Русские, английскиеПродолжительность: 01:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F4A02FE7A52818BD2B6F9689712D99AC205240
 ```
 
 https://mybot314.ru/tekegram_catalog/

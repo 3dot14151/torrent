@@ -1,3 +1,32 @@
+###  Публикация: 943307   (448440) от 03.10.2015
+
+CleanMyMac 3.1.1 fix [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448440.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac 3 - Программа для очистки Мака
+Очищайте, оптимизируйте и обслуживайте ваш Мак с новым CleanMyMac 3. Он проверяет каждый уголок вашей системы, удаляет гигабайты мусора в два щелчка мышью и контролирует состояние вашего Мака.
+
+CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 октября 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3664870A7E4A119381DB97180FA5B0A911D426ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163512   (448425) от 06.09.2017
 
 PrefEdit 3.91 Rel.2 [En]
@@ -6,7 +35,7 @@ PrefEdit 3.91 Rel.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448425.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Bartender 3 Beta v.3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448394.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ PopClip 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448342.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ Amadeus Pro 2.4.2 (1965) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448288.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ Movist 2.0.0 b20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448074.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ iStat Menus 3.24 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447824.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ MediaHuman Youtube Downloader 3.9.9.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447585.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ DSLR Assistant 3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447584.jpg" />
 </div>
 
 
@@ -228,7 +257,7 @@ A Better Finder Rename 11 v11.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447581.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ A Better Finder Attributes 7 v7.00b05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447580.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ Cisdem PDFMaster 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447487.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ Commander One PRO Pack 2 v2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447353.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ MarsEdit 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446746.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ GroupsPro 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446742.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ AnyTrans for iOS 7.0.0 (20180918) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446738.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Microsoft Office Standard 2019 for Mac v16.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446674.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ MacCleanse 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446436.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Downie 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446433.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ iMazing 2.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446376.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Final Draft 11.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446367.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Waltr 2 v2.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446359.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Forecast Bar 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446354.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Transmit 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446205.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ MacPilot 9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446199.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ Luminar 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446198.jpg" />
 </div>
 
 
@@ -677,34 +706,6 @@ Luminar является первым в мире редактором фото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A50BD896B25537A15997553F8A4F439F9CA5A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248182   (446183) от 18.09.2018
-
-Luminar 2018 v1.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar первый в мире редактор фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет вас сделать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D975B343F5C9FFB154E80E6B4181F63A319573D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

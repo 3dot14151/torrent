@@ -1,3 +1,56 @@
+###  Публикация: 1679797   (135263) от 26.11.2023
+
+Live Wallpaper & Themes 4K Pro for Mac 18.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: © 2023 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B76FEDF2936D6B663436199C740E88C5F6D2C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679816   (135251) от 26.11.2023
+
+Calendar 366 II 2.14.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
+Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2023Разработчик: © 2017-2023 n.spektorПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABC31FF770AF64562C1D522EE724C515C853A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679601   (135188) от 26.11.2023
 
 Termius for Mac 8.0.4 [En]
@@ -6,7 +59,7 @@ Termius for Mac 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135188.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135006.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Find Any File (FAF) 2.4.2 beta1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134995.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134976.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Bookends 14.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134974.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Lyn 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134927.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Easy Data Transform for Mac 1.45.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134888.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ AlDente Pro fo Mac 1.24 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134812.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Dropzone 4 Pro v.4.80.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134648.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ BatchOutput PDF 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134647.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Bike Outliner for Mac 1.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134625.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Dropover for Mac 4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134608.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Video Converter X2 for Mac 1.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134593.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ Infuse PRO 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134567.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ PDF Expert 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134535.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Dynamic Wallpaper Engine 16.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134531.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ Native Instruments Kontakt 7.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134529.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ Keka 1.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134525.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ GraphicConverter for Mac 12.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134383.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ Mp3tag 1.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134381.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ AutoKrypt13 for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134367.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134362.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ RightFont 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134349.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ JaSFTP13 for Mac 13.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134345.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ JaSFTP - автоматизированный протокол безопасн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A92E4DFD58A2FF473B15C5F590563F25088023B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680373   (134340) от 29.11.2023
-
-Alarm Clock Pro 15 v.15.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в срок.
-Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2023Разработчик: © 2023 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3816AAB72B1B4595C91BEE8886D648A3B4BDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680491   (134317) от 29.11.2023
-
-JixiPix Artista Impresso Pro 1.8.24 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте Импрессионистом и превратите свой снимок в написанное мазками произведение искусства.
-Импрессионизм - направление в искусстве последней трети девятнадцатого — начала двадцатого века, мастера которого, фиксируя свои мимолетные впечатления, стремились наиболее естественно и непредвзято запечатлеть реальный мир в его подвижности и изменчивости. Импрессионизм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2023Разработчик: © 2023 JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BB1D0CCE5C2D2ED661D5F4D2BCBB8F096B6C68
 ```
 
 https://mybot314.ru/tekegram_catalog/

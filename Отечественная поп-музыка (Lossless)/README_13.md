@@ -6,7 +6,7 @@ VA - Вас Поздравляют Звёзды! (2008) [APE|Lossless|image + .c
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542019.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540731.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538979.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538265.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536234.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536093.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Zivert - Сияй (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535984.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Belka - Я пришла (2012) [TAК|Lossless|image + .cue] <Pop, Dance-Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530782.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526535.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524194.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524107.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521460.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_517511.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_510996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_510996.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510905.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510201.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509269.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506820.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503654.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Stella (Стелла) - Я в это верю (2003) [FLAC|image+.cue]<Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503650.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496168.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496063.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492187.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490376.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490209.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490054.jpg" />
 </div>
 
 

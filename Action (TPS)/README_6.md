@@ -1,3 +1,135 @@
+###  Публикация: 1351065   (1002631) от 08.01.2020
+
+Alienautics (2019) [En] (1.0) Repack Mr_Weegley
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alienautics – тактический научно-фантастический шутер с видом от третьего лица, в котором вам придется отправиться в самое сердце базы инопланетной расы и сразиться с многочисленными противниками… События игры начинают происходить в тот самый момент, когда космический корабль «Alienautics» был атакован инопланетной расой. Единственным выжившим оказался Агент 33, (   Читать дальше...   )Тип издания: RepackРазработчик: Imran ArafatЖанр: Action, 3D, RPG, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFF20647E8E7543B9D7AB8575C87F01DF253FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488034   (1002440) от 09.08.2021
+
+Star Wars Battlefront II (2017) [Ru/Multi] (Build 5433720) OriginRip =nemos= [Celebration Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в бесконечное приключение в Battlefront, самой популярной серии HD-видеоигр по «Звёздным Войнам™» в истории. Участвуйте в сетевых боях в приквелах, оригинальной трилогии и новой эпохе или станьте новой героиней в напряженной сюжетной кампании, события которой затронут тридцать лет истории вселенной. Изменяйте и улучшайте героев, звездные истребители или (   Читать дальше...   )Тип издания: OriginRipРазработчик: DICEЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A134C50CA6D3E87077DA35D2D1F8E40C427ABC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352167   (1001203) от 13.01.2020
+
+REFUGE (2020) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра представляет из себя рогалик от третьего лица, сбалансированный элементами слешера и медленного боя с перекатами. В игре, игроку предстоит исследовать открытый мир и уничтожать боссов, тем самым зарабатывая особую валюту, которая сохраняется навсегда и позволяет открывать новые предметы, которые после открытия начнут выпадать в новых забегах, что даёт большую (   Читать дальше...   )Тип издания: LicenseРазработчик: TlySoftЖанр: ActionЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DBEF40D243FD74DEE3F42756142DB539A1A464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216649   (1000723) от 15.01.2020
+
+Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/upd5a/dlc) Repack Other s [Director’s Cut Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вито Скалетта начал завоевывать себе репутацию на улицах Эмпайр Бэй являясь «тем, кто точно выполнит свою работу». Вместе со своим другом Джо он упорно выполняет различные поручения, чтобы завоевать доверие Мафии, быстро поднимаясь по «семейной» лестнице, все сильнее нарушая закон, все сильнее поднимая свой статус и все сильнее приближая момент, когда ему придется (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Czech, Feral Interactive (Mac)Жанр: Action (Shooter), Racing (Cars), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49ED563C93D6556E4DED4F7543702D508DC803E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597008   (1000575) от 01.01.2013
+
+Kane & Lynch Dilogy [Ru/En] (RePack) 2007 - 2010 | R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грязные улочки Шанхая – отличное местечко, чтобы забыть о кровавом угаре. Десять баксов, девочка под боком, и ты король мира. Но когда приезжает старый друг, все это ни черта не значит. И страсть как охота посидеть, вспомнить былые деньки – но на горизонте новые проблемы. А вот решать их придется по старинке. Ведь когда подонки зажимают в угол, так и тянет достать дробовик и устроить всем вокруг кровавую бойню!
+
+Парочка самых жестоких и безбашенных убийц за всю историю видеоигр возвращается! Кейн и Линч расскажут новую историю со взрывами, ураганной стрельбой и густыми потоками крови. Невероятный реализм жестоких событий перенесет вас в каменные джунгли. Здесь опасней, чем в любом гетто, но эти зловещие герои – матерые хищники. Своя шкура дороже, чем жизни местных заправил. Лучше отправить на тот свет целый город, чем позволить кому-то избежать возмездия. Когда они встретятся, мир вокруг рухнет. Готовьтесь – Кейн и Линч уже близко. И они готовы убивать. (   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D210B26108B563B85EBCBD384C4BB07E73C64A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597095   (1000570) от 01.01.2013
 
 Kane & Lynch Dilogy [Ru/En] (Rip) 2007 - 2010 | R.G. Catalyst
@@ -6,7 +138,7 @@ Kane & Lynch Dilogy [Ru/En] (Rip) 2007 - 2010 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000570.jpg" />
 </div>
 
 
@@ -36,7 +168,7 @@ I Am Alive [Ru/En] (Lossless Repack/1.01) 2012 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999491.jpg" />
 </div>
 
 
@@ -62,7 +194,7 @@ Driver: San Francisco [Ru/En/Multi10] (L/1.0.04.1114) 2012 | *PROPHET*
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998464.jpg" />
 </div>
 
 
@@ -88,7 +220,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998189.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ Orcs Must Die Dilogy / Дилогия Бей орков [Ru] (RePack/1.0r14, 1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997102.jpg" />
 </div>
 
 
@@ -142,7 +274,7 @@ Binary Domain [Ru/Multi6] (Lossless RePack/2DLC) 2012 l R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997087.jpg" />
 </div>
 
 
@@ -172,7 +304,7 @@ Devil May Cry 4 [Ru] (RePack/1.5) 2008 | R.G. REVOLUTiON
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996800.jpg" />
 </div>
 
 
@@ -203,7 +335,7 @@ Lost Planet: Extreme Condition Colonies Edition [Ru/En/Multi9] (L/1.0.1.0) 2007 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995965.jpg" />
 </div>
 
 
@@ -233,7 +365,7 @@ Resident Evil 5 / Biohazard 5 [Ru/En/Multi9] (Steam-Rip/1.0) 2009 | R.G. Игр�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995359.jpg" />
 </div>
 
 
@@ -261,7 +393,7 @@ Grand Theft Auto: Gold Collection [En/Multi5] (Steam-Rip) 2002-2010 | R.G. GameW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994955.jpg" />
 </div>
 
 
@@ -289,7 +421,7 @@ Ninja Blade [Ru/En] (L) 2009
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994624.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ TRON: Evolution: The Video Game [Ru/En] (RePack) 2010 | R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994598.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993871.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ Oni / Они [Ru/En] (RePack) 2001 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993837.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ Legacy of Kain / Наследие Каина Антология [Ru/En] (Repack/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991453.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ Mafia II / Мафия 2 (2010) [Ru] (1.0.0.1upd5а/dlc) Repack xatab [Director's
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989579.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ Alice: Madness Returns [En/Multi6] (L/1.0) 2011 | THETA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988788.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ Manhunt: Dilogy [Ru/En/Multi6] (RePack) 2004-2009 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988786.jpg" />
 </div>
 
 
@@ -508,7 +640,7 @@ Driver 3 / Driv3r (2004) [Ru] (2.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984303.jpg" />
 </div>
 
 
@@ -534,7 +666,7 @@ Tom Clancy's Splinter Cell: Conviction [Ru/En] (Lossless RePack/1.04) 2010 l R.G
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983543.jpg" />
 </div>
 
 
@@ -564,7 +696,7 @@ Grand Theft Auto (1997) [En] (1.0) Unofficial
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983143.jpg" />
 </div>
 
 
@@ -575,136 +707,6 @@ Grand Theft Auto (1997) [En] (1.0) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A27AE7ABFA3F86CA688660119B2E876094C1BF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972700   (981357) от 06.01.2016
-
-Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/dlc) Repack =nemos=
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фантастического экшена Lost Planet раскрывает новые ужасающие подробности о пресловутой планете E.D.N. III и истории ее колонизации людьми. Экстрим, опасности и острые ощущения? В три раза больше, чем раньше! Главный герой Lost Planet 3 - пилот Джим, покинувший Землю, чтобы выполнить весьма непростой и рискованный, но очень выгодный контракт с корпорацией (   Читать дальше...   )Тип издания: RepackРазработчик: Spark UnlimitedЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEB7F539B9DF071B8F37121017ADDC0FA5D2EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614549   (980869) от 05.02.2013
-
-Ghostbusters: The Video Game [Ru/En] (RePack) 2009 l R.G. Games
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980869.jpg" />
-</div>
-
-
-###  Подробнее
-
-За основу Ghostbusters: The Videogame была взята именно оригинальная лента двадцатилетней выдержки, поэтому поклонники классики и любители поностальгировать наверняка останутся довольны. Не в последнюю очередь благодаря тому, что сюжет игры создается сценаристами фильма - Дэном Эйкройдом и Гарольдом Рэмисом, а Уильям Атертон (William Atherton), Брайан Дойл-Мюррэй (Brian Doyle Murray) и Энни Поттс (Annie Potts) подарят игровым персонажам свои голоса. Что до геймплея, то вам предстоит при помощи уникального оружия и приспособлений охотиться на привидений в славном городе Нью-Йорке.   (   Читать дальше...   )Тип издания: RePackРазработчик: Terminal RealityЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D0415390015F750F2084A3E57B89A757484EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614379   (980432) от 05.02.2013
-
-Dead Space 3 (2013) [Ru/Multi] (1.0) 2013 License RELOADED
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980432.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Dead Space 3 Айзек Кларк и не знающий жалости солдат Джон Карвер отправятся далеко в космос, чтобы найти источник нашествия некроморфов. Совершив аварийную посадку на заснеженной планете, Айзек вынужден преодолевать суровые условия окружающей среды в поисках ресурсов и деталей для оружия. Чтобы выжить, придется задействовать все свои инженерные навыки. На холодной планете сокрыт ответ - как покончить с некроморфами, но для этого придется противостоять лавинам, карабкаться по обледеневшим скалам и адаптироваться к чужому миру. Столкнувшись со свирепыми эволюционировавшими тварями, Айзек может объединить усилия, чтобы выжить самому и спасти человечество от апокалипсиса. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Visceral GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Английский, Немецкий, Итальянский, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Итальянский, Испанский, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Итальянский, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AA74266BC35990277C5D0CC8F8638F007DF1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973487   (979881) от 08.01.2016
-
-Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперименты безумного доктора пробудили древнее, но вместе с тем такое знакомое Зло, которое немедленно начало распространяться по округе, уничтожая и извращая все живое на своем пути. Настало время старине Эшу опять спасать мир! На этот раз герою потребуется все его мужество, удача и умение обращаться с оружием, чтобы в очередной раз остановить Зло, но теперь у (   Читать дальше...   )Тип издания: RepackРазработчик: Cranky Pants GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C6EA121D12E46B0625129D87356534C09753D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973350   (979786) от 08.01.2016
-
-Lost Planet 2 (2010) [Ru/En] (1.1) Repack =nemos=
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть знаменитого футурологического экшена, действие которой разворачивается спустя двенадцать лет после событий, происходивших в оригинальной игре.В результате деятельности людей планета E.D.N. III, где некогда царила вечная мерзлота, изменилась до неузнаваемости: снег и лед уступили место буйным тропическим джунглям и жарким бесплодным пустыням.Тип издания: RepackРазработчик: Capcom EntertainmentЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25A254A345E8B11F53BCA40E3C65CC801A02FBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

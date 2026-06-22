@@ -1,3 +1,29 @@
+###  Публикация: 1458711   (1023657) от 30.03.2021
+
+Парижская полиция 1900 / Paris Police 1900 (2021) WEB-DL [H.264/720p] (сезон 1, серии 1-3 из 8) TVShows (обновляемая)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023657.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сене найден труп неизвестной женщины. За расследование дела берется молодой амбициозный инспектор и неожиданно приходит к раскрытию государственный тайны.Производство: Франция / Tetra Media FictionЖанр: Драма, криминал, детектив, историяРежиссер: Жюльен Деспо, Фредерик Балекджян, Фабьен НуриАктеры: Жереми Лаэрт, Эвелин Брошу, Тибо Эврар, Марк Барбе, Южени Деруан, Патрик д’Асумсао, Александр Троки, Юбер Делаттре, Валери Дэшвуд, Симон БеллуарПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), французские (SDH)Продолжительность: ~00:57:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2F155F9C312DE200C5DA202A61EF040A518FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450509   (1023014) от 02.04.2021
 
 Парижская полиция 1900 / Paris Police 1900 (2021) HDTV [H.264/1080i] (сезон 1, серии 1-7 из 8) Novamedia (обновляемая)
@@ -6,7 +32,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023014.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019886.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019014.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018161.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015361.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014602.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011988.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011793.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011628.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011588.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011581.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007645.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006839.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003125.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000657.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000604.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000389.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000325.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000319.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999886.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999861.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999842.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999349.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999334.jpg" />
 </div>
 
 
@@ -640,39 +666,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999297.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Маленький городок, где жизнь течёт размеренным шагом в предвкушении Нового года. Небольшая семья Шишкиных - это папа, мама и дочь Варя. Праздничный дух витает в воздухе и будоражит сознание детей и взрослых. Счастье когда дети верят в сказки деда Мороза и хотят получить от него подарки. так и Варя горит огромным желанием получить от деда Мороза в подарок птичку. Каждый занят своими заботами и проблемами. У папы небольшая шоколадная фабрика, где он пытается восстановить старинные традиции и увеличить производство. Мама ушла с головой в организацию выставки народных ремёсел. Спокойствие и идиллию нарушает Гарик, он неожиданно приезжает в город и устраивает настоящий переполох. Наступает Новый год и молодой, обаятельный мошенник вдруг оказывается на самом деле родным братом Вари, а маленькая птичка оказалась настоящим австралийским страусом.Жанр: КомедияРежиссер: Феликс ГерчиковАктеры: Мария Порошина, Даниил Спиваковский, Луиза-Габриэла Бровина, Сергей Чирков, Галина Петрова, Евгений Воскресенский, Нонна Гришаева, Владимир Стержаков, Татьяна Кравченко, Павел ПрилучныйПродолжительность: 4 серии по ~00:50 минут
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599318   (999231) от 06.01.2013
-
-Время любить / Пора любви (1-4 серии из 4) (2012) (1080i) HDTV
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подруги - Света, Жанна и Марина - едут отдыхать на море. Для каждой поездка – способ убежать от проблем. От Марины ушел муж. Стабильная жизнь рухнула в мгновение. Жанна никак не получит предложение руки и сердца от нерешительного школьного друга. А для Светланы поездка - способ уберечь сына от назойливых охотниц за московской квартирой. Отпуск для всех подруг (   Читать дальше...   )Жанр: мелодрамаРежиссер: Анатолий ГригорьевАктеры: Олеся Судзиловская, Любовь Толкалина, Елена Панова, Павел Трубинер, Константин Милованов, Никита Салопин, Галина Польских, Матвей Зубалевич, Дария Боцманова, Яков Кучеревский, Дмитрий Суржиков, Антонина Паперная, Елена Бондарева-Репина, Виктор Григорьев.Субтитры: ОтсутствуютФормат: MPEG-TSПродолжительность: серия ~ 00:44
 
 ## Скачать торент
 ```bash

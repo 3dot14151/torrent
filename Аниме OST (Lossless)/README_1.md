@@ -6,7 +6,7 @@ Katakiri Rekka — History of WORXSONGz — 2 альбома (2011) Anime games 
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554422.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ALcot Vocal Collection — 3 альбома (2008-2010) Anime games OST [FLAC|Lo
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554400.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Atelier Series Vocal Collection — 3 альбома (2005-2010) Anime games OST
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554399.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Aneimo Vocal Collection (2008) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554397.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ BALDR Vocal Collection (2010) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554395.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ I've GIRL'S COMPILATION — 8 альбомов (1999-2010) Anime games OST [FLAC
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554387.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ SHOT FES TWINS (2014) Anime games OST [FLAC|Lossless|tracks] <J-Pop, Electronic>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554385.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ ZONE Tribute (2011) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554353.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Overlord III | Повелитель [ТВ-3] | MYTH & ROID — VORACITY (2018) [
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549572.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Rewrite - Philosophyz & A Modest Beginning (2016) [FLAC|Lossless|WEB-24-96|hi-re
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537873.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Princess Evangile OST (2011) [FLAC|Lossless] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518392.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ao no Exorcist OST (2011-2013) [FLAC|Lossless] <OST+OP+ED+Singles+Theme songs>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518335.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kotonoha no Niwa OST (2013) [FLAC|Lossless] <OST+Single+Theme song>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515096.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Everlasting Summer OST (2013) [FLAC|Lossless|WEB-DL]<OST, Score>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514761.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Byousoku 5 Centimeter OST (2007) [FLAC|Lossless] <OST+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510777.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Hoshi wo Ou Kodomo OST (2011) [FLAC|Lossless] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509952.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Classroom Crisis OST (2015) [FLAC|Lossless] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509162.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Angel Beats! -1st beat- OST (2015) [FLAC|Lossless] <OP+ED+Singles>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509080.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Arslan Senki OST (2015) [FLAC|Lossless] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509019.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Akagami no Shirayukihime OST (2015) [FLAC|Lossless] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506985.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ GATE ~Jieitai Kanochi Nite, Kaku Tatakaeri~ OST (2015|FLAC|tracks) <OP|ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481439.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Macross The Complete [1992] [APE|Lossless|tracks] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474389.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Scrapped Princess OST (2003, FLAC) <OP+ED+OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469715.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Kimi no Na wa. / Your Name (2016) [FLAC|Lossless|WEB-24-48|hi-res tracks] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425339.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Kimi no Na wa. / Your Name (2016) [FLAC|Lossless|image+.cue] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415774.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Doragon Boru / Dragonball / Драгонболл OST (1994-2015, FLAC) <OP+ED+OS
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409046.jpg" />
 </div>
 
 

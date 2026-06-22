@@ -1,3 +1,58 @@
+###  Публикация: 1263380   (287821) от 19.11.2018
+
+Mach Desktop 3 v3.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам наскучила статичная картинка на рабочем столе, то Mach Desktop поможет нарядить десктоп с помощью встроенных видеообоев, QuickTime-роликов и даже Веб-страниц. Mach Desktop предлагает двадцать отличных видеообоев Quartz Compositions и семь QuickTime-видеороликов для рабочего стола. Множество настроек позволяют задать в качестве фона предустановленную заставку, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2018Разработчик: Mach SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8645F235837953F22E16A2188A08930B3F89076D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263459   (287813) от 19.11.2018
+
+App Cleaner & Uninstaller Pro 6.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просмотр установленных приложений и удалить пакет файлов для полного удаления.
+App Cleaner - Лучшее приложение для удаления файлов приложения службы на Mac OS X и деинсталляции приложений *.
+
+* Некоторые приложения не могут быть удалены, поскольку они требуют прав администратора. В этом случае, переключиться на Finder и удалите файл приложения в обычном порядке.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: NektonyПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34E0DE4F6B6BB4634439235B5141F47AA26F2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263581   (287805) от 19.11.2018
 
 Mountain Duck 2.6.5 [Multi/Ru]
@@ -6,7 +61,7 @@ Mountain Duck 2.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287805.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Path Finder 9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287738.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ SiteSucker 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287695.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Corel Painter 2017 (16.1.0.456) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287582.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ A Better Finder Rename 10.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287460.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Pixelmator 3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287440.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ IP Scanner Pro 3.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287432.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ Alternote 1.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287431.jpg" />
 </div>
 
 
@@ -227,7 +282,7 @@ Vectoraster 6.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287429.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ Wondershare PDFelement 6 Pro 6.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287409.jpg" />
 </div>
 
 
@@ -281,7 +336,7 @@ Ableton Live Suite 9.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287367.jpg" />
 </div>
 
 
@@ -309,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287357.jpg" />
 </div>
 
 
@@ -335,7 +390,7 @@ OmniFocus Pro 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287153.jpg" />
 </div>
 
 
@@ -362,7 +417,7 @@ PhoneRescue 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287145.jpg" />
 </div>
 
 
@@ -388,7 +443,7 @@ CleanMyMac 3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287122.jpg" />
 </div>
 
 
@@ -417,7 +472,7 @@ Imagenomic Plug-in for Photoshop СС2015.5-СС2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286962.jpg" />
 </div>
 
 
@@ -444,7 +499,7 @@ Path Finder 7.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286888.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ DEVONthink Pro Office 2.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286850.jpg" />
 </div>
 
 
@@ -496,7 +551,7 @@ Transmit 4.4.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286848.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ VMware Fusion Pro 8.1.0 (3272237) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286808.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ Feeder 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286695.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ Squeezer 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286692.jpg" />
 </div>
 
 
@@ -609,7 +664,7 @@ Folx Pro 5.1.13639 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286631.jpg" />
 </div>
 
 
@@ -637,7 +692,7 @@ Reflect Studio 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286567.jpg" />
 </div>
 
 
@@ -650,62 +705,6 @@ Reflect Studio - новый фото редактор от создателей 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCD3DAEC018776248377E87B3DF2CDDE06D067C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081005   (286561) от 08.12.2016
-
-Circular Studio 1.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circular Studio  - новый поворот в редактировании фотографий. Превратите ваши фотографии в удивительные круговые изображения.
-Circular Studio  веселое приложение с мощными новыми возможностями, вы можете легко увеличивать и уменьшать масштаб вашего круговой изображения. Добавьте профессиональные эффекты, такие как блики и небесные объекты: солнце, луна, птицы и т.д. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83A27D8968AA8FEC6274D1D1F71482449536679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081063   (286455) от 08.12.2016
-
-SkyLab Studio 1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286455.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вдохновленный своей собственной любовью к красивому небу".
-SkyLab Studio - изменит ваше представление о небе на фотографии.
-Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5CD1738434F9C7C948505F558017165ED2FCCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

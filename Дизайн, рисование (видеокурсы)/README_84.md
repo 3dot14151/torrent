@@ -6,7 +6,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161179.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161044.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161030.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161021.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161010.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ ArtStation, Realtime GraphX | Create Next Gen AAA Characters for Unreal Engine (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160984.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ New Maters Academy, Joe Weatherly | Introduction to Animal Anatomy (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160921.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Enterclass, Александра Чу | Линия и цвет (2023) WEB-DL [AD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160799.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160755.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160724.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160721.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160619.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160543.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tilda school, Антон Командин | Резиновая верстка в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160520.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160391.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Yudaev School, Никита Юдаев | Изучаем дизайн с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160018.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159221.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159176.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159159.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159147.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Solid Factory, Антон Ильин | SolidWorks. Продвинутый кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159103.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158894.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158887.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ CGMA, Behnam Shafiebeik | Nuke Compositing for 3D Artists (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158820.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158814.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Profileschool, Никита Чесноков | Моушн дизайн (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158777.jpg" />
 </div>
 
 

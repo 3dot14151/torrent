@@ -1,3 +1,111 @@
+###  Публикация: 1624053   (255546) от 04.04.2023
+
+Screen Recorder HD Pro 3.1.6 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screen Recorder HD Pro — приложение, которое может записывать что угодно на вашем Mac.
+Захват любого приложения
+- Запускайте Screen Recorder HD Pro после запуска любого приложения, чтобы записывать каждое ваше действие, например просматриваемые видео, посещаемые вами веб-страницы или веб-камеры. Он прост в использовании и идеально подходит для начинающих.
+Запись (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: © 2023 DENGПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD38EC9A09FE4D44B8D1E49E6AEA36F833D3356E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624360   (255511) от 05.04.2023
+
+NCH Switch Plus 11.09 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Switch Audio File Converter Plus - Функциональный конвертер аудио файлов, поддерживающий большое количество форматов, такие как wav, mp3, wma, m4a, ogg, avi, mid, flac, mov, amr, aac, au, aif, raw, dvf, vox, cad, gsm, css, wmf и др.
+Switch Audio File Converter Plus, помимо конвертирования, умеет также извлекать аудио дорожки из видео файлов, имеет собственный редактор (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2023Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407765AEEB6EFE1B8F2F6B431E7A4D1CB5CE4D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626529   (255145) от 15.04.2023
+
+Autodesk Maya 2024 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk Maya – продукт для 3D-анимации, моделирования, рендеринга и композитинга Maya® предоставляет универсальный набор функциональных возможностей для компьютерной 3D-анимации, моделирования и рендеринга на базе легко расширяемой производственной платформы.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2023Разработчик: AutodeskПоддерживаемая ОС: macOS 11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5224DD0973969D5F70FE4903D079B5D7CB14292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628829   (254843) от 24.04.2023
+
+Picture Instruments Preset Converter Pro 1.1.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preset Converter - это небольшой и полезный инструмент для преобразования пресетов Lightroom (.xmp или lrtemplate) в стили Capture One (.costyle). Поскольку Adobe Lightroom и Capture One представляют собой принципиально разные конвертеры RAW с разными функциями и алгоритмами, мы хотели бы использовать это руководство не только для объяснения работы программного обеспечения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2023Разработчик: Picture InstrumentsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0763C308D1B77B13A380D79F8B74015E5AEFCB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628967   (254805) от 25.04.2023
 
 SyncTime 4.6 [En]
@@ -6,7 +114,7 @@ SyncTime 4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254805.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Adobe Illustrator 2026 30.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252417.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ Vectorworks 2025 Update 7 (Build 828783) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251813.jpg" />
 </div>
 
 
@@ -89,7 +197,7 @@ Nik Software Complete Collection 2012 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250671.jpg" />
 </div>
 
 
@@ -117,7 +225,7 @@ HD Video Converter Movavi 22.1.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250086.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ IP Scanner Pro 4.06 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249661.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ Nikon Camera Control Pro 2.34.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249627.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ Microsoft NTFS for Mac by Tuxera 2023.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249045.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ OnOne Perfect Photo Suite 6.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248643.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Adobe InDesign 2023 18.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247407.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246153.jpg" />
 </div>
 
 
@@ -301,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246151.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ iFastZip - Extract RAR & ZIP & 7Z 9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246105.jpg" />
 </div>
 
 
@@ -353,7 +461,7 @@ Bigasoft QuickTime Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246045.jpg" />
 </div>
 
 
@@ -380,7 +488,7 @@ MediaHuman Video Converter азк Mac 2.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246011.jpg" />
 </div>
 
 
@@ -406,7 +514,7 @@ SizeMyPics 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245951.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ Living Earth - Weather & Clock 1.29 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245928.jpg" />
 </div>
 
 
@@ -458,7 +566,7 @@ PowerPhotos 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245926.jpg" />
 </div>
 
 
@@ -484,7 +592,7 @@ TurnTable 4.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245889.jpg" />
 </div>
 
 
@@ -511,7 +619,7 @@ Fontography - Text on Picture‪s‬ 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245837.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ Mac Backup Guru 6.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245824.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ Convertos 2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245805.jpg" />
 </div>
 
 
@@ -574,113 +682,6 @@ Convertos - потрясающий конвертер величин.Тип из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14B495A6641F8131D52219E3BAD93C2E8C6DE160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448832   (245644) от 19.02.2021
-
-Finer Focus 1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Finer Focus - это идеальное средство улучшения рабочего стола, которое может значительно уменьшить или даже устранить все визуальные отвлекающие факторы рабочего стола. И вам, без помех легче будет проявлять творческий подход, легче сосредотачиваться, легче добиваться результатов. Кроме того, кинематографическая атмосфера, которую создает Finer Focus, просто делает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2021Разработчик: SpriTec Software.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82B8A4C00C22785AA1C37D42CCF8042E14B94CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540083   (245643) от 28.03.2022
-
-Carbon Copy Cloner 6 v6.1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных функций и возможностью редактирования запланированных задач и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2022Разработчик: © 2022 Bombich Software, IncПоддерживаемая ОС: OS X 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF47350B77EEC5F6180CBB5FFD552EFDCA48692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512433   (245635) от 24.11.2021
-
-Hostbuddy 2.2.5 fix [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hostbuddy это самый простой способ для управления и обновления файлов /etc/hosts на вашем Mac. Добавьте новые записи или редактируйте старые одним щелчком мыши . Это идеально подходит для переключения между промежуточными и производственными серверами или просто для тестирования своего нового веб-сайта, прежде чем он будет опубликован в прямом эфире.Тип издания: macOS SoftwareРелиз состоялся: 21.11.2020Разработчик: © 2021 Click On TylerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E454F0AD229B9B807A8F241334FD40CDAF72F298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058370   (245552) от 01.10.2016
-
-NotesTab Pro 5.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245552.jpg" />
-</div>
-
-
-###  Подробнее
-
-NotesTab - очень простое и удобное приложение (замечательная замена нативным заметкам), которое находится в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много, а так же синхронизирует данные в облачное хранилище.
-
-В версии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.06.2016Разработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A1AB4A6E2297D5923E3B6B56E8C24282DF7E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1781533   (26735) от 23.02.2025
+
+WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в подземном мире, игроки сражаются с бесконечными полчищами мертвых душ, управляя более чем 100 историческими воинами. Отличительной особенностью игры является система призыва героев, позволяющая игрокам создавать уникальные комбинации отрядов, смешивая и сочетая воинов с различными способностями для разработки мощных стратегий боя. В отличие (   Читать дальше...   )Тип издания: SceneРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: АркадаЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C66BBDD44AA116D29652D29981DA771BC7BF9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640024   (26727) от 23.02.2025
+
+Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shumi Come Home - это очаровательная приключенческая игра со спокойной и умиротворяющей атмосферой, которая зачастую необходима каждому из нас. Вам предстоит примерить на себя роль маленького, но отважного грибочка по имени Шуми. Негодники вырвали его из дома, а потом безжалостно бросили посреди леса на произвол судьбы. Теперь вам предстоит отыскать способ вернуться (   Читать дальше...   )Тип издания: LicenseРазработчик: SomeHumbleOnionЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7286260169FE27423F46E782153A2830AF54C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781942   (26386) от 26.02.2025
 
 Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
@@ -6,7 +58,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.108/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26386.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26010.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25924.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25785.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25706.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Repack FitGirl [Ultimate Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25445.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.1.65085/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25404.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Shapik: The Moon Quest (2020) [Graphic] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25294.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25210.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Lego Movie 2 Videogame (2019) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25190.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Granblue Fantasy Versus: Rising (2023) [Multi] (2.01/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25175.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.5) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25134.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ THE KING OF FIGHTERS XIII GLOBAL MATCH (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25058.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Bonesaw (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25056.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Rising Sun: Iron Aces (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24944.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24535.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24514.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24353.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24304.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24302.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24210.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23993.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23916.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23899.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9C71676D95389F3D288AA693EFE688EE181E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786971   (23792) от 23.03.2025
-
-BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пробудите свой меч и бросьте вызов судьбе в BLEACH Rebirth of Souls! Вас ждут невероятные бои, мощные способности клинков и персонажи из легендарного аниме. Выберите своего любимого персонажа и раскройте его уникальные способности владения мечом! Переломите ход битвы и найдите способ победить всех врагов.Тип издания: RepackРазработчик: TAMSOFT CORPORATIONЖанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9ECE7BBD02B4ABC7658B9DC1D185DC63FB2743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787071   (23760) от 23.03.2025
-
-Ale & Tale Tavern (2024) [Ru/Multi] (1.3.21) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ale and Tale Tavern - это кооперативный фэнтезийный симулятор таверны от первого лица с открытым миром. Геймеры вступают в роль владельца таверны, которому поручено восстановить заброшенное заведение до его былой славы. Тайтл предлагает множество занятий, включая кулинарию, рыбалку, охоту и исследования. Юзеры могут выполнять разнообразные квесты, взаимодействовать (   Читать дальше...   )Тип издания: RepackРазработчик: Scienart GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F38D53DE843DD136FC863D3531562304A9528D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1608295   (245878) от 29.01.2023
+
+Владислав Крапивин | Минута солнца (2021) [MP3, Совушка Сонюшка]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245878.jpg" />
+</div>
+
+
+###  Подробнее
+
+… Сколько событий может произойти у обычного мальчика Тоника за одну минуту? Оказывается очень много!..Жанр: Детская литератураПродолжительность: 00:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E327C266AEE6144E62EE23B9875A24B5DE4CA465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511635   (245862) от 21.11.2021
+
+Владислав Крапивин | Старый дом (2021) [MP3, Оксана Ларина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы родились корабельными соснами, если вам суждено бороздить моря и дышать свежим морсикм ветром, то никто и ничто не сможет помешать вам выполнить своё предназначение. Нужно только дождаться, чтобы рядом появились штурвал, компас и Капитан, который верит в мечту.Жанр: Детская литератураПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C87721997F6933B13A9A424B0C7A45C13F09FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448955   (245555) от 19.02.2021
+
+Андрей Усачев | Что было в сумке у кенгуру (2018) [Сборник] [MP3
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245555.jpg" />
+</div>
+
+
+###  Подробнее
+
+«О чем этот спектакль, вы, наверное, и сами догадались. Правильно, конечно, об Австралии. Чего только нет в удивительной стране: и кенгуру, и утконосы, и ехидны, и коала… А вот мифов и сказок о них, действительно, почти нет. Поэтому мне и захотелось написать эту книгу.»
+(От автора, из официальной аннотации)Жанр: Детская литература. СказкаПродолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2D34A8C521726FCC0942BC64C08E61D3F80C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610078   (244576) от 05.02.2023
 
 Виктор Драгунский | Гусиное горло (2021) [MP3, Елена Фортушнова]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244576.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244399.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244211.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243672.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243658.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243641.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243537.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243359.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243159.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242924.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242838.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242696.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242628.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242594.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241770.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241592.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241303.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241221.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_240999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240999.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240996.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240966.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240738.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240730.jpg" />
 </div>
 
 
@@ -600,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26DCAE0D50A83B3DE9719719BA7580DC19A41449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549689   (240644) от 07.05.2022
-
-Похлёбка из камней (итальянская сказка) (1985) [MP3, Юрий Яковлев и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жили две сестры — Анна-Мария и Виттория. Анна-Мария вышла замуж за богатого лавочника, Виттория — за угольщика. Уголь жечь — не то, что товары в лавке продавать да барыши подсчитывать. Угольщик работает много, зарабатывает мало. Но в маленьком домике, что стоял на опушке леса, всегда было весело, потому что угольщик вставал с песней и спать ложился с песней, да не (   Читать дальше...   )Жанр: Сказка, РадиоспектакльПродолжительность: 00:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD279AF3C97E43EE07FF566F80B5E7DD78EDECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406958   (240596) от 05.09.2020
-
-Алекс Т. Смит | Мистер Пингвин и утраченное сокровище (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающие приключения в духе Индианы Джонса и Эркюля Пуаро!
-
-Прошло уже пара часов, как Мистер Пингвин открыл свою контору профессионального Любителя Приключений. Но телефон по-прежнему молчал, и Мистер Пингвин нервно постукивал по клюву крабовой палочкой. Всё, что ему было нужно, – это увлекательное Приключение. И тут раздалось громкое ДЗИНЬ!
-(   Читать дальше...   )Жанр: Детская литература/Приключения/ДетективПеревод: Евгений ПивоваровПродолжительность: 01:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2B9AC76A4E62E9FB71C647CF34A1F45289B2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632979   (240522) от 12.05.2023
-
-Леонид Пантелеев | Маленький офицер (2021) [MP3, Галина Годунова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький офицер - от имени мальчика ведется повествование о том, как началась война. Первая мировая война коснулась и его семьи. В Галиции сражался отец юного повествователя.… Ему нравилось наблюдать за офицерами, которые бывали в городе. Однажды рассказчик решился бежать на фронт. Что послужило толчком для этого решения, сможет ли кто-то переубедить его? Об этом (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3014C0D238EE8553948425034F89D67B333AE84E
 ```
 
 https://mybot314.ru/tekegram_catalog/

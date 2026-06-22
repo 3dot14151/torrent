@@ -1,3 +1,107 @@
+###  Публикация: 1565313   (494911) от 23.07.2022
+
+Минтранс (23.07.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C894E958E867A2193EFE7626661AF96E889098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053938   (494331) от 19.09.2016
+
+Субару Импреза / Subaru Impreza (2000) DVDRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супербыстрая, супермощная, притягивающая взгляд Субару Импреза! Этот спортивный автомобиль стал культовым во многом благодаря Колину МакРею и его победе на чемпионате мира по ралли в 1995 году. На этом DVD диске собраны уникальные материалы о легендарном автомобиле Субару Импреза.Телекомпания: СШАЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:61:00 + 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E584E4C826EFE8622FAEE387D6507D8882DF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936576   (494173) от 12.09.2015
+
+Главная дорога (12.09.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494173.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D8AFE7044984467FB1EBB3029B0BB97449EF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565568   (492586) от 24.07.2022
+
+Главная дорога (23.07.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492586.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFA2FF5131CE6316D59747F8BC708D1C0520F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936908   (492244) от 13.09.2015
 
 Первая передача на НТВ. Автомобильная передача. Выпуск №218 (13.09.2015) SATRip
@@ -6,7 +110,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492244.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Полный форсаж / Fat N' Furious: Rolling Thunder (2015) HD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491992.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483618.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481665.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480430.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480348.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479795.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477913.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470702.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468480.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466022.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464763.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464218.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462718.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455775.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454854.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2015) 
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453247.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452962.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451816.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450775.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450447.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449678.jpg" />
 </div>
 
 
@@ -569,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA2CA61F32DBC98BE9A1A7912CA3C9F3367FCAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943206   (449446) от 03.10.2015
-
-Главная дорога (03.10.2015) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449446.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B149A1A57BB608EC2F598056EEE9DF838CCA47EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943597   (447345) от 04.10.2015
-
-Первая передача на НТВ. Автомобильная передача. Выпуск №221 (04.10.2015) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447345.jpg" />
-</div>
-
-
-###  Подробнее
-
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаПродолжительность: ~ 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DA5FA2E1AC5EE69CFB954997D9F09DB4064BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322724   (444564) от 31.08.2019
-
-Главная дорога (31.08.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444564.jpg" />
-</div>
-
-
-###  Подробнее
-
-На городских улицах начали устанавливать уменьшенные версии знаков. В исторических центрах городов, где много пешеходов и небольшие скорости, размер знаков может быть всего 40х40 см. Почувствуют ли водители разницу? В передаче примут участие как сторонники, так и противники идеи проехать по улицам с новыми и "старыми" знаками. За рулём - Андрей Мухортиков, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFFD0499B9C03D7BC9261EBAE9D2AD215323E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322929   (442408) от 01.09.2019
-
-Первая передача на НТВ. Автомобильная передача (1.09.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442408.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!
-«Первая передача» не только рассказывает о типичных проблемах автовладельцев, но и помогает их решить. С кого требовать возмещение ущерба, если вы попали в яму на дороге? Что делать, если вас обманули в автосалоне? (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B122345FA6E748288411AA1C0ABE98D8438DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 418609   (309137) от 04.12.2011
+
+Великое путешествие Пуха: В поисках Кристофера Робина / Pooh's Grand Adventure: The Search for Christopher Robin (1997) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винни Пух и Кристофер Робин лучшие друзья, они хотят навсегда сохранить свою дружбу и никогда не расставаться. Однако Кристофер Робин должен пойти в школу, но он так и не смог сказать об этом Пуху. Для того, чтобы предупредить Винни Пуха, Кристофер Робин оставляет горшочек с медом и записку, в которой все объясняет. Пух испачкал записку медом и, при попытке ее прочтения, (   Читать дальше...   )Жанр: Рисованная анимацияРежиссер: Карл ДжеерсПеревод: Одноголосый закадровый (Доцент)Продолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA0F1E07B9F3F293E4291C7FB7C60DC7F5E4166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329810   (302989) от 25.10.2019
 
 Лава-Лава! / Lava-Lava! (1995) DVD5
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302989.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295642.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293765.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293621.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293482.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290701.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283567.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281015.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273951.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270672.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258609.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257254.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255689.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251553.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250919.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249005.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248911.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248045.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246624.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244523.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244084.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241498.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241460.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237012.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234848.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDBDB95A2E05CE2CCE9266CD90CA6CF034D48E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736417   (223158) от 20.12.2013
-
-Король Лев 2. Гордость Симбы / The Lion King II. Simba's Pride (1998) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много времени утекло с тех пор, как лев Симба сверг своего злого дядю Шрама и вернул трон короля саванны. У него и королевы Налы уже подрастает дочь — принцесса Киара. Однако порученная легкомысленным заботам наших старых знакомых Тимона и Пумбы, проказливая и непослушная Киара пока никак не похожа на будущую королеву. Однажды сбежав в Запретную Землю, она встречает (   Читать дальше...   )Жанр: Детский, Рисованная анимацияРежиссер: Даррел Руни, Роб ЛаДукаПерсонажи: Симба, Нала, Киара, Тимон, Пумба, Кову и др.Перевод: ДублированныйПродолжительность: 01:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4224D039D4DD6D20634F01E59A9E2C8B5DB5407
 ```
 
 https://mybot314.ru/tekegram_catalog/

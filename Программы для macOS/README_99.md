@@ -1,3 +1,110 @@
+###  Публикация: 1168551   (408850) от 24.09.2017
+
+Deliveries: a package tracker 3.0.5 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliveries помогают вам отслеживать все ваши посылки, поэтому вы всегда  знаете, когда они прибудут в пункт назначения. Будь то последний гаджет, который вы предварительно заказали в Интернете, или новый графический роман, Deliveries будут следить за ними. Deliveries поддерживает десятки услуг, включая UPS, FedEx, почтовую службу США, DHL, TNT, Canada Post, City Link, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.09.2017Разработчик: Junecloud LLCПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F34A69F3FEA0165DFC1381609F1069EA2E5980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168625   (408448) от 24.09.2017
+
+CounterPath Bria 5.0.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение CounterPath Bria представляет собой решение, реализующее функции телефонной связи через Интернет. CounterPath Bria обеспечивает VoIP и Video-связь с помощью протокола IP и позволяет просматривать статус контактов, отправлять мгновенные сообщения и передавать файлы. Основанный на SIP и открытых стандартах, сервис Bria эффективно работает на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: CounterPathПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151F04FEFBD6D3A87E7BE11BB2F625D9A0DDD730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067323   (408396) от 28.10.2016
+
+Templates for Pages 5.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Templates for Pages - красивые и полезные шаблоны для Apple’s Pages.
+Коллекция включает в себя различные, более 2100 типов шаблонов, от визитных карточек и брошюр для плакатов и приглашений. Современные и профессиональные макеты в сочетании с Вашей творческой составляющей будут безошибочно указывать идентичность.
+
+Некоторые шаблоны состоят до 6 различных страниц, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7467E8C6A08B74CB790CF8BEA0C672CB981D723C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252664   (408063) от 06.10.2018
+
+NetWorker - Network Info App 5.1.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408063.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - легкий и простой в использовании инструмент, который показывает либо текущую скорость download and upload, либо трафик сеанса вашего сетевого адаптера. Информация отображается в виде небольшого изображения в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Sascha SimonПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий и Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA72D7CDB6440B1B3FB55590CD86B2D8F16CC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252685   (408062) от 06.10.2018
 
 PaintCode 3 v3.4.1 [En]
@@ -6,7 +113,7 @@ PaintCode 3 v3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408062.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Adobe Type Manager Deluxe 4.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407901.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Vertus Fluid Mask 3.3.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407689.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Sketch 58 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407282.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Radio Silence 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403809.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ Boinx snippets: Music pack 1-6 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403107.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ MailTags 5.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402476.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ Kite Compositor 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402403.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ uBar 4.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402353.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ WinZip 6.0.35.47 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402292.jpg" />
 </div>
 
 
@@ -277,7 +384,7 @@ App Cleaner Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401505.jpg" />
 </div>
 
 
@@ -306,7 +413,7 @@ Trim Enabler Pro 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401465.jpg" />
 </div>
 
 
@@ -333,7 +440,7 @@ OmniPlan Pro 3.7.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401423.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ Passport Photo 1.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401329.jpg" />
 </div>
 
 
@@ -385,7 +492,7 @@ iRamDisk 3.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400606.jpg" />
 </div>
 
 
@@ -413,7 +520,7 @@ TokenLock 4.72.9124 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400596.jpg" />
 </div>
 
 
@@ -441,7 +548,7 @@ Audio Record Pro 3.4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400451.jpg" />
 </div>
 
 
@@ -467,7 +574,7 @@ CrossOver 16.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400317.jpg" />
 </div>
 
 
@@ -495,7 +602,7 @@ PhotoStack for Instagram 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399411.jpg" />
 </div>
 
 
@@ -524,7 +631,7 @@ DxO OpticsPro Elite 11.4.3 (build 71) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399361.jpg" />
 </div>
 
 
@@ -550,7 +657,7 @@ Mail Act-On 4.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398688.jpg" />
 </div>
 
 
@@ -576,7 +683,7 @@ Virus Scanner Plus 3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398633.jpg" />
 </div>
 
 
@@ -587,115 +694,6 @@ Virus Scanner Plus 3.10 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB0FB703BBB4327736935107B72FC5C39A1BA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171032   (397766) от 03.10.2017
-
-QuartzCode 1.58.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397766.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuartzCode — это быстрый, легкий и мощный инструмент, который превращает векторную графику и анимации в код Objective C и Swift. Создание анимаций для вашего iOS или OS X проекта теперь проще некуда. Просто изменяйте любые параметры и смотрите на изменения в реальном времени. Используя QuartzCode вы можете создать любую анимацию за считанные секунды и тут же посмотреть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.092017Разработчик: WAN LUTFI WAN MD HATTAПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7DBB0E919A905BFE0D603F5E7B6D01DADDBC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171040   (397612) от 03.10.2017
-
-Flux 7.1.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flux является передовым программным обеспечением для веб-дизайнеров, создающих сайты на XHTML и CSS. На западе Flux называют убийцей Dreamweaver. Флюкс может оказаться полезной тем, кто тыкал и пытался что-то сделать в iWeb, но не имеет терпения почитать книжек и запустить, например, Coda или Textmate. Flux поддерживает наиболее распространенные на сегодняшний день (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2017Разработчик: The Escapers Ltd.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA47EC9DB55D63C66CEBC07686F33FF782C1B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171524   (396615) от 04.10.2017
-
-AirStreamer - for Apple TV 1.6 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396615.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirStreamer хороший способ, для воспроизведения видео (non-quicktime) на Apple TV. Существует несколько способов воспроизвести видео (non-quicktime) форматов MKV, AVI, WMV и т.д. в настоящее время на Apple TV:
-1. Конвертировать их в формат Quicktime
-2. Скачать видео плеер Apple TV
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2017Разработчик: Khoa Tran AnhПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E8659F02754D4C7DE54CCE020E5DC5A91E09E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171714   (395700) от 05.10.2017
-
-TripMode 2.1.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мобильный интернет имеет свойство быстро заканчиваться, и часто это происходит нелепо: macOS установит обновления, Transmission загрузит новые сериалы, iCloud синхронизирует пару сотен мегабайт фотографий и вот уже месячного лимита как не бывало.
-
-Самостоятельно отслеживать запущенный приложения нереально, по этому лучше получить эту задачу специальной утилите. TripMode (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2017Разработчик: TripModeПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCABF6133D4BC78C27754D40F2F60851847AFFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

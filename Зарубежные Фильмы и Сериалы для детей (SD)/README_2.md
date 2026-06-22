@@ -1,3 +1,29 @@
+###  Публикация: 857163   (954590) от 07.01.2015
+
+Зип и Зап. Клуб стеклянных шариков / Zipi y Zape y el club de la canica (2014) HDRip [Line]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Зип и Зап в наказание отправлены на лето в центр перевоспитания «Надежда», которым руководит одноглазый директор Фальконетти. Очень скоро они обнаруживают, что это место, где играть вообще запрещено. Поэтому они организуют Клуб стеклянных шариков (игра в шарики - популярная детская игра в Испании), который становится символом сопротивления детей против власти (   Читать дальше...   )Производство: Испания | Zeta Audiovisual, Mod Producciones, Antena 3 FilmЖанр: Комедия, Приключения, СемейныйРежиссер: Оскар Сантос ГомесАктеры: Хавьер Гутьеррес, Рауль Ривас, Дэниэл Церезо, Клаудия Вега, Фран Гарсия, Маркос Руис, Кристиан Мулас, Альберто Лопес, Хавьер СифрианПеревод: Дублированное (Чистый звук)Продолжительность: 01:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCE72DA7D366F28477C8255998C4C8024717D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980923   (954442) от 30.01.2016
 
 Принцесса на горошине / Die Prinzessin auf der Erbse (2010) DVB [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954442.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952987.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952617.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951225.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950718.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949228.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948828.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945578.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945275.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940754.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940087.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939990.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939971.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939255.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933142.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931790.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930448.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930121.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927824.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927118.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922528.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921621.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919170.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918361.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916609.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E956D4AA91AE2FC066D71957FA3A6C0379C66008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758795   (911942) от 19.02.2014
-
-Огниво / Das Feuerzeug (1959) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательная экранизация сказки Андерсена.
-Жил-был солдат. Отслужил он службу королю и теперь возвращается домой. Однажды ему на пути встретилась старая ведьма, которая пообещала ему горы денег в обмен на то, что он достанет ей старое огниво...Производство: Германия (ГДР) / Киностудия ДефаЖанр: Сказка, семейныйРежиссер: Зигфрид Хартманн / Siegfried HartmannАктеры: Рольф Людвиг (Rolf Ludwig), Хайнц Шуберт (Heinz Schubert), Рольф Дефранк (Rolf Defrank), Ханнес Фишер (Hannes Fischer), Ганс Фибрант (Hans Fiebrandt), Мария Безендаль (Maria Besendahl), Фриц Шлегель (Fritz Schlegel), Барбара Мелан (Barbara Mehlan)Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F9CEA60A388F9D99F14EA4CAB9D410794D2DE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

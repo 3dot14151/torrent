@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811491.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811363.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811219.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810166.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809458.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809283.jpg" />
 </div>
 
 
@@ -158,6 +158,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317394   (809181) от 02.04.2011
+
+Пусть говорят / Аффтар жжот (эфир 01.04.2011) (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_809181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоапрельский выпуск программы "Пусть говорят" посвящен людям, которые стали знаменитыми за один день благодаря всемирной сети. Программу ведет Гарик Харламов. А студии – те, чья жизнь изменилась после того, как их ролики были выложены в интернет.
+
+Гости: резидент "Comedy Club" Александр Ревва (он же – Артур Пирожков), актриса "Большой разницы" Светлана Галка, звезда интернета Николай Воронов, ведущий шоу "Русские перцы" на "Русском радио" Вадим Воронов, руководитель киножурнала "Ералаш" Борис Грачевский, актриса Валентина Рубцова, автор и ведущий интернет-проекта "+100500" Максим Голополосов, певица Юлия Ковальчук.Жанр: ТелепередачаПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860C20B085D0A77CA5A50D5D5953476CC5B6E2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009690   (808229) от 22.04.2016
 
 Вечерний Ургант (2016.04.21) SATRip (cезон 9, выпуск 56)
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808229.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808113.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807988.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804081.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803646.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803557.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803552.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802326.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802100.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802060.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801256.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801138.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800612.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800591.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800580.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800513.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800508.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800492.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800484.jpg" />
 </div>
 
 
@@ -653,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848680DF73B6557EB5BFFCCBE861BF1F9562424C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385281   (800040) от 23.05.2020
-
-Остров героев (23.05.2020) WEB-DL [H.264/1080p-LQ] (выпуск 1)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чего стоят подписчики, когда нечего есть? Каким будет утреннее селфи, если провести ночь на земле со змеями? Что важнее: зажечь на тусовке или зажечь костер, чтобы не замерзнуть? Восьми популярным блогерам предстоит найти ответы на эти вопросы в новом реалити-шоу «Остров героев»! Они отправятся выживать на необитаемый остров Мого-Мого в Панаме и покажут, на что способны (   Читать дальше...   )Телекомпания: ТНТ, ООО «Остров Героев Интернешнл»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF67C2BB76E7559C6113D1464E40E9F772B475C
 ```
 
 https://mybot314.ru/tekegram_catalog/

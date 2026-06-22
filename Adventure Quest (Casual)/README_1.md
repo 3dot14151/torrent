@@ -1,3 +1,107 @@
+###  Публикация: 1443002   (1035953) от 27.01.2021
+
+Bridge to Another World 7: Secrets of the Nutcracker / Мост в Другой Мир 7: Тайны Щелкунчика (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035953.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Мари каждое Рождество встречала со своим крёстным, мастером Дроссельмейером, и его учеником Фрицем. Но с возрастом она стала навещать их всё реже, пока совсем не перестала приезжать. Но в это Рождество ей всё же придётся вновь посетить мастерскую крестного - потому как Фриц прислал Мари письмо, в котором очень просил её приехать. Ведь он хочет раскрыть (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox studioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD0CF449F5854CB46F3731DC5E21ED18A53EF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443799   (1035121) от 30.01.2021
+
+Strange Investigations: Becoming (2021) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую увлекательную игру. Дана Стрендж стала детективом, чтобы отыскать пропавшую в далеком детстве сестру. Когда расследование завершилось, она решила оставить службу. Однако на пороге появился ее старый друг и предложил ей место детектива в его частном агентстве. Дана снова в деле! Подозреваемые накапливаются, неуловимая, загадочная фигура следует за (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43EC95852B7D15D60FA70B601E0B51BC2C66538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444243   (1034559) от 01.02.2021
+
+Spirit Legends 4: Finding Balance / Легенды Духов 4: Поиск гармонии (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1034559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фантастической серии игр Spirit Legends. Эйлин, став Стражем Гармонии, оказывается в центре заговора, который грозит разорвать королевство на части! Темное Братство строит коварные планы, кто-то порабощает могущественных духов, таинственный убийца - на свободе... Берите Бестиарий и помогите Эйлин, пробравшись через паутину интриг, восстановить баланс (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E8ECA85BAD33B73B6C4DECE563A3ADBAF6045A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445263   (1033736) от 05.02.2021
+
+Rite of Passage 10: Embrace of Ember Lake (2021) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей детективной серии игр Rite of Passage. Вы удочерили Хэлси, когда она была ещё младенцем. Счастливая жизнь закончились в её шестнадцатый День рождения - у Хэлси раскрылись шокирующие способности, которые дали понять, что она - не совсем обычный ребёнок! Ваш брат Джейсон - единственный, кто может помочь, но он бесследно исчез, а таинственное (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44AA3AEB9D968EE48556CEC9BC2C6B7EE217EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445921   (1033227) от 07.02.2021
 
 Bridge to Another World 5: Through the Looking Glass / Мост в Другой Мир 5: Зазеркалье (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Bridge to Another World 5: Through the Looking Glass / Мост в Другой 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033227.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Immortal Love 8: Sparkle of Talent (2021) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032046.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Wanderlust 4: The Bermuda Secret (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030191.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Labyrinths of the World 13: Eternal Winter / Лабиринты Мира 13: В�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030141.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Strange Investigations: Becoming / Удивительные расследова
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029280.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mystery Tales 14: Master of Puppets (2021) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029017.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Twin Mind. Murserous Jealousy / Близнецы-детективы. Убийс�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028029.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Detectives United 4: Phantoms of the Past / Лига детективов 4: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027879.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Nevertales 10: Faryon (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027701.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dark Romance 14: Sleepy Hollow (2021) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026726.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Fairly Twisted Tales. The Price of A Rose / Весьма запутанная с
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025060.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Grim Tales 20: Trace in Time (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024185.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Fear for Sale 9: The Dusk Wanderer / Страх на продажу 9: Блуж�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022568.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Mystery Tales 14: Master of Puppets / Загадочные истории 14: М
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022413.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Nevertales 10: Faryon / Несказки 10: Фарион (2021) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021907.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Mystery Trackers 19. Forgotten Voices (2021) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021890.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Vacation Adventures. Park Ranger 11 (2021) [En] (1.0.0.1) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021559.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021243.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Secret City 6: Sacred Fire (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020810.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Arcana: Sands of Destiny / Аркана: Пески Судьбы (2020) [Ru/Mult
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020776.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Sea of Lies 4: Tide of Treachery / Море лжи 4: Волны предате�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020622.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Christmas Stories 6: A Little Prince Collector's Edition / Рождествен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020621.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Christmas Stories 6: A Little Prince Collector's Edition / Рождествен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:562054A090FD06A56CBB06D0864D2C45CFDFF335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463546   (1020256) от 19.04.2021
-
-Twin Mind. Murderous Jealousy / Двуединое сознание. Убийственная ревность. (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время спектакля в местном театре актриса упала замертво от удара бутафорским ножом. Элеонора не поддерживает версию криминалистов о сердечном приступе. Помогите детективу и ее брату собрать все возможные улики, опросить свидетелей и узнать истинную причину произошедшего. Андреас вонзил в сердце Адалин бутафорский нож, и она упала замертво прямо на сцене театра.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Hidden-Object, Adventure (Casual)Язык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCFEB52F05196A985DD1F034E9AC2829447D708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464555   (1019777) от 22.04.2021
-
-Bridge to Another World 8: Endless Game (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сказочной серии игр Bridge to Another World. Случилось невероятное - ваши дети исчезли в настольной игре! У вас есть только один путь - пойти вслед за ними. Однако дорога через Страну чудес, Лилипутию и страну Оз - опасна и трудна. Сможете ли вы одержать победу над литературными злодеями и вернуться домой вместе с детьми?Тип издания: UnofficialРазработчик: Friendly Fox studioЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E6FF65E151DE6D3A34E2D7FDB5815671E3C759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465108   (1019447) от 24.04.2021
-
-The Keeper of Antiques 3: The Last Will / Антиквар 3: Завещание (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городу Нетвиллу исполняется 200 лет, но празднование прерывается, когда городская площадь и находящиеся на ней люди оказываются под колпаком сверхъестественного явления! Кто-то задействовал опасный артефакт, и Вам предстоит разобраться с этим. У Вас есть все, что нужно для спасения города, так что не мешкайте и займитесь делом, иначе сами станете жертвой таинственных (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE8666B30D073B2BDDB9FE056E250C141BD9159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466499   (1018381) от 30.04.2021
-
-Fatal Evidence 4: In A Lamb's Skin (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей детективной серии игр Fatal Evidence. Недавняя серия убийств напомнила вам одно из ваших старых, уже закрытых дел. То преступление - раскрыто, убийца - за решёткой, однако теперь вам понадобится его помощь, чтобы остановить подражателя. Сможете ли вы работать со старым противником сообща, чтобы раскрыть это запутанное дело или сами станете (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5010E16BA8D9DFFF3F3E827DF7ADB43DAA8ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

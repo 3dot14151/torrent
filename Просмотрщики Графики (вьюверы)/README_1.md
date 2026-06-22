@@ -1,3 +1,55 @@
+###  Публикация: 1847961   (1052401) от 15.01.2026
+
+XnView MP 1.9.10 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052401.jpg" />
+</div>
+
+
+###  Подробнее
+
+XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnView MP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20BBCE3A5C2F498D86C4324F6E94D8686A04CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847651   (1052269) от 13.01.2026
+
+XnView Shell Extension 4.2.5 + Standalone  [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы не хотите устанавливать на свой компьютер громоздких программ по работе с графическими файлами, из-за того, что Вам нужны только некоторые их функции, то утилита XnView Shell Extension может Вам в этом помочь. На что же способна XnView Shell Extension? Она встраивается в контекстное меню Проводника и позволяет просматривать в нем превью изображений или сразу (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6886FB19DAB6FAB79F95B0F43E8A630C967E5F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847525   (1052190) от 12.01.2026
 
 XnView MP 1.9.9 + Portable [Multi/Ru]
@@ -6,7 +58,7 @@ XnView MP 1.9.9 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052190.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ FastStone Image Viewer 8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047454.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ XnView MP 1.9.8 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047255.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ FastStone Image Viewer 8.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047041.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ FastStone Image Viewer 8.3 Corporate + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046940.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ XnView MP 1.9.6 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046913.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ ComicRack 0.9.157 [Multi/Русский]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999022.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Adobe Bridge 2020 10.0.3.138 RePack by pooshock [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963994.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ ACDSee Ultimate 10.3 Build 894 [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874288.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ XnViewMP 0.96.1 + portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851494.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Teorex Multi-View Inpaint 1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846342.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Phototheca Free 2021.3.1.3489 [Multi]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798602.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ JPEGView 1.0.36 Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794589.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ JPEGView 1.0.37 Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779314.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ ACDSee Photo Studio Professional 2018 11.2.888 RePack by KpoJIuK [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776255.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Alternate Pic View 2.730 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771273.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Nomacs 3.16.1709 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743884.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ ACDSee 20.4 Build 630 [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706236.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ ACDSee Ultimate 10.4 Build 912 RePack by KpoJIuK [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704239.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ ACDSee Pro 10.4 Build 686 RePack by KpoJIuK [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702277.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ FastStone MaxView 3.4 + Portable [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564841.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ FastStone Photo Resizer Corporate 4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530347.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Picasa 3.9.140 Build 248 Portable by PortableAppZ [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503036.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Universal Viewer Pro 6.7.6.0 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472226.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Universal Viewer – универсальный файловый просмот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C911DBA697B7307E1B22B4C720831A603BC36B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945510   (432770) от 10.10.2015
-
-Picasa 3.9.141 Build 255 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Picasa — программа-органайзер ваших фотографий и видеоматериалов. Это программное обеспечение, с помощью которого Вы можете искать, просматривать, редактировать, печатать фотографии и обмениваться ими, превращать фотографии в "фильм" или коллаж, создавать слайд-шоу и многое другое. Программа сканирует весь винчестер или указанные пользователем папки, индексирует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4C7B0DBDFFBE77B83A29C88666F09BC0CED4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177671   (359836) от 26.10.2017
-
-OpenText Brava! DWG Viewer 16.2.0.137 Portable by SunOK [En]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359836.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenText Brava! DWG Viewer - бесплатный просмотрщик CAD-файлов формата DWG, DXF и DWF, а также метафайлов WMF и собственного CSF. Позволяет просмотр и экспорт данных, производить замеры и даже наносить водяные знаки.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81815476FAF724F36F7FC4062738E85826C00356
 ```
 
 https://mybot314.ru/tekegram_catalog/

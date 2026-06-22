@@ -6,7 +6,7 @@ Duplicate Sweeper 1.06 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873161.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Araxis Merge Pro Edition 2020.5350 for macOS 10.13–10.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872840.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Gemini 2: The Duplicate Finder 2.6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872442.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Capturer - auto screen capturesr 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870057.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Chikoo 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868994.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ QR Factory 2.9.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868824.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868134.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Path Finder 10 v10.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868012.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CleanMyMac 3.3.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867613.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Smart Trash 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866680.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ WinZip Mac Pro 9 v9.0.5554 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866350.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Ultra Character Map 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865615.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Shortcut Bar 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863883.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Haptic Touch Bar 2.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863760.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Lingon X 2.3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862852.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Adobe Zii 2021 - Universal Patcher 7.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862752.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Cisdem PDFPasswordRemover 4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862270.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Little Snitch nightly 4.5 (5456) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861445.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VR Desktop 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860749.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Time Sink 2.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858181.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Screen Snapshot 5.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858070.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858062.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Mosaic Pro - Professional-level window management 1.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857928.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ PhoneClean Pro 4.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857148.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ OS X Server 5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855350.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Script Debugger 7 v7.0.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855203.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1862536   (1064528) от 30.03.2026
+
+PrivaZer Pro 4.0.120.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064528.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3DE3226790585BCC41053980492044A686825C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862534   (1064527) от 30.03.2026
+
+YT Downloader 10.3.1 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064527.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1350A876FC92246185A58FBB5E8CA008BE2BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862440   (1064526) от 30.03.2026
+
+Sumatra PDF 3.7.17933 Prerelease + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008D92F6AFF0F47CA78ED3BF792C805B23D03468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862403   (1064525) от 30.03.2026
 
 Zen Browser 1.19.5 beta [Multi/Ru]
@@ -6,7 +85,7 @@ Zen Browser 1.19.5 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064525.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Topaz Photo 1.4.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064524.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ PrivaZer Pro 4.0.120.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064522.jpg" />
 </div>
 
 
@@ -76,6 +155,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862597   (1064521) от 31.03.2026
+
+K-Lite Codec Pack Update 19.6.4 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064521.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D77DE986045F7C2C4B00770453247AF70FF81BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862669   (1064520) от 31.03.2026
 
 OCCT 16.1.3 Portable [En]
@@ -84,7 +189,7 @@ OCCT 16.1.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064520.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Dopamine 3.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064519.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Topaz Photo 1.4.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064518.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ PotPlayer 260114 (1.7.22777) RePack (& Portable) by elchupacabra (31.03.2026) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064517.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Photo Supreme 2026.2.0.8906 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064514.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Perfectly Clear WorkBench 5.0.4.3158 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064513.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ PeaZip 10.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064512.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ PrivaZer Pro 4.0.120.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064511.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ Google Chrome 146.0.7680.178 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064510.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ Syncovery Premium 11.14.0 build 181 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064509.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ Icaros 3.3.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064508.jpg" />
 </div>
 
 
@@ -365,6 +470,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862931   (1064507) от 01.04.2026
+
+Total Commander 11.57 RC2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691427ED0A9EB8F7EF385B12A6B72ECB25579F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862979   (1064505) от 02.04.2026
 
 Photo Supreme 2026.2.0.8919 RePack (& Portable) by elchupacabra [Multi]
@@ -373,7 +504,7 @@ Photo Supreme 2026.2.0.8919 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064505.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ reaConverter Pro 8.0.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064504.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ Perfectly Clear WorkBench 5.0.4.3160 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064503.jpg" />
 </div>
 
 
@@ -453,7 +584,7 @@ Opera GX 129.0.5823.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064502.jpg" />
 </div>
 
 
@@ -481,7 +612,7 @@ Sumatra PDF 3.7.18019 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064501.jpg" />
 </div>
 
 
@@ -508,7 +639,7 @@ Opera One 129.0.5823.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064500.jpg" />
 </div>
 
 
@@ -534,7 +665,7 @@ eM Client 10.4.4867.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064499.jpg" />
 </div>
 
 
@@ -545,142 +676,6 @@ eM Client - мощный клиент электронной почты. Пом�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:795A0D767DEC19103D2DB5E6591D1617586E21D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862962   (1064498) от 02.04.2026
-
-Telegram Desktop 6.7.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE8A0FCD7A50836935AF74F842D3C12C19E0874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863177   (1064496) от 03.04.2026
-
-Photo Supreme 2026.2.0.8925 RePack (& Portable) by elchupacabra [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие (Русский отсутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEA9A8F1029640C8502FDA0A241B99BAAF55BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863175   (1064495) от 03.04.2026
-
-Perfectly Clear WorkBench 5.0.4.3169 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D5F6B92CF85E34642258EEAFC6237E8F2157C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863183   (1064494) от 03.04.2026
-
-ASCOMP BackUp Maker Pro 8.403 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064494.jpg" />
-</div>
-
-
-###  Подробнее
-
-BackUp Maker может создать резервную копию любой папки на жестком диске. Если же из этой папки нужно скопировать только конкретные файлы, то можно воспользоваться фильтром файлов, который позволит указать, какие типы файлов должны, а какие не должны попасть в бэкап. Можно также установить лимит на размер файлов.
-Программа может сжимать копируемые данные в архивы. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A2C672F0E7CAD21A47CA607891CFC89BC6254F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863170   (1064492) от 03.04.2026
-
-Telegram Desktop 6.7.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B1FA1868842310442D465084B15A6908C0BD446
 ```
 
 https://mybot314.ru/tekegram_catalog/

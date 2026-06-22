@@ -1,3 +1,31 @@
+###  Публикация: 1359668   (822091) от 09.05.2020
+
+Справочник лекарств от Pharmbook v1.4.41 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник лекарств содержит все препараты зарегистрированные в России, ФТГ и ATX с перечнями лекарств, МКБ-10 и аптечку с возможностью группирования избранных лекарств. Для лекарств указан производитель самого лекарства, производитель фармсубстанции, МНН, ФТГ, ATX, списки аналогов и инструкция.
+Поиск аналогов лекарств происходит одновременно по двум факторам:
+- (   Читать дальше...   )Тип издания: Пиратка (Получена Pro)Релиз состоялся: 08.05.2020Разработчик: PharmbookПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6586B20FBCCEF0AC359768690AC949BA097628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197068   (816884) от 06.01.2018
 
 Компьютерный мастер 1.0 [Ru]
@@ -6,7 +34,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816884.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815723.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815389.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815293.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815289.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ Wifi WPS Plus v3.3.5 Ad-Free [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815227.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814940.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ Shortcut Maker Pro v3.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813988.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811530.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ Pure Tuber (ex. Vanced Tuber) v3.1.8.101 + Mod [Ru/Multi] (обновляема�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809478.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807430.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804173.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802363.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801025.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800746.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799979.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798925.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ TouchRetouch v4.4.16 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797171.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797083.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796504.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ Android 12 Clock Widgets v7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795376.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ Yi Pro - Yi Action Camera 3.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794400.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ PingTools Network Utilities 3.68 [Ru/Multi] - утилита для провер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793206.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ Footej Camera 2 Premium 2020.5.6 [Ru/Multi] - Приложение камеры
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793110.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792622.jpg" />
 </div>
 
 
@@ -647,32 +675,6 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:444476B14A005C725F96800E026B3C7A8C2ED889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117491   (792345) от 31.05.2020
-
-Рисование для малышей! v3.0.1.1 Full [Ru/En] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792345.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Рисование для малышей!» – это великолепная возможность пробудить в ребёнке интерес к творчеству. В весёлой игровой форме поможет вашему малышу легко научиться рисовать множество простых и симпатичных персонажей. Необычное сочетание рисования и анимации делает это приложение действительно уникальным! В этой игре-рисование для детей можно шаг за шагом нарисовать очаровательного (   Читать дальше...   )Тип издания: Пиратка (Full с Маркета)Релиз состоялся: 29.05.2020Разработчик: Bini BambiniПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901E9EF96DF9356601DF3809C54F97B262534F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

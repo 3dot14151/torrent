@@ -1,3 +1,107 @@
+###  Публикация: 988942   (918525) от 21.02.2016
+
+Sable Maze 5: Soul Catcher / Темный лабиринт 5: Ловец душ (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло 20 лет, и вы смирились с тем, что никогда больше не увидите своего брата. Но вернувшись туда, где он пропал без вести, вы неожиданно попадаете в удивительный лабиринт. И появляется надежда - может, брат не погиб, может, он все еще в лабиринте... Необходимо все выяснить.Тип издания: UnofficialРазработчик: Daily Magic ProductionsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: SergeymasterlomasterЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829C8027CC24E7FCDC639C0D6B7AA9449A670D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988984   (918387) от 21.02.2016
+
+Dark Romance 2: Heart of the Beast / Мрачная история. Сердце чудовища (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в заколдованный замок, который захватила коварная ведьма, и найдите цветок жизни, чтобы спасти отца Беатрис от смертельной болезни! На красочных локациях собирайте полезный инвентарь, решайте хитрые головоломки и выполняйте просьбы говорящих зверей, чтобы как можно быстрее вернуть им человеческий облик.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190C841CECDADF80717477716BFB0700CE38ABE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757724   (917539) от 16.02.2014
+
+Dark Parables 6: Jack and the Sky Kingdom / Темные Притчи 6: Джек и Небесное Королевство (2014) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди застыли, онемев от изумления, когда над их головами из-за облаков появилось величественное Небесное Королевство. Но вохищение очень быстро сменилось ужасом - Королевство начало разрушаться, и на землю полетели огромные осколки. Что же случилось? Только сказочный детектив может узнать всю правду. Отправляйтесь на поиски Джека - охотника за сокровищами. Ведь ему однажды посчастливилось побывать в Небесном Королевстве, а значит, он может рассказать много интересного о королевской семье.(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Blue Tea GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E341AEB9F662DB5C3F9F20D676166273F752DF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367387   (917141) от 15.03.2020
+
+Paranormal Files 5: Trials of Worth (2020) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рику Роджерсу предстоит новое расследование. Два археолога найдены в состоянии кататонии. Начиная расследование, детектив и не представлял, что дело будет не только сложным, но и опасным. Какие тайны хранят странные артефакты и кто хочет помешать Рику узнать все секреты? Что нужно ужасному существу, преследующему Роджерса? Много вопросов - и только вы можете помочь (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2C0D9C9463672A2735B0450CEED2BBE1F638AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367370   (916980) от 15.03.2020
 
 Secret City 4: Chalk of Fate / Тайный город 4: Мел судьбы (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Secret City 4: Chalk of Fate / Тайный город 4: Мел судьбы (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916980.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Detectives United: Origins / Союз детективов: Начало (2018) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915239.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Living Legends 9: Voice of the Sea / Живые легенды 9: Голос м�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911945.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Mystery Trackers 6: Raincliff’s Phantoms Game / Охотники за тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910185.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Fatal Evidence 2: The Missing (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907181.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Fairy Godmother Stories 5: Miraculous Dream in Taleville (2021) [En] (1.0) Unoff
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907054.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Mystery Trackers 10: Paxton Creek Avenger (2016) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905982.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Reflections of Life 3: Dark Architect / Отражения жизни 3: Тем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905778.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Grim Tales 9: Threads Of Destiny / Страшные сказки 9: Нити с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905737.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ European Mystery 2: The Face of Envy / Придворные Тайны 2: Лик
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904519.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Mysteries of Horus / Загадки Египта (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903973.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Taken Souls. Blood Ritual / Украденные души. Кровавый ри
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903921.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Mysteries of Neverville. Runestone of Light / Тайны Невервилля. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902283.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Whispered Legends: Tales of Middleport / Шепот легенд: Истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901478.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Paranormal Files 5: Trials of Worth / Паранормальные явлени�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901404.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Emptiness / Пустота (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900525.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Living Legends 4: Bound by Wishes (2016) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897434.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Twin Mind 2: Power of Love (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897373.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Shadow Wolf Mysteries 6: Curse of Wolfhill (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897223.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Mystery Tales 3: Alaskan Wild / Загадочные истории 3: Дика�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897042.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Mysteries of the Mind: Coma / Тайны сознания. Кома (2012) [Ru] 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896980.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Silent Age (2015) [Ru/Multi] (28.02.2016) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895086.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Silent Age - приключенческая игра типа наведи �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:468C1AA5BCDD81CCC99D170CD7738BA48FDBB117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370689   (895045) от 28.03.2020
-
-Dark Romance 12: Ashville (2020) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение романтической серии игр Dark Romance. Прошло 15 лет после того, как произошел взрыв в городе Эшвилл. Вы приехали на место трагедии. чтобы написать статью о происшествии. Однако после долгого путешествия вы понимаете, что пока еще ничего не закончилось. Причина взрыва так и осталась невыясненной, а человек из прошлого хочет получить ответы на оставшиеся (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DC2524BED2E1BB525E99B177B924BF8FF2C128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370686   (894912) от 28.03.2020
-
-Family Mysteries: Poisonous Promises / Семейные тайны: Медленный яд (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный детектив Эмма Эмерсон проводит новое расследование - обнаружена утонувшая девушка. Следуя подсказкам найденных улик, Эмма в конце концов находит разгадку странного дела. Помогите детективу собрать части пазла и раскрыть семейную тайну, которая и стала причиной преступления.Тип издания: UnofficialРазработчик: Brave Giant StudioЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28357A045BB995B0EC30623034303339F2CF4192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993850   (893773) от 06.03.2016
-
-Grim Tales 10: The Heir (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отдых в старинном семейном особняке не предвещал никакой беды. Сперва жена неожиданно теряет сознание и ее не могут привести в чувство, затем сын пропадает буквально на глазах у отца. В этом деле не обойтись без знаменитого детектива Miss Gray!Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418A7C3DDFD1470824FA6C269F83421A7521809A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993790   (893766) от 06.03.2016
-
-Punished Talents 2: Stolen Awards (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В европейском замке, затерянном в глуши, собрались ученые со всего мира, чтобы состязаться за получение престижной научной награды - Гордость Человечества. Однако все пошло не так, как задумано устроителями. Один из ученых скоропостижно скончался. И у оставшихся совсем мало времени, чтобы разыскать убийцу.Тип издания: UnofficialРазработчик: Blam! GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F72314059DF4498167A6259BFF3E129F418C212
 ```
 
 https://mybot314.ru/tekegram_catalog/

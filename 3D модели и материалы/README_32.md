@@ -1,3 +1,59 @@
+###  Публикация: 1270693   (155089) от 20.12.2018
+
+3D материалы - VRscans - fabric (part 2) [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155089.jpg" />
+</div>
+
+
+###  Подробнее
+
+VRscans - это новая запатентованная технология создания 3d материалов от ChaosGroup.
+В данный релиз вошли 41 из 128 материалов текстиля.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2593D0DA3B86B04B784057B8FBCDB8907FB7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600624   (155053) от 28.12.2022
+
+3D print - Printed Obsession - Pikachu 2 - Embarrised [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пикачу считается одним из самых узнаваемых и популярных покемонов, так как является официальным талисманом франшизы, и в последние годы он стал иконой японской поп-культуры
+
+Модель предоставлена в собранном виде
+Размер: 138.7x138.0 h:183.3mmФормат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9259550EF3D6FBD25242B69A7C6F1D4BB326C45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194721   (152915) от 26.12.2017
 
 3D модели - Maxtree - Plant Models Vol 1 [V-Ray|*.max]
@@ -6,7 +62,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152915.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152862.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152843.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152118.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151927.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151890.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150946.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150832.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150719.jpg" />
 </div>
 
 
@@ -242,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149490.jpg" />
 </div>
 
 
@@ -269,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148387.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146661.jpg" />
 </div>
 
 
@@ -323,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146424.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146354.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145598.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140963.jpg" />
 </div>
 
 
@@ -432,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140239.jpg" />
 </div>
 
 
@@ -459,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139568.jpg" />
 </div>
 
 
@@ -485,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137508.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137449.jpg" />
 </div>
 
 
@@ -537,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137363.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137325.jpg" />
 </div>
 
 
@@ -589,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137234.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137179.jpg" />
 </div>
 
 
@@ -629,61 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D502CD3613E28EB7990260E1867AA22B6FEF9256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521113   (137174) от 31.12.2021
-
-3D модели - CGAxis - Vehicles Volume 1 [Mental Ray|Scanline|Corona|V-Ray|*.max, FBX, OBJ, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137174.jpg" />
-</div>
-
-
-###  Подробнее
-
-CGAxis Vehicles Volume 1, содержащий три детализированных модели мотоциклов. Отлично подходит для ваших внутренних или внешних проектов.Формат: Mental Ray|Scanline|Corona|V-Ray|*.max, FBX, OBJ, C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22A4127AABD8AF8371B3A1D613930E9540F8663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601394   (137149) от 31.12.2022
-
-3D print - Printed Obsession - Super Sonic - Sonic the Hedgehog [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёж Соник — главный персонаж серии видеоигр Sonic the Hedgehog от компании Sega, а также созданных на её основе комиксов, мультсериалов и полнометражных фильмов.
-
-Модель предоставлена как в разобранном так и в собранном виде.
-Размер: 143.2x143.1 h:181.6mmФормат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEBFC702EDB7A7B68CA67A08EE0A6EB7C077565
 ```
 
 https://mybot314.ru/tekegram_catalog/

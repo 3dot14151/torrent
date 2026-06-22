@@ -1,3 +1,29 @@
+###  Публикация: 1556407   (559335) от 09.06.2022
+
+Alien: Isolation (2014) [Ru/Multi] (1.0.4/dlc) License GOG [The Collection]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ощутите подлинный страх в мире Alien: Isolation - триллере с атмосферой ужаса и смертельной угрозы. Спустя 15 лет после событий Alien™ дочь Эллен Рипли, Аманда, начинает искать истинную причину исчезновения матери и вступает в схватку за выживание.Тип издания: LicenseРазработчик: Creative AssemblyЖанр: Экшн, Survival, ХоррорЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389C14718088447FA13572E9550EF8EA1F3083A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924321   (558520) от 03.08.2015
 
 Evolve (2015) [Ru/En] (1.0) RePack =nemos=
@@ -6,7 +32,7 @@ Evolve (2015) [Ru/En] (1.0) RePack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558520.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Conclusion (2016) [Ru/En] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557490.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557269.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ POSTAL: Brain Damaged (2022) [Multi] (1.0 Build 8904334) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556854.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556483.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ The Signal From Tölva (2017) [En] (1.0.65) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556480.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Void Bastards (2019) [Ru/Multi] (v1.0) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555989.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Day: 40 (2019) [Multi] (1.0/upd6) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554538.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ ZOMBI (2015) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554363.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack Dok2 [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553378.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552682.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551705.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551702.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551701.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549795.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Before Nightfall (2018) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546915.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Frontlines: Fuel of War (2008) [Ru/En] (1.3.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543967.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Hotel 19-95 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542362.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Redneck Rampage Collection (1997) [En] (1.01/1.0/1.01/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542086.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540418.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Starship Troopers / Звездный десант [Ru] (RePack) 2005 | PUNISHER
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540286.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Ziggurat (2014) [Ru/Multi] (31.07.2017) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538476.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Battlezone: Combat Commander (2018) [En/Ge/Fr] (2.0.180) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538195.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534733.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534688.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E80A10160B127ECAA55AE54E31F61B57BE0323F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926235   (534683) от 09.08.2015
-
-Star Wars: Republic Commando (2005) [Ru/En] (1.0) Rip R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Галактика снова в хаосе. Вы - одна из надежд Республики. Вы - лидер элитного отряда Коммандос. Именно вам предоставляют самые важные задания, потому что только вы и ваши братья сумеют справиться с тем, что не под силу обычным клонам. Захватывайте, убивайте и побеждайте. Отдавайте приказы своему отряду, работайте в команде. Вы их лидер. Они - твои братья по оружию...Тип издания: RipРазработчик: LucasArts EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5904A99E7DA1EFFCE66F587E0B51D9A2F81355B
 ```
 
 https://mybot314.ru/tekegram_catalog/

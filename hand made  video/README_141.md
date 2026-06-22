@@ -1,3 +1,29 @@
+###  Публикация: 1745782   (42761) от 22.09.2024
+
+Воровка книг / The Book Thief (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия, канун Второй мировой войны. Смерть готовится начать свою жатву. Девятилетняя Лизель переезжает в Мюнхен к своим приемным родителям и с их помощью учится читать. С каждым днем чтение становится ее жизненной потребностью, и Лизель начинает воровать книги — единственную отраду ее жизни. Все, что она узнает из них, помогает ей понять события, происходящие вокруг (   Читать дальше...   )Производство: Германия, США, Великобритания / Fox 2000 Pictures, Ingenious Film Partners, Studio Babelsberg, Sunswept Entertainment, The Blair Partnership, TSG EntertainmentЖанр: драма, военныйРежиссер: Брайан ПерсивалАктеры: Софи Нелисс, Джеффри Раш, Эмили Уотсон, Бен Шнетцер, Нико Лирш, Роджер Аллам, Барбара Ауэр, Карина Визе, Оливер Штоковски, Райнер БокПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, hardsub на непереведенную речь), английскиеПродолжительность: 02:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDBD9EE262056C94A54F13B9AC2B1A91469D13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751012   (42750) от 22.09.2024
 
 Противостояние / The One (2001) BDRip [AV1/1080p] [10-bit] [Open Matte] [handmade AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42750.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42682.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42677.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42673.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Starперцы / Last Vegas (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Op
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42663.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42662.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42652.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42649.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42645.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42597.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42576.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42560.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42547.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42457.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42456.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42451.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42444.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42438.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42418.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42367.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42351.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42342.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42319.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42285.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42256.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B154FC1AD8A1262503E52FED6613386FF505F0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751753   (42236) от 27.09.2024
-
-Конец насилия / The End of Violence (1997) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майк Макс - расчетливый продюсер голливудских кинохитов. Он манипулирует страстью людей к жестокости, забыв о чувствах своей жены. Тем временем, за привычным миром насилия наблюдает ученый Рэй Беринг. Его тайный проект скрытого наблюдения за городом призван резко сократить уровень преступности, но в мегаполисе, который дышит насилием, жизнь в любой момент может принять (   Читать дальше...   )Производство: Франция, Германия, США / CiBy 2000, Kintop Pictures, Road Movies Filmproduktion, Wim Wenders StiftungЖанр: триллер, драмаРежиссер: Вим ВендерсАктеры: Трейси Линд, Розалинд Чао, Билл Пуллман, Энди Макдауэлл, К. Тодд Фриман, Гэбриел Бирн, Крис Дуридас, Прюитт Тэйлор Винс, Джон Дил, Соледад Ст. ХилейрПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D6558591512DD62A2C01B66E13D5C9DAFD478D
 ```
 
 https://mybot314.ru/tekegram_catalog/

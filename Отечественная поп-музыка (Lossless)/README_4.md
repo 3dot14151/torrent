@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836774.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Zivert - Vinyl #2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836283.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831381.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829788.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826454.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826343.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826259.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826159.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825964.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Plazma - Take My Love (2000) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro Hous
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823233.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822751.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820929.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819387.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817037.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816902.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815356.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815200.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813792.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Uma2rman (Уматурман, Ума2рман) - Пой, весна! (2016) [FLA
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813108.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Alekseev - Пьяное солнце (2016) [FLAC|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812896.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812092.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811623.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808022.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806281.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806163.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802515.jpg" />
 </div>
 
 

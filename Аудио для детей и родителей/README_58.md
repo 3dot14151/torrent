@@ -1,3 +1,84 @@
+###  Публикация: 1253546   (381703) от 10.10.2018
+
+Дьёрдь Шош | О чем говорили ботинки (1968) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381703.jpg" />
+</div>
+
+
+###  Подробнее
+
+адиоспектакль по пьесе известного венгерского драматурга Д. Шоша. Условность формы радиопьесы не помешала автору несколькими штрихами очертить характеры своих героев, в том числе и главного — уличного чистильщика обуви, которому ботинки раскрывают «тайны» своих владельцев...Жанр: РадиоспектакльПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A22782DF2AE0326515685BE32E3173FA6142E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253642   (381624) от 10.10.2018
+
+Крис Коламбус; Нэд Визини | Дом секретов (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый режиссер Гарри Поттера Крис Коламбус и автор бестселлеров Нед Виззини создали захватывающую сказку для детей (к слову, и для взрослых).
+«Пробирает до мурашек», – так отозвалась Джоан Роулинг об этой книге.
+Трое детей – Брендан, Корделия и Элеанор Уолкер переезжают с родителями из удобного и суперсовременного дома в огромный викторианский особняк, прежним (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 12:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A84508D96520BC696CD87B31DCFA8AD8975D162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414925   (381315) от 10.10.2020
+
+Волшебный мир сказок | Детская литература (2013) [Сборник] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомство ребенка со сказкой начинается с чтения ее взрослым. Подборка лучших авторских сказок, вошедших в данный сборник, в прочтении профессиональных актеров театра и кино сделает это знакомство легким и приятным.
+Сказки - вечный источник добра и справедливости. Вместе с замечательными любимыми героями малыш отправится в удивительное путешествие по миру сказок (   Читать дальше...   )Жанр: Детская литература, сказкаПродолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99186C1E2A75C7D85C0F0AC56D48648525B41F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415023   (381305) от 10.10.2020
 
 Оота Тосимаса | Самый лучший папа! Как оставаться в сердце ребенка, когда работаешь с утра до вечера (2018) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381305.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380476.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380474.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380429.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380427.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379961.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378718.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378702.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378577.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376323.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376007.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374688.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373782.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373762.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373648.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372494.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372016.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370819.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369360.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369356.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368890.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368316.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368212.jpg" />
 </div>
 
 
@@ -606,86 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CFD126C022601B15FC4EF62B4016BBCA2497501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406567   (368210) от 04.11.2011
-
-Татьяна Груша | Отважный Капоша [аудиоспектакль] [2010] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная сказка и 5 фонограмм для пения под музыку.
-Герой сказки - маленький и трудолюбивый червячок по прозвищу Капоша. Он живёт в своём подземном домике тихо и спокойно и не знает, что над землёй сияет солнце, поют птицы, благоухает зелень. Он не знает, что земля полна ласки, тепла и света. Капоша привык к темноте... Но однажды в его сердечке засияет свет веры, надежды и любви.Жанр: СказкаПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7EFA07091F1E2CD50053A069728E89E305D70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406572   (368055) от 04.11.2011
-
-Татьяна Груша | Рождественская свечечка [2009] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая восковая свечечка хотела ярче всех сиять на рождественской елочке.
-А что приключилось с ней, вы узнаете из музыкальной сказки.Жанр: СказкаПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F48EAF74D6104B11761BFD6FE3801C7B707C6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406746   (365683) от 05.11.2011
-
-Татьяна Груша | Большие друзья [аудиоспектакль] [2010] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой музыкальной сказки «Большие друзья» – маленький и забавный слоненок Душка. В самые счастливые минуты своей жизни он познает горе и разлуку, но по молитве матери, Господь не оставляет слоненка в одиночестве...Жанр: СказкаПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFFB38C25221B3F7D3F00E12078834E03A743C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

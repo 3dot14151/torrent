@@ -1,3 +1,55 @@
+###  Публикация: 1315090   (516132) от 17.07.2019
+
+О.Л. Рожнева (сост.) | Митрополит Вениамин (Федченков) [Наставления. Воспоминания. Рассказы] (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митрополит Вениамин (Федченков; 1880-1961) — один из самых высокообразованных архипастырей своего времени, богослов, миссионер, великий молитвенник, старец и талантливый духовный писатель. Он прожил долгую, трудную и интересную жизнь, всецело отданную служению Богу, Святой Церкви и народу Божию. Господь судил ему проходить жизненное поприще в годы суровых испытаний, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBEA26C2CB842019C22BE015042A780D97DCFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536085   (515615) от 17.08.2012
+
+Р.Пишель | Будда, его жизнь и учение [2004] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирно известная книга французского востоковеда-санскритолога и талантливого писателя Р. Пишеля (1849-1908) посвящена жизнеописанию Будды. В доступной массовому читателю форме автор раскрывает истоки мудрости одного из титанов человеческого духа, знакомит с кругом его последователей, изображает исторические условия, в которых создавалось одно из самых распространенных Учений.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C316837B3A2BA5B188AB69A78FB82816BB11E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242370   (515135) от 22.08.2018
 
 Л.В. Филимонова (сост.) | Святой Сергий (2013) [FB2, PDF]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515135.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515093.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514123.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514101.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514097.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513955.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513894.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513302.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513119.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513064.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513062.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513056.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513022.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512832.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511113.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511107.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511024.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510330.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507244.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506625.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505085.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501342.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501334.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501264.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0CDB1C626138EABF43DB37FF2A53120391A1112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934041   (501253) от 06.09.2015
-
-Светозаръ | Быстьтворь: Бытие и творение русов и ариев [2 книги] (2011-2012) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501253.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге автор рассматривает проблемы отечественного и мирового прошлого с позиций наших Предков. Прошлое народов, населяющих Землю, неоднократно становилось предметом споров и разногласий. В них, как правило, побеждала точка зрения сильнейшего, которая впоследствии выливалась в главенствующую историческую школу.
-      ВЖанр: Доисторическая православянская ведическая традицияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988F9A56711AEA64BD8614019F4121F8E56A5989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563551   (500508) от 18.07.2022
-
-Библия. Книги Священного Писания Ветхого и Нового Завета [Арамейско-английский подстрочный перевод] (2009-2017) [PDF] [ARC, EN]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дословный подстрочный перевод арамейской Библии (Пешитты) на английский язык. Том Ветхого Завета включает 39 канонических книг еврейской Библии. Арамейский был родным языком Иисуса, Израиля, Ближнего Востока и Малой Азии в I веке нашей эры, а также большей части еврейской диаспоры по всему миру. Переведенный текст представляет собой Codex Ambrosianus 6-7 веков - (   Читать дальше...   )Жанр: Священное ПисаниеПеревод: Г.Д. БаушерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB4DAF0F1650245903E1D5E1B002C9AA1C452CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

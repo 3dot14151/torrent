@@ -6,7 +6,7 @@ Linda Ronstadt - Live in Los Angeles 1980 (2024) [MP3|320 Kbps] <Country Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111300.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Breeze - It's Only A Matter Of Time (1977) LP [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111160.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Luther Vandross - Luther (1976) Remaster, 2024, Legacy Recordings [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109433.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Classic Dance Remixes (Arthur Baker Presents Dance Masters John Luongo)
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109142.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109055.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108835.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108641.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108640.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - DJ Hits Volume 8 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108589.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - DJ Hits Techno Old (1997) [OGG Vorbis|480 Kbps] <Electronic, Techno, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108587.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108586.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - DJ Hits Vol. 19 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108580.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - DJ Hits15 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108564.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - DJ Hits 21 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108516.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108490.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108457.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108439.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108409.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - DJ Hits Vol. 26 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108408.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - DJ Hits 29 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108386.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108336.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108332.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - DJ Hits Volume 36 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108288.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108257.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - DJ Hits 37 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108146.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - DJ Hits 39 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108125.jpg" />
 </div>
 
 

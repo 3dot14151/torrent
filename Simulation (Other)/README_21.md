@@ -1,55 +1,3 @@
-###  Публикация: 1710361   (61773) от 26.03.2024
-
-REAL ESTATE Simulator - FROM BUM TO MILLIONAIRE (2024) [Ru/Multi] (3815219) Repack Other s
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Real Estate Simulator ставит вас на место начинающего предпринимателя, готового превратить свою жизнь из лохмотьев в богатство. В этой игре-симуляторе бизнеса вы начинаете с малого, но с большими мечтами. Вы пройдете путь от простой палатки до огромной империи недвижимости. Путь к успеху усыпан трудностями и триумфами. Ориентируйтесь на постоянно меняющемся рынке, (   Читать дальше...   )Тип издания: RepackРазработчик: GeekonЖанр: Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8ED00A3929D94CDA7710202B2DB1A9050A9F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710307   (61757) от 26.03.2024
-
-WW2 Rebuilder (2023) [Ru/Multi] (20240217) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61757.jpg" />
-</div>
-
-
-###  Подробнее
-
-WW2 Rebuilder - симулятор от первого лица, дающий оценить разрушительные масштабы Второй мировой войны. Предстоит взять на себя роль того, кто пытается привести европейский город в порядок после того, как боевые действия закончились. Улицы находятся в руинах. Даже сложно сказать, что когда-то здесь царила красота и величие.Тип издания: SceneРазработчик: Madnetic GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B024F6B18D4F2A4B25937981C8C4552B1EFC0168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710468   (61664) от 27.03.2024
 
 Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
@@ -58,7 +6,7 @@ Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61664.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61359.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Chef Life: A Restaurant Simulator (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61284.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60982.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Real Estate Simulator: From Bum to Millionaire (2024) [Ru/Multi] (3815219) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60902.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (0.2.0.5.202403281756/dlc) Repack F
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60880.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60772.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Ancient Cities (2023) [Multi] (1.0.2.36) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60704.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60692.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60683.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60644.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Farmer's Father: Save the Innocence (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60609.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60450.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Timeworks (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60434.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60387.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60369.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Last Hope Bunker: Zombie Survival (2024) [Ru/Multi] (107) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60321.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Dishwashing Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60272.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60250.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.033s/dlc) Repack Other
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60169.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60165.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60158.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60089.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59957.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE7C6F76D176303C9AB7FAD527CA0D99271494F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715950   (59856) от 13.04.2024
+
+The Lost Village (2024) [Multi] (1.0/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59856.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Lost Village - это оригинальная смесь из иммерсивного симулятора и рогалика, где вам предстоит примерить на себя роль главы города. Некогда деревня Марциалов привлекала внимание людей со всей Империи, но теперь от нее остались лишь руины. В качестве сына бывшего правителя этого региона, вам предстоит провести своих последователей через все этапы восстановления (   Читать дальше...   )Тип издания: RepackРазработчик: FunYoo GamesЖанр: Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5E871FE4C76615D7494EFBE3893FCA51D0E4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715769   (59811) от 13.04.2024
+
+Voice Love on Air (2024) [Multi] (1.1.6) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Voice Love on Air - это игра-симулятор знакомств BL, в центре которой находятся сеансы записи голоса для радиодрам. Главный герой Аки обладает способностью слышать истинные чувства человека по его голосу и раскрывать правду и ложь. Он открыл собственную студию звукозаписи, но столкнулся с трудностями в бизнесе. Чтобы облегчить свое финансовое положение, он согласился (   Читать дальше...   )Тип издания: SceneРазработчик: SOFTSTAR ENTERTAINMENT, Noisy FishЖанр: Казуальные игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD8FC8CD7663123BA891B0A3D64FEFCACCC0894
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Anne Horsch - Brahms - Organ Works (2008) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387337.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Virgil Fox - The Bach Gamut: Live in San Fracisco 1976 (2006) [FLAC|Lossless|ima
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387287.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Scottish Chamber Orchestra - Brahms – Violin Concerto & Hungarian Dances (2004
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387214.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387208.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Julia Fischer - J.S. Bach - Sonatas And Partitas For Solo Violin BWV 1001-1006 (
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387205.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Wuerttembergische Philharmonie Reutlingen, Jascha Heifetz - Bach, Mozart, Brahms
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387201.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Academy Of Ancient Music / Richard Egarr - J.S. Bach - The Six Brandenburg Conce
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387199.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Stockholm Baroque Orchestra / Maria Lindal - Dancing Bach (2006) [DST 5.0, 2.0 1
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387194.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Brecon Baroque, Rachel Podger - J.S. Bach - Violin Concertos (2010) [DST 5.0, 2.
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387068.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Knud Vad - J.S. Bach: Complete Organ Works (2005) Box Set 18SACD [DST 5.1, 2.0|1
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386772.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ J.S.Bach - Ouvertures (The 4 Orchestral Suites) (Bach Collegium Japan, Masaaki S
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386482.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Charles de Wolff - J.S.Bach. Grote Orgelmis: Schnitger-orgel Grote - of St. Mich
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383167.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Benny Andersson - Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382999.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Academia Bizantina: A. Vivaldi - Il Cimento dell'Armonia e dell'Inventione op. 8
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382753.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Ludovico Einaudi - Seven Days Walking (Day 7) (2019) Decca Records [FLAC|Lossles
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380785.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Stokowski / London S. O. / Rca: Bach - Stokowski: Transcriptions / Handel: Music
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380142.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ David Garrett - Explosive (2015) 2CD [FLAC|image+.cue]<Classical, Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379144.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Bach - Goldberg Variations (Andras Schiff) (2005) [FLAC|image +.cue]<Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377331.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ IIlyin - EP_005 Else Lie (2020) [MP3|320 Kbps]
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376538.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ David Garrett - Alive – My Soundtrack (2020) Deluxe Edition [MP3|320 Kbps] <Ne
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376016.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_373315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_373315.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371778.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Rick Wakeman - Piano Odyssey (2018) [MP3|320 Kbps] <Modern Classical, Piano, Ins
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370267.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Lindsey Stirling - Warmer In The Winter (2017) Target Exclusive [FLAC|Lossless|W
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369107.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Beethoven - Piano concerto No.5, Choral Fantasy (Robert Levin, Sir J.E.Gardiner 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367889.jpg" />
 </div>
 
 
@@ -769,7 +769,7 @@ Rachmaninov - Piano Concerto No.2, Etudes-Tableaux (Valery Gergiev & London Symp
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367886.jpg" />
 </div>
 
 

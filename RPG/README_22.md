@@ -1,3 +1,109 @@
+###  Публикация: 1227323   (648124) от 25.05.2018
+
+DARK SOULS: REMASTERED (2018) [Ru/Multi] (1.01/Reg 1.02) Repack Other s
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648124.jpg" />
+</div>
+
+
+###  Подробнее
+
+DARK SOULS™: REMASTERED …Затем появился огонь. Заново переживите события легендарной игры, с которой всё началось. В новом воплощении вас ждёт возвращение в Лордран, представленный в HD-графике с поддержкой 60 кадров/с.Тип издания: RepackРазработчик: QLOCЖанр: RPG (Rogue), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB026DBB20622CADDF73A56534F4961ADEFBDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032165   (647091) от 06.07.2016
+
+Megadimension Neptunia VII (2016) [En] (1.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богини Gamindustry переходят на новый уровень! Но хватит ли их новых сил, чтобы справиться с новой бедой, нависшей над всеми измерениями сразу? Megadimension Neptunia VII - еще одна популярная jRPG игра, персонажи которых олицетворяют японские консоли и девелоперские компании. Серия берет свое начало в 2010 году и была создана двумя студиями - Compile Heart и Idea (   Читать дальше...   )Тип издания: LicenseРазработчик: Compile HeartЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0200725FD1F1C4A5D80C866DDC5A9192B22DFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016169   (647081) от 06.07.2016
+
+Goliath (2016) [Ru/En] (1.0.6/upd 3/dlc) Repack Other s
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Goliath - это Action/Adventure от третьего лица с элементами RPG, действие которой происходит в открытом, процедурно-генерируемом мире.
+
+Молодой военный пилот середины XX века по имени Эндрю Громов в результате авиакатастрофы попадает в новый, загадочный мир. Этот мир состоит из сотен осколков погибших цивилизаций и планет. Кроме того, мир наполнен гигантскими монстрами. (   Читать дальше...   )Тип издания: RepackРазработчик: Whalebox StudioЖанр: Adventure, 3D, 3rd PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:359AA7543180CA468304367C5DD41D9AA48F20D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032318   (645246) от 07.07.2016
+
+Celestian Tales: Old North (2015) [En] (1.1.2/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычные люди, простые проблемы и… война. Война, которая близко. Война безжалостная, не различающая добро и зло, солдат и мирных жителей. Война, в которой нет правых и виноватых, нет достойных победы или заслуживающих поражения. Игра Celestian Tales: Old North повествует о мужчинах и женщинах, ставших заложниками высокомерия, амбиций и ревности своих своенравных правителей.Тип издания: LicenseРазработчик: Ekuator GamesЖанр: RPG (Japanese-style)Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36FCA7579A161766EF759C0866BE4223E7E4F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292661   (644327) от 30.03.2019
 
 Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) License HOODLUM
@@ -6,7 +112,7 @@ Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644327.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.001.202/dlc) Repack Dec
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644236.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Grim Dawn (2016) [Ru/En] (1.1.1.0/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642355.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Victor Vran (2015) [Ru/En] (2.07/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642242.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Hand of Fate (2015) [Ru/Multi] (1.3.19/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640710.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Darkest Dungeon (2016) [Ru/Multi] (24839/dlc) License CODEX [Ancestral Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638699.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638598.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637536.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.5/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636527.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ Smoke and Sacrifice (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635129.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634650.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631929.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ Moonlighter (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631517.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/En/P
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630817.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ Moonlighter (2018) [Ru/Multi] (1.4.4.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629566.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ City of Brass (2018) [Ru/Multi] (1.5.1/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629325.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ Ys Origin [En] (L) 2012 | Reloaded
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628437.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625445.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0/3dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625310.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ Torchlight 2/II (2012) [Ru/Multi] (1.25.5.2) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623358.jpg" />
 </div>
 
 
@@ -531,7 +637,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622517.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622419.jpg" />
 </div>
 
 
@@ -568,110 +674,6 @@ EARTHLOCK (2018) [Ru/Multi] (1.0.6) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C164327F18DA6D5EAEED712EE926CF6A04618D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295071   (621948) от 11.04.2019
-
-Grimshade (2019) [Ru/En] (1.0.5) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grimshade — это история компании героев, волею судеб втянутых в круговорот событий, развернувшихся в мире Ри'Фа. Высокие городские стены уже не защищают жителей от нападений жутких монстров, обитающих в окрестных лесах.Тип издания: RepackРазработчик: TALEROCKЖанр: RPG, Adventure, ActionЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCF8795814C76B0C66DBEB51891DB461AC4D061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115080   (621227) от 25.06.2017
-
-We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звёзды мира гномов медленно умирают, и целая раса оказалась на грани уничтожения. Спасти ее могут лишь три гнома-астронавта, отправившиеся на поиски новой звезды в недрах Бесконечного Камня. Управляйте Поршнем (Forcer), Крушителем (Smashfist) и Тенью (Shadow), открывая вместе с ними неизвестные территории каменной вселенной, встречая новые цивилизации и древних чудовищ (   Читать дальше...   )Тип издания: LicenseРазработчик: Whale Rock GamesЖанр: Экшн, Приключение, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD37CA8EE1E7468175B2482DB44A4CFCF2CF490D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036467   (620429) от 20.07.2016
-
-Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во вселенной есть набольшая галактика, состоящая из семи миров, которые существуют независимо друг от друга. Это позволило каждому из них создать свою неповторимую культуру. Но в один из дней Богиня Чоу-Чоу решает выпустить указ, согласно которому все люди из всех миров должны приклониться перед ней. Mugen Souls – японская ролевая игра с пошаговыми боями и огромными (   Читать дальше...   )Тип издания: RepackРазработчик: Idea FactoryЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81576D840CF4722E3C634129BDF80AB15A9078E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036280   (620419) от 20.07.2016
-
-I am Setsuna (2016) [En/Ja] (1.0) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ради сохранения мира раз в десять лет жители земель приносят кого-то в жертву монстру, обитающему на острове. Но в один из годов монстр очень разозлился, и чтобы его успокоить, в качестве жертвы ему предлагают Сетсуну – девушку, обладающую великой магической энергией. Теперь ей вместе со своими телохранителями предстоит отправиться на церемонию жертвоприношения с (   Читать дальше...   )Тип издания: LicenseРазработчик: Tokyo RPG FactoryЖанр: RPG (Japanese-style), 3DЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0AD321B402BA7EB9DE9123F5D93683111C1049
 ```
 
 https://mybot314.ru/tekegram_catalog/

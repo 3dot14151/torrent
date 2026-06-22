@@ -1,3 +1,58 @@
+###  Публикация: 1123568   (786338) от 08.04.2017
+
+Сергей Ильичев (сост.) | 100 и 1 цитата. Библия (2016) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию цитаты из величайшей книги - Библии, в которой заключена священная летопись всего человечества от времен сотворения мира и до нашего недалекого и возможного будущего. Надеемся, что эта работа внесет свою скромную лепту в духовное просвещение наших читателей.
+Основным источником информации является Библия (вариант перевода Синодальный), (   Читать дальше...   )Жанр: Афоризмы, цитаты, притчи; РелигиоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F924D4F1BBEC7DC7E1E19BE7D6E4C15DFBB3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123302   (786180) от 09.04.2017
+
+В. П. Прокудин | "Новаторы" в сутанах (1966) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786180.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой читателю брошюре рассказывается о модернистских новшествах и «обновленчестве» католической церкви. Автор раскрывает замыслы Ватикана по укреплению католицизма в социалистических странах и странах, освободившихся от колониализма, антикоммунистические устремления консервативного крыла Римской курии, смысл решений ХХI Вселенского собора.
+
+Кроме того, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E87B13618B46FBB8ACE0832D8F6C9000963DBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123372   (786159) от 09.04.2017
 
 Р. П. Платонов | Церковь приспосабливается (1964) [DJVU]
@@ -6,7 +61,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786159.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786153.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786128.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785914.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785802.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785797.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785466.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785461.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785444.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785438.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785344.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785161.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784974.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784650.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784391.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784302.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784210.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783880.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783659.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783250.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783249.jpg" />
 </div>
 
 
@@ -564,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783243.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783236.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783227.jpg" />
 </div>
 
 
@@ -627,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A37C0D02EAB8DAA8F43AA0263AED97D205AE279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206034   (782947) от 12.02.2018
-
-Архимандрит Серафим (Чичагов) | Летопись Серафимо-Дивеевского монастыря (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782947.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Летопись Серафимо-Дивеевского монастыря» — замечательная книга, чей жанр можно определить как «агиографический документальный роман». Во многом уникальный текст, написанный одним святым — священномучеником Серафимом (Чичаговым) о другом святом — прп. Серафиме Саровским, притом что одного Серафима от другого по историческим меркам почти ничего не отделяло. Сщмч. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945BA71409C967075FFA1F311F1311E8699270DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390511   (782730) от 16.06.2020
-
-Священник Александр Дьяченко | Преодоление. Рассказы и очерки (2011) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782730.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Люди заходят в храм, а вместе с ними врывается и гул голосов, шорох шагов… Всё это напоминает шум вокзала. Словно люди в ожидании экспресса зашли погреться и поговорить, но только экспрессы в наших местах не останавливаются. Они весточки из далёкого радостного мира, о котором нам остаётся только мечтать. Грустно, хотя понимаешь, чтобы состав остановился, и ты вошёл (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15758BBB2018886DCBB85B17138BBD564B73CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

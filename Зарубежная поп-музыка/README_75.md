@@ -6,7 +6,7 @@ VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207289.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Romantic Collection. Golden 80s (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206962.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Romantic Collection. Golden Oldies (2000) [OGG Vorbis|480 Kbps] <Pop, Oldie
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206884.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Romantic Collection. Instrumental 2000 (2000) [OGG Vorbis|480 Kbps] <Instru
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206878.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206645.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206636.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206192.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206171.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Romantic Collection Vol.7 (2001) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206124.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Romantic Collection. Golden Woman Voices (2000) [OGG Vorbis|480 Kbps] <Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205967.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205475.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Romantic Collection. More Gold (1998) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203007.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202656.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Toto Cutugno (Тото Кутуньо) [Сборник] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202264.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - NRJ Hit List (2023) [MP3|320 Kbps] <Europop, Synthpop, Dancehall, Afrobeat>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201372.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Ace of Base - Beautiful Life - The Singles Box (2023) [MP3|320 Kbps] <Eurodance,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198997.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - The Hits Album - 80s Dance (2023) Box Set [MP3|320 Kbps] <Pop, Dance, Other
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198157.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Modern Talking - Original 80's (2014) 3CD [MP3|320 Kbps] <Eurodisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195034.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192942.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192929.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192920.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192618.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Covermania - Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Electropop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192375.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192307.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191599.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191534.jpg" />
 </div>
 
 

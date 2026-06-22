@@ -1,3 +1,29 @@
+###  Публикация: 1646087   (183448) от 28.09.2023
+
+Shiro Seijo to Kuro Bokushi / Saint Cecilia and Pastor Lawrence / Святая Сесилия и пастор Лоуренс [2023, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святая Сесилия любима всеми — она не только красива и спокойна, но и охотно делится своей мудростью с каждым, кто в этом нуждается. Однако после ухода последнего посетителя она становится совершенно другой. Только в присутствии пастора Лоуренса Сесилия показывает свою суть: постоянно сонная любительница побездельничать и свалить всю работу в церкви на пастора. Почему (   Читать дальше...   )Жанр: романтика, повседневность, комедия.Режиссер: Норо СумиэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628F953EB799E6863752969BAB05E37746A18337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592789   (183015) от 23.11.2022
 
 Kuromukuro | Чёрная сталь [2016, TV, 26 эп.] BDRip 720p 10-bit raw
@@ -6,7 +32,7 @@ Kuromukuro | Чёрная сталь [2016, TV, 26 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183015.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182888.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Hataraku Maou-sama!! 2nd Season / The Devil is a Part-Timer!! 2nd Season / По�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182728.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Mahou Sensei Negima! Shiroki Tsubasa Ala Alba | Волшебный учител�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182546.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Mahou Sensei Negima! Mou Hitotsu no Sekai | Волшебный учитель Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182532.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Mahou Sensei Negima! Anime Final Gekijouban | Волшебный учитель 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182507.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182187.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Mugen no Juunin: Immortal | Blade of the Immortal | Клинок бессмер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182020.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) | Девушка на час [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181845.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ AI no Idenshi | The Gene of AI | Ген искусственного интел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181828.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Spy Kyoushitsu 2 / Spy Classroom 2 / Шпионский класс 2 [2023, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181806.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 из 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181784.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today | К
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181740.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi / Story of a Small Senior in My Comp
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181040.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ Black Cat | Чёрный кот [2005, TV, 23 эп. + 1 SP] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181020.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Hatsukoi Monster | First Love Monster | Моя первая любовь - мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180642.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Kamiarizuki no Kodomo | Child of Kamiari Month | Дитя месяца бого�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180422.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179798.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Negima!? Natsu Special!? | Negima!? Magister Negi Magi: Summer | Волшебн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179226.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Natsuki Crisis | Кризис Нацуки [1994, OVA, 2 из 2] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179222.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Negima!? Haru Special!? | Negima!? Magister Negi Magi: Spring | Волшебны
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179203.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Makai Ouji: Devils and Realist | Принц Преисподней: Демоны
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179188.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Edens Zero | Нулевой Эдем [2021, TV, 25 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177636.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Toji no Miko: Kizamishi Issen no Tomoshibi | Жрицы с мечами: Раз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176563.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Tokyo Mew Mew | Токио Мяу Мяу [2002, TV, 52 эп.] BDRip 480p 10-bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176114.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Tokyo Mew Mew | Токио Мяу Мяу [2002, TV, 52 эп.] BDRip 480p 10-bit 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E2436E5466F5158ACF6F668BC69C4A0F3D95CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650692   (174395) от 11.10.2023
-
-Ao no Orchestra | Blue Orchestra | Синий оркестр [2023, TV, 24] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хадзимэ Аоно был вундеркиндом-скрипачом, пока не бросил это занятие из-за проблем в семье. Сейчас, на третьем году средней школы, он изо всех сил пытается определиться, куда идти дальше. Однажды в школе он встречает Рицуко Акину, вспыльчивую начинающую скрипачку, которая хочет участвовать в школьном оркестре, когда перейдёт в старшую школу. Постепенно Хадзимэ сближается (   Читать дальше...   )Производство: Студия Nippon Animation / 日本アニメーションЖанр: комедия, повседневностьРежиссер: Киси СэйдзиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D47CD486188DC7A86D4129DC7618E2BFD5669C
 ```
 
 https://mybot314.ru/tekegram_catalog/

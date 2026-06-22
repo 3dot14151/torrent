@@ -1,3 +1,29 @@
+###  Публикация: 1611266   (202833) от 11.02.2023
+
+Dwarven Skykeep (2022) [Ru/Multi] (50015) License GOG
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dwarven Skykeep - стратегическая игра, в которой потребуется строить магическую Башню и защищать ее от нападения врагов. Развитием крепости необходимо заниматься в дневное время суток, в то время как с наступлением ночи предстоит сражаться не на жизнь, а на смерть. Управляя талантливым волшебником, сражайтесь с различной нечистью, жгущей книги в библиотеке и затапливающей (   Читать дальше...   )Тип издания: LicenseРазработчик: Hack The PublisherЖанр: Стратегия, Строительство, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96912F35239A9D1E0A6135B991214684E3CDF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829608   (201975) от 25.10.2025
 
 Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
@@ -6,7 +32,7 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201975.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Plebby Quest: The Crusades (2020) [Multi] (1.61/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200625.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Academia : School Simulator (2017) [Ru/Multi] (1.0.44) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196883.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Undead Horde 2: Necropolis (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196521.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195112.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Growth (2023) [Ru/Multi] (1.0rc2) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172191.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Detective Olivia: The Cult of Whisperers / Детектив Оливия: Кул
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169992.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Mini Metro (2014) [Ru/Multi] (202211171226) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168531.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Incredible Dracula 10: Dark Carnival / Невероятный Дракула 10:
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160529.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.4.4) SteamRip R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157847.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Looking for Aliens (2021) [Ru/Multi] (1.0.8) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154560.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Rock of Ages [Ru/En/Multi7] (Steam-Rip/1.10c) 2011 | R.G. Игроманы
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147440.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Oxygen Cocktail (2023) [Ru/Multi] (1.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146617.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ My Train Arrives (2019) [Ru/Multi] (20231030/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145029.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Big Pharma (2015) [Multi] (1.07.12) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141165.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139986.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Ed
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137612.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Fables of the Kingdom V / Сказочное королевство V (2023) [Ru
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128313.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Viking Brothers 5 / Братья викинги 5 (2023) [Ru] (1.0) Unofficial [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127733.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Merchant of the Skies (2019) [Ru/Multi] (1.6.7) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121636.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Sale Frenzy / Безумный шопинг (P) [Ru] 2011
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102634.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Brainville (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99448.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Roller Rush (P) [En] 2005
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98234.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ JoJo's Fashion Show 3: World Tour Express / Модный показ 3. Миро�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88078.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87004.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Happy Chef / Веселый повар (L) [Ru] 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A94CE61120DA497FFCE5A5BD5F8D581778F09E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478536   (86596) от 05.04.2012
-
-Legends of Atlantis: Exodus (P) [En] 2012
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы оказываетесь на мифическом континенте Атлантида на краю ее неизбежной гибели. Помогите спастись древним атлантам прежде, чем катастрофа погрузит города в пучину океана! Расчищайте завалы, вырывайте каналы, отгоняйте врагов и стройте новые дороги, чтобы вызволить из ловушки жителей. Продвигайтесь через пять локаций и 50 уровней, восстанавливая по пути бесценные реликвии прежде, чем они навсегда будут потеряны в летописях истории. У мини игры Legends of Atlantis: Exodus есть все, чтобы понравиться даже самому требовательному геймеру. Вы думаете, что видели уже все самые лучшие логические игры и детские игры? Эта игра точно изменит ваше мнение про казуальные игры. (   Читать дальше...   )Тип издания: ПираткаЖанр: Бизнес-симулятор, Аркада, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD524E05600F1F0FE161295F8CF20BB7DF39633F
 ```
 
 https://mybot314.ru/tekegram_catalog/

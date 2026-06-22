@@ -6,7 +6,7 @@
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588784.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588742.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584981.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP № 8 (авгус�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581363.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580488.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580453.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Human Anatomy Atlas | Анатомический атлас человека в 
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580146.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576513.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №7 (июль 201
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573355.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570315.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568630.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ TradeLikeaPro | ExcelTrader Pro - продвинутый курс по рабо�
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568339.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №6 (июнь) (2
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567983.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ DVD приложение к журналу "Хакер" №08 (163), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566343.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566231.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566167.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564325.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562741.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №8 (август
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562451.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556860.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553110.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_552609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_552609.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ WebForMySelf | Технология CSS Grid. Руководство по ада
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551703.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551635.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550842.jpg" />
 </div>
 
 

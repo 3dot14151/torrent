@@ -1,56 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1875015   (1072705) от 
-
-«Одиссея» Кристофера Нолана получила рейтинг R и стала самым дорогим фильмом с этим рейтингом  за всю историю, его бюджет составил 250 миллионов долларов
-
->>Форум Видео
->>Новинки мирового проката
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072705.jpg" />
-</div>
-
-
-###  Подробнее
-
-При бюджете в 250 миллионов долларов «Одиссея» сравнялась, а может быть, даже превзошла «Гладиатора II» как самый дорогой фильм с рейтингом R за всю историю. Мэтт Беллони из Puck утверждает, что фильм на самом деле стоил 300 миллионов долларов. Единственными другими фильмами с рейтингом R, приблизившимися к этому бюджету, являются «Дэдпул и Росомаха» (200 миллионов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874358   (1072146) от 
-
-«Ребята, давайте жить дружно!»: про кота Леопольда снимут полнометражный фильм
-
->>Форум Видео
->>Новинки мирового проката
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компании Welcome Media и «Киноцех» начали работу над полнометражным фильмом «Леопольд» по мотивам рассказов Анатолия Резникова — писателя и режиссёра культовой серии мультфильмов о дружелюбном коте. Проект создаётся в формате игрового кино: большинство персонажей сыграют актёры, а действие перенесут в современность.Режиссёром картины выступит Владислав Богуш, снявший (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696974   (118891) от 07.02.2024
 
 9 главных сериалов февраля
@@ -59,7 +7,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118891.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63788.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24501.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23075.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22943.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10417.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9682.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9677.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3524.jpg" />
 </div>
 
 

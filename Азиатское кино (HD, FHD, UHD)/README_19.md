@@ -1,3 +1,159 @@
+###  Публикация: 1496286   (872862) от 17.09.2021
+
+Настоящее / Honki no shirushi: Gekijoban / The Real Thing (2020) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872862.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной манге Хосисато Мочиру. Главный герой — Цудзи, хороший человек и уважаемый работник. Его жизнь скучна и обыденна, герой чувствует, как ему не хватает сильных эмоций. Он жаждет испытать чувство всепоглощающей любви. Когда в его жизни появляется загадочная молодая женщина, он решает, что она — именно та, которую он так ждал.Производство: Япония, Nagoya Broadcasting Network (Nagoya TV)Жанр: ДрамаРежиссер: Кодзи ФукадаАктеры: Вин Морисаки, Кахо Цутимура, Сёхэй Уно, Кэи Исибаси, Акари Фукунага, Кентес Асака, Юкия Китамура, Сюго ОсинариПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские (hardsub)Продолжительность: 03:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB554CA286B04BDA772A5D29AAD6644862F3F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374741   (870945) от 11.04.2020
+
+Семья / Kazoku / Where Spring Comes Late (1970) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870945.jpg" />
+</div>
+
+
+###  Подробнее
+
+В погожий весенний день семья Кадзами в поисках лучшей доли покинула родные края и двинулась на север Японии, на остров Хоккайдо. В пути заболела и умерла маленькая Санаэ. Они достигли цели и купили домик, но не вынес трудностей путешествия и умер старик-отец. Тамико оказалась сильнее озлобившегося мужа. Она еще надеется на лучшее. Надо подождать — придут теплые (   Читать дальше...   )Производство: Япония / Shochiku CompanyЖанр: ДрамаРежиссер: Ёдзи ЯмадаАктеры: Тиэко Байсё, Хисаси Игава, Тисю Рю, Гин Маэда, Масуми Харукава, Хадзимэ Хана, Киёси Ацуми, Син Морикава, Токуэ Ханадзава, Тиэко МисакиПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CDB6F4A6F9647358D086D40C5818F27E1E48C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374748   (870934) от 11.04.2020
+
+Когда сжигаются корабли / Родной город / Furusato / Home from the Sea (1972) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь людей на островах Сэто связана с морем. Сэйити и Тамико владеют баржей, на которой они перевозят породу для нужд строительства. Маленкьой деревянной барже трудно конкурировать с огромными стальными кораблями, она давно отслужила выделенный ей срок. Что теперь делать семье, выживать в родном городке или уезжать с острова в поисках лучшей доли?Производство: Япония / Shochiku Company, Shôchiku EigaЖанр: ДрамаРежиссер: Ёдзи ЯмадаАктеры: Тиэко Байсё, Хисаси Игава, Тисю Рю, Дзин Маэда, Киёси Ацуми, Маюми Ито, Юрико Абэ, Рэйко Тадзима, Таку ИвасакиПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AB8574F3F351C2F2818497E16AD24A0714E313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496768   (869791) от 19.09.2021
+
+Лузеры, Фунуке покажет вам немного любви (Покажите свою несчастную любовь, трусы!) / Funuke domo, kanashimi no ai wo misero / Funuke Show Some Love, You Losers! (2007) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история любви и ненависти двух сестер, которые, каждая по-своему, стремятся осуществить свою мечту. История показана глазами маленькой девочки, которая рисует мангу, наполненную черным юмором и жестокостью.Производство: Япония, Amuse Soft, Cinema Investment, Independent Film FundЖанр: ДрамаРежиссер: Дайхати ЁсидаАктеры: Эрико Сато, Аими Сацукава, Хироми Нагасаку, Масатоси Нагасэ, Сейджи Нозое, Сёитиро Танигава, Нобумити Тоса, Коити Уэда, Хироси Ямамото, Рётаро ЁнэмураПеревод: Двуголосый любительский (АрхиAsia); одноголосый любительский (неизвестный)Субтитры: Русские, английскиеПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C34D8EEE46C3AD6D1C9CF9EE2665E34FAA79EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496753   (869662) от 19.09.2021
+
+J2: J Возмездие / J2: J Retribusi (2021) WEB-DL [H.264/1080p-LQ] [АVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший спецназовец Джей устраивается телохранителем к бизнесмену Дато Хашима, охранять его маленькую дочку Нади. Дато решает продать свой отель и уйти в отставку. Во время продажи и последней пресс-конференции, отель захватывают вооруженные преступники. В заложниках оказываются десятки человек. Преступники ищут Нади, им нужна девочка, чтобы надавить на отца. Связи (   Читать дальше...   )Производство: Малайзия, Infinitus Production, Primeworks Studios, Sunstrong Entertainment, TGV PicturesЖанр: БоевикРежиссер: Назрул Ашрафф Махзан, Назим ШахАктеры: Зул Арифин, Ашраф Синклер, Чэнь Имин, Амелия Хендерсон, Айнин Батрися, Росям Нор, Фарид Амирул, Аль-Фудхаил Анвар, Эрик Чанг, Аним ЭзатиПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские, малазийскиеПродолжительность: 01:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C93991C72CB8C92D67B39F504C12C7BCF5E0787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766135   (868813) от 15.03.2014
+
+Час призраков 3D / 3 A.M. 3D (2012) BDRip [720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868813.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 часа ночи — время призраков. Три истории, рассказанные ночью. Их объединяет одно — страх.Производство: ТаиландЖанр: УжасыРежиссер: Исара Нади, Kirati Nakintanon, Patchanon ThammajiraАктеры: Апиня Сакуляроенсак, Фокус Джиракул, Шакрит Ямнарм, Рэй МакДональд, Thirachai Wimonchailerk, Karnklao Duaysianklao, Питер Найт, Васана Чалакорн, Vivid Bavornkiratikajorn, Nayapak BhumipakПеревод: Двухголосый закадровый (профессиональное НТВ+)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6780BD815415DDB2828D264D81AB690D538BFE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497355   (866464) от 21.09.2021
 
 Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRemux [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866464.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866459.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864868.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864866.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864788.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864774.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862757.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862166.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861971.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861965.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861831.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861486.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861246.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860608.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860606.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860534.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860035.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859420.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858663.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858049.jpg" />
 </div>
 
 
@@ -515,165 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC9842AAD32F6764AB70FB8858D97AB55C6673DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768876   (857897) от 21.03.2014
-
-Мастер тай-цзи / Man of Tai Chi (2013) BDRip [1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пекин. Амбициозный юноша Чэнь Линь-Ху по кличке «Тигр» подрабатывает скромным курьером, но после работы он превращается в молодую звезду боевых искусств, постепенно оттачивая свои навыки, следуя традициям Тайцзи Лин Кун. Обучившись размеренным и мирным движениям из Тайцзи, он приспособил их для бойцовских соревнований.
-Донака Марк, скрываясь от гонконгской полиции, (   Читать дальше...   )Производство: США, Китай, ГонконгЖанр: БоевикРежиссер: Киану РивзАктеры: Киану Ривз, Ико Ювайс, Тайгер Ху Чен, Карен Мок, Джереми Меринас, Стивен Дасс, Майкл Чан, Брахим Ачаббаке, Хелен Леклерк, Оушен ХоуПеревод: Дублированный (iTunes), Многоголосый закадровый (профессиональный Baibako)Язык субтитров: Русский, АнглийскийПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18D05077C284B2AB1A1D25D9DA992D2EBB26519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190411   (857816) от 08.04.2010
-
-Конфуций / Kong Zi / Confucius (2009/2010) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857816.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни знаменитого китайского мыслителя и философа Конфуция.
-Китай еще не был единым в «Период Весен и Осеней». Страна представляла собой лоскутное одеяло из феодальных княжеств и государств, постоянно соперничающих друг с другом за превосходство и территории.
-В Княжестве Лу все было как везде: условный правитель не имел реального авторитета, а настоящая власть (   Читать дальше...   )Производство: Китай / Beijing Dadi Century Limited, Dadi Entertainment, China Film GroupЖанр: драма, биография, историяРежиссер: Ху МэйАктеры: Чоу Юнь-Фат, Цзяньбинь Чэнь, Чжоу Сюнь, Яо Лу, Жэнь Цюань, Ван Бань, Чжан Кайли, Цзяо Хуан, Ран Чен, Лу ИПеревод: Двухголосый закадровыйСубтитры: АнглийскиеПродолжительность: 02:05:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471698   (857657) от 26.09.2021
-
-Китайская вдова / Feng huo fang fei / The Chinese Widow (2017) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857657.jpg" />
-</div>
-
-
-###  Подробнее
-
-После бомбардировки Токио американский летчик вынужден приземлиться на территории Китая. Несмотря на угрозу расстрела, молодая крестьянская вдова прячет иностранца в своем доме.Производство: Китай, Дания / Roc PicturesЖанр: История, мелодрама, военныйРежиссер: Билле АугустАктеры: Эмиль Хирш, Лю Ифэй, Ли Фанцун, Кэри Вудворт, Гун Ханьлинь, Гун Тянько, Цукагоси Хиротака, Ламберт Хьюстон, Чжу Цзинь, Галлен Ло, Винсент РиоттаПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: АнглийскиеПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9D7A9A8A6DDED5B9CA6B074C52EF13BC350E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376788   (857009) от 19.04.2020
-
-Потому что я люблю тебя / Saranghagi ttaemune / Because I Love You (2017) WEBRip [H.264/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857009.jpg" />
-</div>
-
-
-###  Подробнее
-
-И-хён — талантливый поэт-песенник, но после несчастного случая ему приходится открыть в себе совершенно новое призвание. Будучи неспособным вернуться в собственное тело парень раз за разом переносится в тела других людей самых разных возрастов и полов. У всех этих людей есть одна общая черта: они несчастны в любви, хотя до победы в реальности всего пара шагов. И-хён (   Читать дальше...   )Производство: Южная Корея / AD406, Next Entertainment WorldЖанр: Мелодрама, фэнтезиРежиссер: Чу Джи-хонАктеры: Чха Тхэ-хён, Ким Ю-джон, Со Хён-джин, Лим Джу-хван, Ким Юн-хе, Пак Кын-хён, Сону Ён-нё, Сон Дон-иль, Пэ Сон-у, О На-раПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AFE2D9E8DA1718570B6194002875347CDCABAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376791   (856893) от 19.04.2020
-
-Наркобарон / Ma-yak-wang / The Drug King (2018) WEB-DL [H.264/1080p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корея 70-х — страна возможностей. Мелкий пусанский барыга, торгующий золотыми часами, однажды перевозит партию наркотиков в Японию. Там он узнаёт, что после войны в стране восходящего солнца не уменьшается спрос на метамфетамины, а в Пусане — лучший климат для их изготовления. Подкупив кого только можно и организовав производство, наш герой начинает масштабный экспорт (   Читать дальше...   )Производство: Южная Корея / Hive Media, Showbox EntertainmentЖанр: Драма, криминал, биографияРежиссер: У Мин-хоАктеры: Сон Кан-хо, Чо Джон-сок, Пэ Ду-на, Ли Сон-мин, Юн Джэ-мун, Ким Со-джин, Ким Дэ-мён, Ли Хи-джун, Чо У-джин, Ю Джэ-мёнПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские (Дмитрий Трашков), английскиеПродолжительность: 02:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF7A2662C089D5CD285E2C86E4BC528D39A6C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376794   (856673) от 19.04.2020
-
-Тигр / Daeho (2015) BDRip [H.264/1080p] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856673.jpg" />
-</div>
-
-
-###  Подробнее
-
-1925 год, времена японской оккупации в Корее. Любитель тигриных шкур, японский военный министр, приказывает схватить свирепого «Короля всех тигров Кореи». Понимая всю опасность задания, охотники обращаются к бывшему товарищу, некогда величайшему охотнику страны. Тот отказывается помочь, однако его сын после ссоры с отцом вступает в ряды охотников.Производство: Южная Корея / Next Entertainment World, Sanai PicturesЖанр: драма, триллер, историяРежиссер: Пак Хун-джонАктеры: Чхве Мин Сик, Чон Ман Сик, Хон-Фа Ким, Ким Сан Хо, Юнь Ву Ли, Ра Ми Ран, Хьюн Сын-мин, Ю-Бин Сун, Рен ОсугиПеревод: Многоголосый профессиональный (HDREZKA.STUDIO)Субтитры: отсутствуютПродолжительность: 02:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A70A65F8B7811D8CBFA8761C71EEA44FABB17D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

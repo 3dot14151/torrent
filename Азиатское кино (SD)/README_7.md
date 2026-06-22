@@ -1,3 +1,81 @@
+###  Публикация: 1350510   (1003124) от 06.01.2020
+
+Поющий вор / Da dao ge wang / The Singing Thief (1969) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пун по прозвищу «Бриллиант» (Лам Чунг) – поп-звезда, голос которого покоряет миллионы. В прошлом он – профессиональный вор, грабивший доверчивых дамочек, и когда в Гонконге вновь начинаются кражи дорогих ювелирных украшений, полицейские приходят по его душу. Вор в точности копирует стиль Бриллианта, оставляя на месте происшествия красный цветок, и теперь единственный (   Читать дальше...   )Производство: Гонконг, Shaw Brothers (Hong Kong) Ltd.Жанр: Детектив, приключения, мюзиклРежиссер: Че ЧангАктеры: Эсси Лин Чиа, Джин Чу, Кван Йи, Лили Хо, Пей Чи Хуанг, Вэй Лиен Лан, Джимми Лин Чонг, Лю Чя-Юн, Ло Ле, Вэй ЛоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские - отдельным файломПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D082718D48F72F62513024573F14676F0BF2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350750   (1002971) от 07.01.2020
+
+Черная бабочка / Nu xia hei hu die / Black Butterfly (1968) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чао Чао — местный Робин Гуд по прозвищу «Черная бабочка», который крадет у богатых людей в городе, чтобы помочь жертвам стихийных бедствий. Местный судья намеревается захватить «Черную бабочку», но его навыки каждый раз позволяют ему избегать ареста. Все становится сложнее, когда банда воров крадут местные сокровища и угрожают убить всех в городе.Производство: Гонконг, Shaw Brothers (Hong Kong) Ltd.Жанр: Боевик, драма, боевые искусстваРежиссер: Ло ВэйАктеры: Ю Чин Чанг, Чжэнь Хунле, Чао Чао, Пай Чиен Чин, Фань Мэйшэн, Мин Фонг, Инь-Чиэ Хань, Синг Чун Сю, Саммо Хун, Фенг КуПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские - отдельным файломПродолжительность: 01:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970C0305115E0028A9FA04018B4C7AE446E421D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351004   (1002687) от 08.01.2020
+
+Большой босс / Kaoyaku (1971) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две группировки якудза вымогают деньги у одного и того же банка и одновременно ведут междоусобную войну. Детектив Татибана (Синтару Кацу) ведет это дело, но неожиданно поступает сигнал сверху и начальство приказывает детективу прекратить расследование. И тогда Татибана решает уволиться со службы и разобраться с бандитами своими методами...Производство: Япония, Katsu Production Co. Ltd.Жанр: Боевик, драма, криминалРежиссер: Синтаро КацуАктеры: Синтаро Кацу, Цутому Ямадзаки, Кивако Тайти, Томисабуро Вакаяма, Такуя Фудзиока, Дзюндзабуро Бан, Исао Ямагата, Гин Маэда, Хидэдзи Отаки, Дзюнкити ОримотоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1564E0B979520862E9CDE081728F8A14533F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272434   (1002647) от 08.01.2020
 
 Гангстер (Беспредельщик) / Antapal / The Gangster (2012) HDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002647.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002539.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002463.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001911.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001909.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001287.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998884.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998876.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998853.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998731.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998257.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997357.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994776.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992718.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992670.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992179.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991868.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989495.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987949.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987947.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984863.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984840.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984764.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5316AEE88A85B3BEFA6A42E840393A770DB30054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972081   (984213) от 04.01.2016
-
-Ветеран / Beterang (2015) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Со Ду Чхоль пытается засадить за решетку Чо Тэ О. Но сделать это не так просто как кажется. Ведь парень не кто-нибудь, а наследник крупной компании с хорошими связями. Получится ли у детектива довести дело до конца?Производство: Корея Южная / CJ Entertainment, Filmmaker R&K, Weyunaegang ProductionsЖанр: Боевик, Драма, Комедия, КриминалРежиссер: Рю Сын-ванАктеры: Хван Джон-мин, Ю А-ин, Ю Хэ-джин, О Даль-су, Чан Юн-джу, Ким Щи-ху, О Дэ-хван, Чон Ун-ин, Чон Ман-щик, Сон Ён-чханПеревод: Любительский двухголосый (den904&DeadSno)Субтитры: ОтсутствуютПродолжительность: 02:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346441DDECD0881C9D4A50874BE6FC7DB520D8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355414   (983366) от 26.01.2020
-
-Храбрые телохранители / Tian xia di yi biao ju / The Bravest Escort Group (2018) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потерпев поражение от армии Цин, министр и генерал династии Мин решают переправить в безопасное место принцессу и карту к богатствам. Они проводят испытание среди эскортов и выбирают самый лучший. Храбрым воинам предстоит проделать опасный путь. И лишь немногие из них вернутся домой живыми...Производство: Китай, Beijing Sheng Shi Hua Ying Culture Communication Co., LtdЖанр: Боевик, историческийРежиссер: Тао МэнсиАктеры: Луис Фань, Чэ Юнли, Син Юй, Рэй Луй, Люн Ка-Янь, Кен Ло, Ши Нань, Чэнь Чжихуэй, Си Хун-БоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Английские, китайские (hardsub (неотключаемые), русские (softsub (SRT)Продолжительность: 01:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46ADAFF75EA8771126334BE7BF10F458880747D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972102   (983005) от 05.01.2016
-
-Преисподняя мертвых / Z airando (2015) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя десять лет глава клана якудза Хироя Мунакава встречает своего верного соратника Такаши из тюрьмы. Парень принял удар вместо него, так что босс присматривал за его женой и дочерью, пока он отбывал срок. Но дочь Такаши, не желая встречаться с отцом, вместе со своей подругой сбежала на остров Зени. Однако в это время на остров обрушилась зомби-эпидемия. И Такаши (   Читать дальше...   )Производство: ЯпонияЖанр: Ужасы, боевик, комедияРежиссер: Хироси СинагаваАктеры: Сё Айкава, Дайго, Синго Цуруми, Кунихиро Кавасима, Шунсуке Кадзама, Ючи Кимура, Есуке Кубодзука, Даизуке Миягава, Эрина Мизуно, Хидео НаканоПеревод: Любительский двухголосый (DeadSno & den904)Субтитры: ОтсутствуютПродолжительность: 01:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6B22FB20620E8AA2207037745E9C3A3F7711E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

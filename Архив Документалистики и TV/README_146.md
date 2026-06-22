@@ -1,3 +1,32 @@
+###  Публикация: 1226032   (657079) от 19.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 3-й матч. Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг (15.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657079.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2018 года, среда. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 3-й матч
+Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг
+Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18506 зрителей (100 % при вместимости 18506)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DB6CADE71B136B643222A51590A02B9A2F5E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513992   (657035) от 25.06.2012
 
 [RUS/UKR] Угон по-нашему. Выпуск №12 (2012.06.19) SATRip
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657035.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657007.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656967.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656094.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656067.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655954.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655950.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655946.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ NASCAR. Monster Energy Cup Series 2018. Food City 500 (15.04.2018) HDTVRip [H.26
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655857.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655853.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655852.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655848.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ NASCAR. Monster Energy Cup Series 2018. Toyota Owners 400 (21.04.2018) HDTVRip [
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655846.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655740.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655685.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655633.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655564.jpg" />
 </div>
 
 
@@ -484,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655522.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655486.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ MotoGP. Этап 6/18. Гран-При Италии Муджелло. Гонка
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655296.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ NG. С точки зрения науки. Звездные часы / Naked Sci
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655235.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655020.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655019.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655018.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655017.jpg" />
 </div>
 
 
@@ -689,35 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:803CC4D170A771BD1E802367A105AD19B9B07F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140616   (655016) от 07.06.2017
-
-Волейбол. Чемпионат мира среди клубов 2017. Женщины. Матч за 5 место. Динамо (Россия) — Волей Нестле (Бразилия) (14.05.2017) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655016.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 мая 2017 года
-Чемпионат мира среди клубов 2017. Женщины. Матч за 5 место
-Динамо (Москва, Россия) — Волей Нестле (Осаско, Бразилия)
-Стадион: Кобе Грин Арена (Кобе, Япония), вместимость 4852 зрителей(   Читать дальше...   )Телекомпания: FIVB TVЖанр: СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 02:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980EA8AED3441F7C7D7CF20D01733537E632BD8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

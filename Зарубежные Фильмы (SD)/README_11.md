@@ -1,3 +1,107 @@
+###  Публикация: 1848222   (1052515) от 16.01.2026
+
+Стооднолетний старик, который не заплатил и исчез / Hundraettaringen som smet fran notan och forsvann (2016) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории о неугомонном старике... Сюжет фильма закручивается вокруг Аллана Карлссона, которому стукнул 101 год, но он решает отправиться в Европу для того, чтобы найти легендарный рецепт содовой. Автором этого таинственного напитка был изобретатель из бывшего СССР. Аллан когда-то был обладателем редкого рецепта, но в начале 70-х годов прошлого века тот (   Читать дальше...   )Производство: Швеция, Венгрия, США / Buena Vista International (Sweden), Film i Väst, FLX, FLX Comedy AB, Nice DramaЖанр: комедия, криминал, приключенияРежиссер: Феликс Хернгрен, Манс ХернгренАктеры: Роберт Густафссон, Ивар Викландер, Давид Виберг, Сима Ниаварани, Йенс Хультен, Светлана Родина, Эрик Штерн, Ральф Карлссон, Колин Макфарлэйн, Элинор МацуураПеревод: любительский многоголосый (GreenРай Studio), любительский двухголосый (LakeFilms)Язык озвучки: русский, шведскийСубтитры: русские (porcellus), английскиеПродолжительность: 01:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879B612AABEB24E7E9064C78FA61E118722E45D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847784   (1052315) от 14.01.2026
+
+Мученицы / Martyrs (2008) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция. Начало 70-х. Маленькая Люси, почти год считавшаяся пропавшей без вести, обнаружена бредущей по проселочной дороге. Ребёнок находится в состоянии сильного шока и не может рассказать о случившемся. Пятнадцать лет спустя девушка с сильным посттравматическим синдромом вламывается в загородный дом респектабельной пары среднего возраста, живущей с двумя детьми-подростками. (   Читать дальше...   )Производство: Канада, Франция / Eskwad, Wild Bunch, TCB FilmЖанр: ужасы, триллерРежиссер: Паскаль ЛожьеАктеры: Морьяна Алауи, Милен Джампаной, Катрин Беджин, Патриция Туласне, Джульетт Госселин, Ксавье Долан, Изабель Шассе, Эмили Мискджьян, Майк Шуте, Гаелль Коэн, Ани Паскаль, Джесси Пэм, Эрика Скотт, Луиз Бойсверт, Жан-Франсуа БодроПеревод: профессиональный многоголосый (R5 СP-Digital), профессиональный двухголосый (Интерфильм), авторский (Дмитрий Есарев; Вячеслав Замез)Язык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55323BE69B96F20CC1A9EFDD71F11E413F07036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847630   (1052281) от 13.01.2026
+
+Траффик / Reostat / Jaful Secolului / Traffic (2024) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наталья и Джинел покидают свою небольшую румынскую деревню на Дунае, чтобы работать за границей в крупном фламандском городе. Однажды вечером, после встречи с местным жителем, на неё нападают, и Наталья просит Иту — подругу с родины, ставшую мошенницей, — помочь ей.Производство: Румыния, Бельгия, Нидерланды / Lunanime, Les Films du Fleuve, Filmgate Films, AvanpostЖанр: драмаРежиссер: Теодора МихайАктеры: Анамария Вартоломеи, Йонуц Никулаэ, Рареш Андричи, Томас Риккеварт, Мике Либанон, Джулиан Де Бакер, Макрина Бырладяну, Труус де Бур, Тим Харс, Сафак КараденизПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, румынскийСубтитры: русские (full - AI), румынскиеПродолжительность: 02:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D6C1EAAEA282462F4FA226BAD42B56410D8B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847637   (1052277) от 13.01.2026
+
+Девятки / The Nines (2007) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Метафизические аспекты жизни и искусства представлены в небольших иносказательных историях. О бесшабашном актёре, находящемся под домашним арестом, которого разыгрывает циничный сосед; о телесценаристе комедий положений, ставшим участником реалити-шоу; о разработчике видеоигр, оказавшемся с семьёй в неизвестной глуши после поломки автомобиля... Авторы фильма ставят (   Читать дальше...   )Производство: США / Destination Films, Jinks Cohen CompanyЖанр: фэнтези, драма, детектив, триллерРежиссер: Джон ОгастАктеры: Райан Рейнольдс, Мелисса МакКарти, Хоуп Дэвис, Элль Фэннинг, Дэвид Денман, Октавия Спенсер, Бен Фэлкуон, Далия Салем, Джон Гэйтинс, Энди Филдер, Грег Бейн, Мартин Ю, Грегг Наман, Лорен Скафария, Джим РэшПеревод: профессиональный многоголосый (Студия Велес), профессиональный двухголосый (НТВ+), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8949944E4DF019ED0C17ADEC72CBD98979EA1D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847450   (1052236) от 12.01.2026
 
 Десятидюймовый герой / Ten Inch Hero (2007) BDRip [H.264] [MVO]
@@ -6,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052236.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052220.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052218.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052006.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051576.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051420.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051353.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051251.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051242.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051231.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050951.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050938.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050844.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050834.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050722.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050697.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050671.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050636.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050532.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050432.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050360.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050340.jpg" />
 </div>
 
 
@@ -568,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FF243503AF2052D97FA944EC91FACAC3738780F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844695   (1050207) от 28.12.2025
-
-Фатерлянд / Родина / Fatherland (1994) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённому роману 1992 года Роберта Харриса... 1964 год. Берлин. Весь город готовится к празднованию 75-й годовщины Фюрера. А двадцать лет назад армия Гитлера выиграла войну. На протяжении многих десятилетий весь мир верил, что рейх и в самом деле переселил шесть миллионов евреев на восток. Но теперь немецкий офицер СС и американская журналистка знают (   Читать дальше...   )Производство: США / Eis Film, Home Box Office (HBO)Жанр: фантастика, драма, триллерРежиссер: Кристофер МенолАктеры: Рутгер Хауэр, Миранда Ричардсон, Питер Вон, Майкл Кичен, Джин Марш, Джон Вудвайн, Джон Шрэпнел, Клайв Расселл, Клер Хиггинс, Павел АндельПеревод: дублированный (Varus Video), авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D785725C923A23679FE06A3AE98008BD81D515FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844850   (1050172) от 28.12.2025
-
-Откровения / Gyesirok / Revelations (2025) WEBRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пастор небольшого протестантского прихода узнаёт, что жена ему изменяет, и что повышение, на которое он рассчитывал, скорее всего, ждёт наследника главы церкви. Когда внезапно пропадает его маленький сын, мужчина получает божественное откровение, что к этому причастен его новый прихожанин — в прошлом осуждённый за преступления сексуального характера.Производство: Корея Южная, США / Wow PointЖанр: триллер, детектив, криминалРежиссер: Ён Сан-хоАктеры: Рю Джун-ёль, Щин Хён-бин, Щин Мин-джэ, Хан Джи-хён, Ким Бо-мин, Ким До-ён, Мун Джу-ён, Пэ Юн-гю, О Чхи-ун, У Ган-мин и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A0937129569A57271894E736C0B857DB503369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844497   (1050088) от 26.12.2025
-
-Пятый элемент / The Fifth Element (1997) WEBRip [H.264] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждые пять тысяч лет открываются двери между измерениями и темные силы стремятся нарушить существующую гармонию. Каждые пять тысяч лет Вселенной нужен герой, способный противостоять этому злу. XXIII век. Нью-йоркский таксист Корбен Даллас должен решить глобальную задачу - спасение всего рода человеческого.
-Зло в виде раскаленной массы, наделенной интеллектом, надвигается (   Читать дальше...   )Производство: Франция, Великобритания / Columbia Pictures, Gaumont, Pinewood Studios, Studio CanalЖанр: фантастика, боевик, комедия, мелодрамаРежиссер: Люк БессонАктеры: Брюс Уиллис Милла Йовович Гари Олдман Иэн Холм Крис Такер Люк Перри Брайон Джеймс Том Листер мл. Ли Эванс Чарли Крид-Майлз и др.Перевод: Дублированный, многоголосый, двуголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCA0C7A17FB9A4BAD2EC075C3898D835566E191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844053   (1049991) от 26.12.2025
-
-Только ты и я / L'amour et les forets / Just the Two of Us (2023) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бланш встречает Грегуара и верит, что он мужчина всей ее жизни. Их любовь на фоне залитого солнцем моря Нормандии кажется идеальной. Лишь после свадьбы, когда его страсть оборачивается одержимостью, она понимает, что оказалась в опасной ловушке.Производство: Франция / Rectangle Productions, France 2 Cinéma, Les Films de FrançoiseЖанр: триллер, драмаРежиссер: Валери ДонзеллиАктеры: Виржини Эфира, Мельвиль Пупо, Доминик Реймон, Роман Боринже, Виржини Ледуайен, Zoé Lenoir, Люсьен Тюнен, Мари Ривьер, Натали Ришар, Филипп ЮшанПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81334B6AE53D10C67D716649E993A2EA50672420
 ```
 
 https://mybot314.ru/tekegram_catalog/

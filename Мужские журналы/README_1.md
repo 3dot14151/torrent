@@ -1,3 +1,55 @@
+###  Публикация: 975987   (970585) от 16.01.2016
+
+Журнал | Maxim [Россия] №2 (Февраль 2016) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Maxim радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC616276848E24B6B10B31B07CD67B79FC9A053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745609   (968109) от 14.01.2014
+
+Журнал | Men's Health [Украина] №2 (февраль 2014) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men’s Health – главный мужской журнал во всем мире. Новости и статьи, советы экспертов и блоги, конкурсы и подарки. Всё про жизнь для современного мужчины. Основные темы: мужское здоровье и спортивная форма; физические упражнения и видео-энциклопедия фитнеса; секс и психология отношений; правильное питание и профилактика заболеваний; еда и рецепты; домашняя кулинария (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D7C93964F875CEE5C52047781598AA46C7B0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 620043   (966110) от 17.02.2013
 
 Журнал | Maxim [Россия] №3 (март 2013) [PDF]
@@ -6,7 +58,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966110.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964907.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963921.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963914.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_963902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_963902.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963663.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962892.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960917.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960479.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958744.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958532.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958379.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956065.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955967.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953235.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948496.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947706.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947259.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942646.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941242.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938247.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937261.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935399.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934355.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Playboy (Плейбой) — имя, ставшее легендой. Попул
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B45050E43B53D2CF9DCC8870BA5952D03D3F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861684   (933042) от 21.01.2015
-
-Журнал | Maxim [Украина] №2 (февраль 2015) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim - самый читаемый мужской журнал страны. В круге интересов MAXIM - секс и отношения, кино и музыка, мода и стиль, спорт и вредные привычки. Отличительные чертыЖанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458DBCE19A51A0B2545517B7DECCDE8077955A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861205   (932929) от 21.01.2015
-
-Журнал | Maxim [Россия] №2 (февраль 2015) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Максим радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EC9FB388AD5682F092D34787BC9B7ADF5FF872
 ```
 
 https://mybot314.ru/tekegram_catalog/

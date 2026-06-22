@@ -1,3 +1,29 @@
+###  Публикация: 682896   (631154) от 23.07.2013
+
+Профессия  репортер. МиллиоМЭР (2013.07.05) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631154.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Ярославль бурлит уже третий день, к такому вниманию горожане не привыкли. Но комментируя арест мэра, все произносят одну и ту же фразу: "К тому всё и шло!" И если бы не вмешательство оперативников, ситуация в городе стала бы критической...Жанр: ДокументальныйПродолжительность: ~ 00:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556C7D1F4A696A61DE86FB9926CEADD50FD0F7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682895   (631112) от 23.07.2013
 
 Профессия  репортер. Египетские демоны (2013.07.13) SATRip
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631112.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630701.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630682.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Nat Geo Wild: Разыскиваются морские коньки / Seahorses
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630200.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630181.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630127.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630094.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630093.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630092.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630091.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630090.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630080.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630079.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629998.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629661.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629659.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629507.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ NG: Explorer (Исследование). Тайна Инука [сезон 8 с�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629284.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ NG: Explorer (Исследование). Как создать работающ�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629200.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_629196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629196.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628586.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628584.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628581.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628355.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628354.jpg" />
 </div>
 
 
@@ -679,35 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C9012E07202437CCFB80F7E37C2E95AD8DC320D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229357   (628352) от 05.06.2018
-
-Волейбол. Лига наций 2018. Женщины. 2-й тур. Группа 8. Турция – Бразилия (22.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628352.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 мая 2018 года, вторник. 17:00 МСК
-1-й женский турнир Волейбольной Лиги наций 2018 года
-2-й тур. Группа 8.
-Турция – Бразилия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA61EC7920B504904E0EF49461E7E3088134BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

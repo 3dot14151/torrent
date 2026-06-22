@@ -1,3 +1,90 @@
+###  Публикация: 1036412   (621171) от 20.07.2016
+
+Pebbles - Straight From My Heart (1995) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Club Laid Back (Intro) (2:53)
+02.Like The Last Time (4:07)
+03.'Are You Ready?' (4:36)
+04.I Can't Help It (5:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115EFF9BDC979BC8AF0B265DBDD65A6EADAC03AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036250   (621080) от 20.07.2016
+
+VA - 2005 Grammy Nominees (2005) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Eyed Peas - Let's Get It Started 03:38
+02. Ray Charles (Feat. Norah Jones) - Here We Go Again 03:56
+03. Green Day - American Idiot 02:56
+04. Los Lonely Boys - Heaven 03:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010A2D02E62E50FD9B8ADD055B86335BE1D4CCE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230008   (620878) от 09.06.2018
+
+Melanie C - Version Of Me (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Life (3:28)
+02. Escalator (3:22)
+03. Anymore (3:04)
+04. Something Gor The Fire (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC890421922F82601C707AD82F557E00B095281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295333   (620767) от 12.04.2019
 
 Sara Bareilles - Amidst the Chaos (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Pop Rock>
@@ -6,7 +93,7 @@ Sara Bareilles - Amidst the Chaos (2019) [FLAC|Lossless|tracks + .cue] <Pop, Ind
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620767.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Now That's What I Call Music! 102 (2019) 2CD, UK Series [FLAC|Lossless|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620619.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Laid Back - Play It Straight (1985) Unofficial Release, 2003, Medley Records [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620471.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Laid Back - Laidest Greatest (1995) [FLAC|Lossless|tracks + .cue] <Pop, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620322.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Syn
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619095.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|imag
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618984.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618977.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - The British Pop Collection (60 Original Artists 60 Original Hits) (1983) Ax
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618298.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618083.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617978.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617024.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616197.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615745.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615662.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615139.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615132.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614904.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Top Of The Pops '1976 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613869.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Helene Fischer - Best Of (2010) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613767.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Richard Marx - The Ultimate Collection (2016) Universal Music [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613364.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Roosevelt - Roosevelt (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612122.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ VA - BRAVO Hits 94 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611671.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Alizee - Blonde (2014) [FLAC|Lossless] <Pop, Electronic, French Pop, Dancepop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611601.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Alizee - Blonde (2014) [FLAC|Lossless] <Pop, Electronic, French Pop, Dancepop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A6C51507948485836094451716331B43BB13D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147228   (610997) от 01.07.2017
-
-Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The City (3:58)
-02. Bless The Beasts And The Children (4:18)
-03. Christmas Lullaby (3:53)
-04. I Won't Say (I'm In Love) (3:18)(   Читать дальше...   )Жанр: Pop-Rock |Продолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC8F9EC068D794C8608DE294A1FFA133B18E8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525000   (609244) от 20.07.2012
-
-VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Michel Telo - Ai Se Eu Te Pego (2:45)
-2. Sak Noel - Paso (The Nini Anthem) (3:17)
-3. Qwote Feat. Pitbull & Lucenzo - Throw Your Hands Up (Dancar Kuduru) Sagi Abitbul Remix Edit (4:33)
-4. R.I.O. feat. U-Jean - Turn This Club Around (3:18)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:31:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913370   (606934) от 28.06.2015
-
-Savage Garden - The Singles (2015) [FLAC|tracks+.cue]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You
-02. To The Moon And Back
-03. Truly Madly Deeply
-04. Break Me Shake Me(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BB928F4377313A32D0C451AC04BB1AC598F010
 ```
 
 https://mybot314.ru/tekegram_catalog/

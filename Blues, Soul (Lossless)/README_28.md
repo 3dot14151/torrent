@@ -6,7 +6,7 @@ J.J. Cale - Okie (1974) Japan Edition, 2013, Mercury [FLAC|Lossless|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919090.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Women Of Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918965.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vaya Con Dios, Purple Prose - 9 альбомов (1988 - 2009) [FLAC, APE|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918228.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eldon Brown Band - I'd Be A Fool (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917801.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Hollywood Blue Flames - Soul Sanctuary (2005) [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917782.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Carl Verheyen - Slingshot (1998) [FLAC|Lossless|tracks + .cue] <Blues, Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917779.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ CG & The Hammer - Live in Tel Aviv (2010) [APE|Lossless|image + .cue] <Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916030.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Big Monti Amundson - Dangling From A Rope (2014) [FLAC|Lossless|WEB-DL|tracks + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916029.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Blues Rebels - 2CD (2015-2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916022.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ The Record Company - Give It Back To You (2016) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915906.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wily Bo Walker - Tales of the Mescal Canyon Troubadours (2021) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915154.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Rides - Pierced Arrow (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914495.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Albert Castiglia - Big Dog (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914488.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Walter Trout - Alive In Amsterdam (2016) 2CD [FLAC|Lossless|WEB-DL|tracks + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914386.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Blues Pills - Lady In Gold (2016) [FLAC|Lossless|image + .cue] <Blues, Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914090.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Matthew Ryan Jacobs - Living in Between (2021) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913848.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Holebones - Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913846.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Jimmie Bratcher - I'm Hungry (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913844.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Harmonica Shah and Howard Glazer - Ain't Gonna Worry About Tomorrow (2021) [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913843.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ T Bear - Fresh Bear Tracks (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913841.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The Blue Quarantinos - Phoning It In (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913840.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Tomislav Goluban - Express Connection (2021) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913839.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Sweet Wine - Make Me Fly (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913838.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Sir Oliver Mally Group - Tryin' to Get By (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913837.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ The Plunders - Speak Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913836.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Los Blues Morning Singers - Winding Road (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913835.jpg" />
 </div>
 
 

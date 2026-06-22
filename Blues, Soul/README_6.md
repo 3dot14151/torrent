@@ -6,7 +6,7 @@ VA - I Feel Blues In My Roots (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815449.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Big Harp George - Wash My Horse In Champagne (2016) [MP3|320 кб/с] <West Coas
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812182.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Curtis Salgado - More Than You Can Chew (1995) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812181.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808108.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805139.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Beth Garner - Snake Farm (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804509.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lonnie Mack - The Best Of Lonnie Mack: The Alligator Records Years (2014) [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804289.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Oscar Benton - I Am Back (2018) [MP3|320 Kbps] <Blues Rock, Americana>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802710.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe Bonamassa - Time Clocks (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802400.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Five Star Blues Rock (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802019.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Beth Hart & Joe Bonamassa - Black Coffee (2018) [MP3|320 Kbps] <Blues, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801555.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jean Paul Rena - A Thief Known For Stealing Hearts (2017) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801127.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vince Vallicelli Band (feat. James Thompson) - Toot Loh Doon Faruye (2016) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799679.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Blues Engine - The Quick And The Dirty (2015) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799664.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blues Meets Girl - Blues Meets Girl (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799372.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ruthie Foster - Joy Comes Back (2017) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799227.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Nina Van Horn - Nina Van Horn Sings Nina Simone (2017) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799219.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Sexy Christmas Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798236.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kris Barras Band - Lucky 13 (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797646.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Blues Experience - Coming Your Way (2005) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797039.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kev Spencer - .​.​. For Reasons Unknown (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796958.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ David Gogo - Soul-Bender (2011) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796423.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Carolyn Gaines - Beware Of My Dog (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796418.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Naughty Blokes - We Rise (2016) [MP3|320 кб/с] <British Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796404.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Troy Brooks - All I Need (2013) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795632.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Gov't Mule - Heavy Load Blues (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795544.jpg" />
 </div>
 
 

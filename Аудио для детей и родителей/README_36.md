@@ -1,3 +1,57 @@
+###  Публикация: 1220440   (703980) от 19.04.2018
+
+Людмила Петрановская | Близкие люди Тайная опора. Привязанность в жизни ребенка (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703980.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Все мы родом из детства», – писал один известный французский писатель и летчик. Однако прежде чем достичь самостоятельности, мы едва ли можем обойтись без взрослых. В своей новой аудиокниге Людмила Петрановская, основываясь на научной теории привязанности, легко и доступно рассказывает о роли родителей на пути к взрослению: «Как зависимость и беспомощность превращаются (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 06:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB24D61025AE709943DBA02FB46A8261909B36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402162   (703929) от 13.08.2020
+
+Наталья Щерба | Лунастры. Прыжок над звездами. Книга 1. (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прыжок над звездами» – первая книга нового захватывающего цикла фэнтези о мире, похожем и непохожем на наш.
+
+Что может быть лучше, чем мчаться по ночным улицам, – бежать, совершая гигантские, почти летящие прыжки? Наверное, только лежать на крыше, любуясь мириадами сверкающих звезд… Так думал Тим до тех пор, пока однажды в его городке не появилась странная девчонка (   Читать дальше...   )Жанр: Книги для подростков/ФэнтезиПеревод: ВИМБОПродолжительность: 13:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065922510D448B0297A96EA521B4B411B8069F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402184   (703812) от 13.08.2020
 
 Нил Гейман | Одд и ледяные великаны (2020) [MP3]
@@ -6,7 +60,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703812.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701962.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701849.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701829.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701728.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701726.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700832.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700066.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700065.jpg" />
 </div>
 
 
@@ -254,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700063.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700059.jpg" />
 </div>
 
 
@@ -306,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700051.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699944.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699943.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699938.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699929.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699815.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699712.jpg" />
 </div>
 
 
@@ -494,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696048.jpg" />
 </div>
 
 
@@ -520,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696047.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696043.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696040.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695955.jpg" />
 </div>
 
 
@@ -629,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695939.jpg" />
 </div>
 
 
@@ -643,61 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E8E9FF1179639E8ECAAB6FDE16591A13DC8F47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403031   (695938) от 17.08.2020
-
-Андрей Белянин, Игорь Касилов | Гаврюша и Красивые. Книга 1. (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все началось с того, что первоклассник Егорка обнаружил у себя в квартире домового. Обычного, невысокого, с рыжей бородой, в лаптях и рубашке навыпуск. Правда, рассказывать сказки на ночь его новый друг не умел. Зато отлично втягивал в саму сказку и Егора, и его родителей, а потом и сама сказка решила заявиться в реальный мир. Почему нет? Тем более что получением (   Читать дальше...   )Жанр: Детская литература/Фантастика/Юмористическое фэнтезиПродолжительность: 08:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B891D36CAA41BCE17DE177136F66985D84DFA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403053   (695838) от 17.08.2020
-
-Детское Королевство - Песенки про зоопарк. Часть 2 (2020) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любознательный тигрёнок вышел погулять
-02. Мишка панда
-03. Гиппопотамчик Тамчик
-04. Надоедливый тик(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F00D49D2DF2EB194CBF21798922E7E49630EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

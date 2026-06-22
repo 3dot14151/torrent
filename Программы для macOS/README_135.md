@@ -1,3 +1,113 @@
+###  Публикация: 1426458   (215040) от 24.11.2020
+
+Pixave 2.3.13 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215040.jpg" />
+</div>
+
+
+###  Подробнее
+
+При работе с большим количеством изображений встает вопрос их эффективной организации и просмотра. Это важно для тех, кто связан с дизайном, оформлением, и просто людей, любящих, когда все разложено по полочкам. Именно для этого и создан менеджер изображений Pixave, в котором не только удобно хранить и просматривать картинки, но и сортировать их, редактировать, экспортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2019Разработчик: YoungHo KimПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14E704E955BF582E5F779792FD314DBA7F481AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343841   (214982) от 08.12.2019
+
+EdgeView 2 2.840 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214982.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 2 – это небольшая, но мощная и очень быстрая программа просмотра изображений.
+Пользователь может легко найти изображение во внутреннем файловом браузере, а также быстро увидеть его в окне просмотра.
+
+EdgeView 2 – может читать самые известные форматы файлов изображений и даже может открывать архивные файлы zip, rar, 7-zip. Также поддерживается подключение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Dongjin HanПоддерживаемая ОС: macOS El Capitan 10.11 и вышеЯзык интерфейса: Английский, корейский, упрощенный китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B08525D692124598031DE56697CE4F3219C54F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653511   (214664) от 16.08.2023
+
+OmniPlan Pro 4 v.4.5.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Group славится своими качественными программами для Mac. OmniPlan не стало исключением. Это приложение позволяет пользователям подробно планировать отдельные задания какого-то проекта или мероприятия. Некоторые люди предпочитают иметь визуальное представление своих идей, и именно для них разработано это приложение. Оно поможет набросать весь проект в виде схем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2023Разработчик: © 1994 – 2023 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C79AD527746E487EC3775F50DF449B96B711255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085327   (214464) от 21.12.2016
+
+PDF Expert 2.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214464.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - многофункциональная утилита для работы с PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 декабря 2016Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A364F32D4D270FED655AA02711C461947A0B2CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653853   (214331) от 17.08.2023
 
 iReal Pro 2023.7 [Multi]
@@ -6,7 +116,7 @@ iReal Pro 2023.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214331.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ VideoDuke 2.14 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214321.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ Ninox Database 2.3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213858.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ Baby Audio-Crystalline for Mac 1.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213681.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ future.dj pro - mix everything 1.8.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213674.jpg" />
 </div>
 
 
@@ -140,7 +250,7 @@ Weather Widget Live Full for Mac 4.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213643.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ Enigma Recovery Professional 3.0.162 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213638.jpg" />
 </div>
 
 
@@ -195,7 +305,7 @@ Topaz Sharpen AI 3.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213240.jpg" />
 </div>
 
 
@@ -221,7 +331,7 @@ Topaz DeNoise AI 3.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213118.jpg" />
 </div>
 
 
@@ -247,7 +357,7 @@ DaisyDisk 4.23.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212962.jpg" />
 </div>
 
 
@@ -274,7 +384,7 @@ Adobe Dreamweaver 2021 v21.3 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212927.jpg" />
 </div>
 
 
@@ -300,7 +410,7 @@ ON1 NoNoise A 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211913.jpg" />
 </div>
 
 
@@ -326,7 +436,7 @@ Luminar AI 1.5.3 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211904.jpg" />
 </div>
 
 
@@ -352,7 +462,7 @@ ON1 HDR 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211902.jpg" />
 </div>
 
 
@@ -378,7 +488,7 @@ ON1 Effects 2023.5 v.17.5.1.14028 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211881.jpg" />
 </div>
 
 
@@ -404,7 +514,7 @@ Movist Pro 2.8.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211856.jpg" />
 </div>
 
 
@@ -431,7 +541,7 @@ Native Instruments Traktor Pro 3 v3.5.3.302 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211845.jpg" />
 </div>
 
 
@@ -457,7 +567,7 @@ HitPaw Photo Enhancer for Mac 2.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211636.jpg" />
 </div>
 
 
@@ -483,7 +593,7 @@ HitPaw Photo Object Remover for Mac 1.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211585.jpg" />
 </div>
 
 
@@ -509,7 +619,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14051 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211407.jpg" />
 </div>
 
 
@@ -535,7 +645,7 @@ Native Instruments Maschine 2 v.2.17.4[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210810.jpg" />
 </div>
 
 
@@ -562,7 +672,7 @@ X Lossless Decoder XLD 20230627 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210372.jpg" />
 </div>
 
 
@@ -573,110 +683,6 @@ X Lossless Decoder (XLD) - это инструмент для macOS, котор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E60C64C325C714AC1A530C5AE81831285DB0F210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642968   (210277) от 29.06.2023
-
-Luxion KeyShot 2023.2 Pro 12 v.12.1.0 [Multi/Ru]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210277.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeyShot автономное приложение для рендеринга. Предназначено для упрощения процесса создания фотореалистичных изображений. Простота и архитектура делают KeyShot одним из наиболее широко используемых решений среди дизайнеров, инженеров и специалистов по всему миру CG .Тип издания: macOS SoftwareРелиз состоялся: 28.06.2023Разработчик: © 2022 Luxion, IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FD5A063C1A5F6915AD6540838EBC9ECFEFB510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571096   (210144) от 20.08.2022
-
-Adobe Bridge 2022 12.0.3 U2B [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки, а также централизованно устанавливать параметры (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2022Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.15 и новееЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0169B8D5C519B4465D70BC1D979BC7DC52A300B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643687   (209918) от 02.07.2023
-
-Steinberg Cubase Pro for Mac 12 v.12.0.70 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального производства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2023Разработчик: © 2022 Steinberg Media Technologies GmbH.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AF809E89C5D9361A3BBDA202D18B37D683B43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571710   (209855) от 23.08.2022
-
-Movavi Video Editor Plus 2022 v.22.4.1 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Video Editor Plus. В этом приложении есть все функции обычного видеоредактора, а также новые дополнительные возможности – например, анимация объектов. Попробуйте утилиту прямо сейчас.Тип издания: macOS SoftwareРелиз состоялся: 22.08.2022Разработчик: © 2022 Movavi Software LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D9E12E40F6F0DBAC88079C8E9ED91A497C23BDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

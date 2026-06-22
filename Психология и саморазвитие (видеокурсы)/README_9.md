@@ -1,3 +1,89 @@
+###  Публикация: 1626627   (199824) от 15.04.2023
+
+Proprofiling, Алексей Филатов | Профайлинг для практиков (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная задача данного курса - превратить знания в стабильные навыки, научиться применять современные технологии профайлинга в нужных вам сферах.
+
+Хватит изучать теорию, пора переходить к практике!
+Вы посетили большое количество тренингов, но теория так и осталась для вас теорией?(   Читать дальше...   )Производство: ProprofilingЖанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 11:51:07Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515CB08B70D3A4670C0199756F74D97CDBA2678E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626850   (199681) от 16.04.2023
+
+Антон Махновский | Шизофреногенные паттерны (2020) CamRip [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни один человек не может защититься от психологического воздействия на 100%.
+При этом, ваша психика регулярно подвергается шизофреногенной коммуникации:
+Токсичные родители.
+Абьюзивные супруги.(   Читать дальше...   )Жанр: НЛП, психология общения, межличностные коммуникации, психотерапияЯзык озвучки: русскийПродолжительность: 04:59:02Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC58693FE49CD7EB5FBD6461D8536ADC5EE158D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627054   (199635) от 17.04.2023
+
+Proprofiling, Алексей Филатов | Тёмные люди. Пакет Премиум (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек – существо социальное и нуждается в постоянном взаимодействии с окружающими. Исходя из того, как человек проявляет себя в этом взаимодействии, можно выделить несколько разных моделей токсичного поведения, которое регулярно приводит к возникновению разногласий и снижает продуктивность совместной работы.
+
+Набор этих поведенческих паттернов (самовлюблённость, (   Читать дальше...   )Производство: ProprofilingЖанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 33:19:12Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B85A530F4BA43A438A0A2F7B930F2A61812C886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627588   (199626) от 19.04.2023
 
 Proprofiling, Алексей Филатов | Профайлинг по странице в соцсетях (2022) WEB-DL [AD] [RU]
@@ -6,7 +92,7 @@ Proprofiling, Алексей Филатов | Профайлинг по стра
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199626.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Proprofiling, Алексей Филатов | Эмоции и оценка ли�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199622.jpg" />
 </div>
 
 
@@ -61,7 +147,7 @@ Proprofiling, Алексей Филатов | Прямые и скрытые в�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199618.jpg" />
 </div>
 
 
@@ -89,7 +175,7 @@ Proprofiling, Алексей Филатов | Практикум по профа
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199513.jpg" />
 </div>
 
 
@@ -118,7 +204,7 @@ Proprofiling, Алексей Филатов | Скрытые внушения в
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199511.jpg" />
 </div>
 
 
@@ -146,7 +232,7 @@ Proprofiling, Алексей Филатов | Метапрограммы в пр
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199507.jpg" />
 </div>
 
 
@@ -174,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199489.jpg" />
 </div>
 
 
@@ -202,7 +288,7 @@ Foxford (Фоксфорд), Анна Емельянова | Мастерство
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199222.jpg" />
 </div>
 
 
@@ -231,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199215.jpg" />
 </div>
 
 
@@ -260,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199207.jpg" />
 </div>
 
 
@@ -288,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199144.jpg" />
 </div>
 
 
@@ -316,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199109.jpg" />
 </div>
 
 
@@ -342,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199100.jpg" />
 </div>
 
 
@@ -370,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199092.jpg" />
 </div>
 
 
@@ -399,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198903.jpg" />
 </div>
 
 
@@ -428,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197932.jpg" />
 </div>
 
 
@@ -457,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197917.jpg" />
 </div>
 
 
@@ -485,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197821.jpg" />
 </div>
 
 
@@ -511,7 +597,7 @@ LevelOne, Елизавета Волкова  | Сильная речь - что 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197765.jpg" />
 </div>
 
 
@@ -538,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197608.jpg" />
 </div>
 
 
@@ -567,7 +653,7 @@ Apeiron, Алексей Арестович | Семинар «Священная
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197593.jpg" />
 </div>
 
 
@@ -594,7 +680,7 @@ Apeiron, Алексей Арестович | Семинар «Ищите жен�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197583.jpg" />
 </div>
 
 
@@ -621,7 +707,7 @@ Apeiron, Алексей Арестович | Семинар «Дисциплин
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197571.jpg" />
 </div>
 
 
@@ -633,86 +719,6 @@ Apeiron, Алексей Арестович | Семинар «Дисциплин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3ABB626290B7EF9F86EE3DA54716A20E70FABED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637176   (197559) от 02.06.2023
-
-Apeiron, Алексей Арестович | Семинар «Искусство задавать вопросы» (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если человека выжать, как лимон, то в сухом остатке из всех его возможностей и способностей останется только способность задавать вопросы. Вопрос - это единственное, что остаётся между человеком и миром, когда всё остальное исчезает. Вопрос - это единственная дорога к себе. Чтобы понять, почему и как Вы живёте, просто посчитайте количество вопросов, которые Вы задаёте (   Читать дальше...   )Производство: ApeironЖанр: психология, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 03:02:52Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F772AAA285F74B9A85EE5101E8B17F6E0389297A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637481   (197552) от 04.06.2023
-
-Высшая школа НЛП, Юрий Чекчурин и др. | Инструменты практической психотерапии (2023) CamRip [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный практический формат. Минимум теории, только практические инструменты для психотерапевтов, психологов, коучей и консультантов.
-Для профессионалов – знакомство с новыми методами и навыками (психиатрия, развивающиеся методы психотерапии), профессиональная поддержка (супервизия, интервизия), сообщество коллег.
-Для осваивающих профессию психологов-консультантов (   Читать дальше...   )Производство: Высшая школа НЛПЖанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 03:59:34Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3563B77A87DB7C1C1B4249429E02F7556DEECF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637925   (197383) от 06.06.2023
-
-Apeiron, Алексей Арестович | Семинар «Сила намерения» (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197383.jpg" />
-</div>
-
-
-###  Подробнее
-
-На семинаре мы будем изучать силу, которая позволяет избежать влияния Большого Социума, провести линию внутренней жизни от первичных желаний до постановки цели. Внутренняя культура человека начинается со способности различать в себе различные органические импульсы и сортировать их по происхождению. Именно понимание своих потребностей и желаний даёт стойкое намерение (   Читать дальше...   )Производство: ApeironЖанр: психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 03:46:41Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E4ED524388AC5A072AF28D8C8AA4A393F86C62
 ```
 
 https://mybot314.ru/tekegram_catalog/

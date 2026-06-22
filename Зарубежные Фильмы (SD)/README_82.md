@@ -1,3 +1,135 @@
+###  Публикация: 1358027   (968509) от 08.02.2020
+
+Красный крокодил / Red Krokodil (2012) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жуткая психологическая драма о гниющем заживо наркомане из российской глубинки. В центре внимания дезоморфин, на жаргоне "крокодил" - дешевый кустарный заменитель героина, получивший широкое распространение в России из-за достаточно длительного периода доступности его компонентов в аптеках. Ужасающий реализм происходящего переплетается с мрачными галлюцинациями (   Читать дальше...   )Производство: Италия / Enchanted ArchitectЖанр: ДрамаРежиссер: Домициано КристофароАктеры: Valerio Cassa, Виктор Карам, Брок МэдсонПеревод: Одноголосый любительскийСубтитры: отсутствуютПродолжительность: 01:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1923D093245185E853E4131EE1FFD5379EA063C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635822   (968499) от 08.02.2020
+
+Доктор Дулиттл / Doctor Dolittle (1998) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968499.jpg" />
+</div>
+
+
+###  Подробнее
+
+У доктора Джона Дулиттла есть, кажется, все, о чем только можно мечтать: удавшаяся карьера, красивая жена и две прелестные дочки. В довершение ко всему он вот — вот заключит самую большую в своей жизни финансовую сделку. Короче, доктор Дулиттл — настоящий счастливчик. И вдруг случается ужасное: доктор Дулиттл замечает, что в нем просыпается когда — то присущая ему (   Читать дальше...   )Жанр: Комедия, СемейныйРежиссер: Бетти Томас / Betty ThomasАктеры: Эдди Мёрфи, Осси Дэвис, Оливер Плэтт, Питер Бойл, Ричард Шифф, Кристен Уилсон, Джефри Тэмбор, Кайла Прэтт, Рэйвен, Стивен ГилборнаПеревод: Профессиональный (полное дублирование)
++ Профессиональный (многоголосый, закадровый)Продолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306C096FA3D4E5E6E79CA984C06BBDD6B737C031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358343   (968498) от 08.02.2020
+
+Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лара Крофт — весьма самостоятельная дочь эксцентричного искателя приключений, который пропал, едва она стала подростком. Теперь ей двадцать один, она бесцельно проживает свою жизнь, курьером рассекая на байке по забитым улицам восточного Лондона. Решительно настроенная пробиться сама, она отказывается брать на себя руководство глобальной империей отца, столь же категорично (   Читать дальше...   )Производство: Великобритания, США / GK Films, Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Приключения, Драма, Фэнтези, Детектив, ТриллерРежиссер: Роар УтхаугАктеры: Алисия Викандер, Доминик Уэст, Уолтон Гоггинс, Дэниэл Ву, Кристин Скотт Томас, Дерек Джекоби, Александр Виллауме, Тамер Барджаг, Эдриан Коллинз, Кинэн ЭррисонПеревод: Дублированный (BD CEE)Субтитры: Русские, английскиеПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D006C898780F50F10546098451D872067971157C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976704   (968462) от 18.01.2016
+
+Полетта / Paulette (2012) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полетта — вредная старушка с непростым характером. Она ненавидит соседей, поскольку те мусорят и шумят. Она не любит своего внука и придумала ему прозвище Черныш, поскольку дочь вышла замуж за чернокожего полицейского.
+   Когда социальные службы начинают за долги описывать ее имущество, она принимает нестандартное решение: отправляется к местному наркодилеру и предлагает (   Читать дальше...   )Производство: ФранцияЖанр: Комедия, криминал, драмаРежиссер: Жером ЭнрикоАктеры: Бернадетт Лафон, Кармен Маура, Доминик Лаванан, Франсуаз Бертен, Андре Пенверн, Исмаэль Драме, Жан-Баптист Анумон, Аксель Лафон, Пако Бублар, Махмаду КулибалиПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A43E4E5553718CA1E973214306B0C698A12A6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214092   (968448) от 18.01.2016
+
+Говорящие с ветром / Windtalkers (2002) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Военный, Исторический, ДрамаРежиссер: Джон Ву.Актеры: Николас Кейдж, Адам Бич, Петер Стормаре, Ноа Эммерик, Марк Руффало, Брайан Ван Холт, Мартин Хендерсон, Роджер Уилли, Фрэнсис О`Коннор, Кристиан Слэйтер и др.Язык субтитров: РусскиеПродолжительность: 02:14:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358544   (968442) от 08.02.2020
 
 Дело Коллини / Der Fall Collini (2019) BDRip [H.265] [10-bit] [PR]
@@ -6,7 +138,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968442.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968351.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968336.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968282.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968256.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968250.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968245.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967728.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967606.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967593.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967589.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967558.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967517.jpg" />
 </div>
 
 
@@ -349,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967478.jpg" />
 </div>
 
 
@@ -375,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967405.jpg" />
 </div>
 
 
@@ -401,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967257.jpg" />
 </div>
 
 
@@ -427,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966969.jpg" />
 </div>
 
 
@@ -453,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966965.jpg" />
 </div>
 
 
@@ -479,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966931.jpg" />
 </div>
 
 
@@ -505,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966927.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_966866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_966866.jpg" />
 </div>
 
 
@@ -544,136 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC301A3A4612BD3FC6A1FA7305F4714A272A564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745854   (966823) от 15.01.2014
-
-Астрал: Глава 2 / Insidious: Chapter 2 (2013) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_966823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Ламберт стремится раскрыть тайну, из-за которой они оказались в опасной связи с миром духов…Производство: США, Blumhouse Productions, Entertainment One, FilmDistrictЖанр: Ужасы, ТриллерРежиссер: Джеймс ВанАктеры: Патрик Уилсон, Роуз Бирн, Лин Шэй, Тай Симпкинс, Барбара Херши, Стив Култер, Ли Уоннелл, Энгус Сэмпсон, Эндрю Эстор, Хэнк ХаррисПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8C74E46EDEB0DBFAB4F15F98CF276CF9DF62F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620187   (966337) от 17.02.2013
-
-Возможности карьеры / Career Opportunities (1991) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работать ночным сторожем в огромном супермаркете, где можно врубить музыку на всю громкость, наесться всякой всячины от пуза, кока-колы напиться на всю оставшуюся жизнь, а потом в пустом торговом зале до самого утра кататься на роликовых коньках, — может ли быть мечта прекраснее, если тебе лет 16-17 и ты представления не имеешь, чем заняться в ближайшем будущем? (   Читать дальше...   )Жанр: КомедияРежиссер: Брайан Гордон /Bryan GordonАктеры: Фрэнк Уэйли /Frank Whaley/, Дженнифер Коннелли /Jennifer Connelly/, Дермот Малруни /Dermot Mulroney/, Барри Корбин /Barry Corbin/,Перевод: Одноголосный закадровыйСубтитры: нетФормат: AVIПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC497D95188459B0F02B9591AFAB8AD96CA132D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977191   (966328) от 20.01.2016
-
-Черная месса / Black Mass (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина расскажет об Уайти Булджере, знаменитом бостонском гангстере, который 16 лет находился в бегах и был арестован в июне 2011 года в Санта-Монике. Булджер, которому уже за 80, обвинялся в рэкете, был замешан в 19 убийствах и в то же время работал информатором на ФБР. Чтобы не попасть за решетку, он исчез в 1995 году и 16 лет успешно скрывался от правосудияПроизводство: США / Cross Creek Pictures, Le Grisbi Productions, Infinitum Nihil, Free State Pictures, Head Gear Films, Metrol Technology, RatPac-Dune Entertainment, Ridgerock Entertainment Group, Vendian EntertainmenЖанр: Драма, криминал, биография, экранизацияРежиссер: Скотт КуперАктеры: Джонни Депп, Джоэл Эдгертон, Бенедикт Камбербэтч, Кевин Бэйкон, Джесси Племонс, Питер СарсгаардПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC22703A4A9B422F656EA57D351690223B99DA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977189   (966322) от 20.01.2016
-
-Черная месса / Black Mass (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина расскажет об Уайти Булджере, знаменитом бостонском гангстере, который 16 лет находился в бегах и был арестован в июне 2011 года в Санта-Монике. Булджер, которому уже за 80, обвинялся в рэкете, был замешан в 19 убийствах и в то же время работал информатором на ФБР. Чтобы не попасть за решетку, он исчез в 1995 году и 16 лет успешно скрывался от правосудияПроизводство: США / Cross Creek Pictures, Le Grisbi Productions, Infinitum Nihil, Free State Pictures, Head Gear Films, Metrol Technology, RatPac-Dune Entertainment, Ridgerock Entertainment Group, Vendian EntertainmenЖанр: Драма, криминал, биография, экранизацияРежиссер: Скотт КуперАктеры: Джонни Депп, Джоэл Эдгертон, Бенедикт Камбербэтч, Кевин Бэйкон, Джесси Племонс, Питер СарсгаардПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECDE4B74698D016213472B515B67FA9298BE5A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619772   (966266) от 17.02.2013
-
-Влюбленная женщина / Rubbeldiekatz (2011) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незадачливый актёр театра Алекс по стечению обстоятельств получает главную женскую роль в крупном голливудском фильме. Всё осложняется ещё больше, когда он проводит ночь со своей будущей партнёршей по фильму Сарой и влюбляется в неё…Жанр: КомедияРежиссер: Детлев БукАктеры: Маттиас Швайгхефер, Александра Мария Лара, Детлев Бук, Максимилиан Брюкнер, Денис Москитто, Макс фон Тун, Макс Гиерманн, Санни Меллес, Сюзанна Борман, Милан ПешельПеревод: Профессиональный (одноголосый)Продолжительность: 01:53:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

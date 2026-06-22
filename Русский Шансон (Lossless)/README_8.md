@@ -1,3 +1,61 @@
+###  Публикация: 1020750   (743811) от 27.05.2016
+
+Анатолий Днепров - Не формат (2004) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Верю я
+02. Танцуй
+03. Минздрав предупреждает
+04. Не уходи(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698F9680955C78CD8D50AFA647BA5C395ED95C8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020738   (743460) от 27.05.2016
+
+Вика Цыганова - Лучшее (2011) 2CD [FLAC|image+.cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Праздничная
+02. Приходите в мой дом
+03. Гроздья рябины
+04. Не плачь, душа(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A4BA2AA4849AD114824716E498E7712334F87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021194   (742197) от 28.05.2016
 
 Там Америки нет - Девочка и сигарета (2006) [FLAC|Lossless|image + .cue] <Chanson>
@@ -6,7 +64,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742197.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742076.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741645.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Не печалься, любимая... (2006) [FLAC|Lossless|image + .cue
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740982.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739675.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737812.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Сборная блатная команда шансона (2001) [FLAC|Lo
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735855.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734409.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733169.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731878.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731527.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731043.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730691.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_729098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729098.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728936.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728826.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728592.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727594.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727357.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726540.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724641.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724558.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_723564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723564.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723290.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E6A26ABE835B95557C082116E6202000F104A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 891735   (723239) от 24.04.2015
-
-Ирина Круг - Матёрая любовь (2015) [FLAC|Lossless]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Матёрая любовь
-02. Два одиночества
-03. Может любовь, может каприз
-04. От встречи до прощания(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0158651EF55B841E34190ADECE25D1FB5EBF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023773   (722240) от 06.06.2016
-
-Валерий Гогин и группа «Банкет» - Начало лета (1996) [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_722240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водку лей
-02. Гостиницы центральные
-03. Начало лета
-04. Амур - А мур?(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E62816FDD455293CFB16C2C1DD90FC4B98EB89
 ```
 
 https://mybot314.ru/tekegram_catalog/

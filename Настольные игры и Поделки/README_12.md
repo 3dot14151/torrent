@@ -1,3 +1,29 @@
+###  Публикация: 1269304   (221115) от 14.12.2018
+
+В.С. Рожков | Строим летающие модели (1990) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221115.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге даются основы авиамоделизма. Приводится описание несложных по конструкции моделей, которые можно изготовить из легко доступных материалов.Жанр: Сделай сам, самоделкиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238161A03B8EA3F37C30FF29E4C8D5DA43FF6C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 216120   (220486) от 07.08.2023
 
 Принты для настольной игры | Monopoly - Распечатай Монополию (2010) [PDF, DOC]
@@ -6,7 +32,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_220486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_220486.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220345.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218084.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217467.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215942.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213253.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211443.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208930.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207420.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_194758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_194758.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_194695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_194695.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_194687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_194687.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194679.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_194669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194669.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_194665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_194665.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194663.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181738.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179476.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178910.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178872.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178866.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178855.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178821.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177786.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177562.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D142322FB9EE788CA667D4077CAF8E316203074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429190   (177547) от 05.12.2020
-
-Елена Доброва | Новый год своими руками. Снежинки (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снег за окном кружит, большие красивые снежинки падают на ладони и тают. Если вы хотите сохранить эту неописуемую красоту, попробуйте сделать снежинки из бумаги или картона. Плоские снежинки с замысловатым узором можно сложить и вырезать из бумаги, как многие из нас делали в детстве. Необычно смотрятся снежинки, выполненные в технике квиллинг, или бумагокручения. (   Читать дальше...   )Жанр: Детские поделки/Досуг/ТворчествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247AA5E7FE6C99A927306B403D461862F46F6822
 ```
 
 https://mybot314.ru/tekegram_catalog/

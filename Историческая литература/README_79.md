@@ -1,3 +1,110 @@
+###  Публикация: 1420547   (332290) от 01.11.2020
+
+Александр Бушков | Остров кошмаров. Томагавки и алмазы (2020) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртая часть документального цикла «Остров кошмаров».
+
+Вопреки широко распространенному мнению, снятие скальпов – вовсе не индейская придумка. Широкий размах этой, так сказать, процедуре, дали колонизаторы из Англии. Скальп служил средством строгой отчетности и своеобразной квитанцией на получение денег. В 1720 году за каждый скальп платили до ста фунтов.
+Англичане, (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E72D47AFBF064B4BB7D4CBBDD426E5AD71DEFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420596   (332284) от 01.11.2020
+
+Валерия Черепенчук | Флаги мира. Большая иллюстрированная энциклопедия (2020) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение флагов открывает перед нами удивительный мир. За каждым государственным символом стоит долгая история: иногда – трагичная, иногда – романтическая, но никогда не скучная. Книга предлагает познакомиться с историей современных государственных флагов. Как они появились? Что означают изображения, которые они несут на себе? Как отражались на них государственные (   Читать дальше...   )Жанр: Общая история, Популярно об истории, ЭнциклопедииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2012F3EA9BF6088D1E631FBECA4DBC9897745272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886581   (329867) от 14.11.2015
+
+Книжная серия | История. География. Этнография [89 книг. Обновляемая] (2009-2015) [FB2, DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329867.jpg" />
+</div>
+
+
+###  Подробнее
+
+«История. География. Этнография» - это серия научно-популярных книг, каждая из которых совмещает в себе высокое художественное мастерство и серьёзные научные изыскания в области таких наук, как география, история и этнография. Если вы хотите расширить свои знания об этнографии, экспедициях знаменитых путешественников, истории России и народов мира, то эта увлекательная (   Читать дальше...   )Жанр: Историческая литература, Научно-популярная, География, ЭтнографияИздательство: ЛомоносовъФормат: FB2, DJVU, PDFКачество: Изначально электронное (ebook), хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0819A9189B79B50E2B527D22758F6DB3A8E4E0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956678   (329444) от 15.11.2015
+
+М. С. Друскин | Иоганн Себастьян Бах (1982) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329444.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии, представляющей собой обстоятельное исследование жизни и творчества великого немецкого композитора, анализируются значительнейшие произведения Баха, раскрыты связи его мировоззрения и творчества с прогрессивной немецкой культурой. Книга рассчитана на широкие круги музыкантов и любителей музыки.Жанр: Биографии и МемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930786210E262C8FAD3935866A8529E669B72A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956649   (329435) от 15.11.2015
 
 Лазарь Каганович | Памятные записки (2003) [DJVU]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329435.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329405.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329399.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329306.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328442.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328340.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327600.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326664.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323622.jpg" />
 </div>
 
 
@@ -247,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322028.jpg" />
 </div>
 
 
@@ -273,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322027.jpg" />
 </div>
 
 
@@ -299,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321925.jpg" />
 </div>
 
 
@@ -325,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321786.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319430.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318543.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315110.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315104.jpg" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315095.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314885.jpg" />
 </div>
 
 
@@ -514,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314026.jpg" />
 </div>
 
 
@@ -540,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312791.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312785.jpg" />
 </div>
 
 
@@ -579,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BA98B7B9A37D782B1C39027082B7C15FFA62DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422183   (312741) от 07.11.2020
-
-Томас Дерри, Тревор Уильямс | Краткая история технологий (2019) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Т. Дерри и Т. Уильямс представили блистательный рассказ о технологических достижениях человечества с древности до наших дней, уделив пристальное внимание влиянию технического прогресса на ход истории. Первая часть повествования включает историю технологий с древних времен до 1750 года. Рассказ начинается с общего исторического обзора древних цивилизаций, затем авторы (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об историиПеревод: А. А. ИльинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFA77546F93BE5F1E04ECA73D5D4E939E5F0BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260300   (312178) от 07.11.2018
-
-М. М. Смирин | Народная реформация Томаса Мюнцера и великая крестьянская война (1947) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая работа, не претендующая на охват истории всей Крестьянской войны, затрагивает одну из ее центральных проблем, которую игнорировала немецкая буржуазная историография, но без решения которой нельзя правильно понять это историческое событие.Жанр: История, политология, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2B0C851611A70F24045AB227397923489D160C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260291   (312175) от 07.11.2018
-
-Ф. Мэллали | Фашизм в Англии (1947) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Фредерика Мэллали рассказывает о прошлой и нынешней деятельности фашистских организаций в Англии. Советский читатель прочтет ее с интересом, так как до сих пор с фактами и событиями, описанными автором, можно было ознакомиться лишь по кратким газетным сообщениям. Мы узнаем, что в Англии, кичащейся своими "демократическими свободами", английские фашисты (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706408D4F007CCDCCCFAE1C5482E3B10E699431E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260244   (312045) от 07.11.2018
-
-А. Валлон | История рабства в античном мире. Греция (1936) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга, посвященная истории рабства в Древней Греции, является переводом 1 тома работы французского историка Анри Валлона «История рабства в античном мире». При переводе были сделаны некоторые сокращения, имевшие целью освободить книгу от материала, не представляющего в настоящее время научной ценности.
-
-Книга содержит интересный фактический материал, почерпнутый (   Читать дальше...   )Жанр: История, политология, экономика, правоведение, документалистика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B2F0EF8574C9E35567D9FBAEB214A838EDFE4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,231 @@
+###  Публикация: 487735   (90892) от 26.04.2012
+
+[Картинки] Фото знаменитости/группа Виа Гра и солистки
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90892.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00185473864D7D3FFC55C23554DB3A7CA561BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488059   (90717) от 25.04.2012
+
+[Иконы] Иконы древней Руси (2008)
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконы древней Руси.
+Более 300 разных икон в качестве2008
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A773CD88F4F3328EB525EB12B19362F133F47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485486   (89615) от 20.04.2012
+
+[Wallpapers] HD Pictures №26
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89615.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №26
+Название: HD Pictures №26
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794CF7DEA5107CC471F92D18B3ECEC52208BF3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485291   (89480) от 19.04.2012
+
+Классическое искусство - Картины Японская графика (коллекция) (2010) [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция различных гравюр знаменитых (и не очень) японских авторов - Хокусай, Куниёши и других.Формат: JPGРазрешение файлов: от 1154x1589 до 4545x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B185017734DF7EE9738E61B17A282AC742A001E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484896   (89310) от 18.04.2012
+
+Репродукции картин -  Мировая Живопись (2011) [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы:
+
+Барокко: Аверкамп Хендрик, Веласкес Диего, Вермеер Ян, Йорданс Якоб, Караваджо,
+Рейсдал Якоб, Рембрандт ван Рейн, Рени Гвидо, Рубенс Питер Пауль, Стен Ян
+
+Классицизм: Никола Пуссен, Жак Луи Давид, Жан Огюст Доминик Энгр, Джованни Антонио Каналетто, Джованни Батиста Тьеполо
+
+Романтизм: Уильям Блейк, Франсиско де Гойя, Эжен Делакруа, Теодор Жерико, Джон Констебл, Каспар Фридрих, Генри Фузели, Франческо Хайес, Уильям ЭттиРазрешение файлов: различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A0CA9BF54D0D81FF5B176BFE22D564FB6E5C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484758   (89289) от 18.04.2012
+
+[Живопись] Древняя Русь в картинах (2007-2008)
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы:
+
+Древняя Русь в картинах Всеволода Иванова
+
+Русь ведическая (в картинах и иллюстрациях): Альфонс Муха, Андрей Гусельников
+
+Русь ведическая: Борис Ольшанский2007-2008
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40097AC172964702D4F8BED45AFCC6F9A5DC081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484897   (89257) от 18.04.2012
+
+[Живопись] Итальянская живопись [5031 картин и фресок 282 мастера + биографии] (2011)
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охвачен огромный период с ХХIII – ХХ вв. От древнейших мастеров ещё византийской школы до Наттиса и Модильяни.
+Помимо ТИТАНОВ итальянской да и мировой живописи, таких как, Тициан Вечеллио, Микеланджело Меризи де Караваджо, Сандро Боттичелли, Рафаэль Санти, Джованни Франческо Гверчино, Анджело ди Козимо, Помпео Джироламо Батони, Себастьяно Риччи, Андреа Мантенья, Гвидо Рени, Карпаччо, Корреджо, Веронезе Паоло, Джорджоне и конечно же Леонардо да Винчи. И многие многие другие Великие мастера, чьё творчество бесценно и вечно!2011
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A2BD8B78E60DB643D41B74E6C99C56DDCF80E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482417   (88125) от 13.04.2012
+
+[Wallpapers] Нравятся! Сотня № 001 (1920х1080-2560х1600)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99B1D9D6DA53E9EC4E4F5C436AB27903713580B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482222   (87930) от 12.04.2012
 
 [Wallpapers] Indians (индейцы) wallpaper | для terras50
@@ -6,7 +234,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87930.jpg" />
 </div>
 
 
@@ -32,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86410.jpg" />
 </div>
 
 
@@ -58,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86382.jpg" />
 </div>
 
 
@@ -84,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86094.jpg" />
 </div>
 
 
@@ -114,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85750.jpg" />
 </div>
 
 
@@ -147,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85734.jpg" />
 </div>
 
 
@@ -173,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85113.jpg" />
 </div>
 
 
@@ -202,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85100.jpg" />
 </div>
 
 
@@ -228,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85096.jpg" />
 </div>
 
 
@@ -254,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84736.jpg" />
 </div>
 
 
@@ -281,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84442.jpg" />
 </div>
 
 
@@ -311,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84311.jpg" />
 </div>
 
 
@@ -337,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84102.jpg" />
 </div>
 
 
@@ -363,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83264.jpg" />
 </div>
 
 
@@ -389,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83146.jpg" />
 </div>
 
 
@@ -418,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83098.jpg" />
 </div>
 
 
@@ -450,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83093.jpg" />
 </div>
 
 
@@ -476,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82707.jpg" />
 </div>
 
 
@@ -488,233 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1930BEF26B645BB69DE28CE1CB7458BE82566982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469420   (82641) от 17.03.2012
-
-[Wallpapers] Фото знаменитости / Ирина (Шейк) Шайхлисламова
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82641.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Фото знаменитости / Ирина (Шейк) Шайхлисламова
-Название: Фото знаменитости / Ирина (Шейк) Шайхлисламова
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 600x803 - 3000x2029
-Расширение (тип) файлов: JPG
-Биография / общие сведения: Ирина (Шейк) Шайхлисламова - супермодель (фотомодель), стала «девушкой с обложки» августовского номера французского издания Paris Capitale Magazine. Ирина Шайхлисламова является лицом новых коллекций Intimissimi и Guess. Этническая татарка.
- Ирина Шайхлисламова принимала также участие в фотосъемке последнего календаря Sports Illustrated Swimsuit Edtion, которая проходила в Санкт-Петербурге.
-Дата рождения: 6 января 1986
-Место рождения: Еманжелинск, (Челябинская область), Россия
-Рост: 176 см(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B76C091231D528D5688EE8B620B114DF18B7E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468026   (82268) от 15.03.2012
-
-[Картинки] Фото знаменитости/Танита Феникс/Tanit Phoenix
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танита Феникс (Tanit Phoenix) - южноафриканская модель и актриса.Жанры: Триллер, боевик, комедия
-Феникс родилась в Дурбане, Квазулу-Натал, ЮАР, в семье ирландского и голландского происхождения. Ее отец, преподаватель квантовой механики и бывший парашютист, является потомком иммигрантов 19-го века из Ирландии.
-Танита преуспевала в различных мероприятиях, в том числе танцы, легкая атлетика, и музыка. В раннем возрасте она была зачислена в балетный класс, где прозанималась 10 лет.
-Феникс начала свою карьеру в возрасте 15 лет, снималась в рекламе. Она работала в качестве модели международной моды в Мюнхене. В сентябре 2005 года, 2006 и в 2010 году она была девушка обложки журнала «Cosmopolitan».
-Феникс начал свою актерскую карьеру в фильме «Оружейный барон» (2005) с актерами Николасом Кейджем и Джаредом Лето. В 2010 году она снялась в фильме ужасов «Висельник» с Уэсли Снайпс. В этом же году снялась в фильмах «Пропащие ребята 3: Жажда » и «Смертельная гонка 2: Франкенштейн жив». Недавно закончила сниматься в комедии «Малек» с Джоном Клизом в Южной Африке.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21965E9DBEC5C394CBF1C00C224790D1FAB1FB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465772   (81439) от 11.03.2012
-
-[Картинки] Фото знаменитости/Дита фон Тиз/Dita Von Teese
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ди́та фон Тиз (англ. Dita von Teese), настоящее имя Хизер Рене Суит англ. Heather Reene Sweet; род. 28 сентября 1972 года, Рочестер, Мичиган, США) — американская исполнительница шоу в стиле бурлеска, фотомодель и актриса.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4D0C4C917D02C3D5E3286FF9AF68756FCEABFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462481   (80826) от 08.03.2012
-
-[Картинки] Фото знаменитости/Оксана Федорова
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотографии Оксаны Федоровой
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780739BD8334C7BC5C4F3B896BA238DE71164867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462562   (80229) от 05.03.2012
-
-[Клипарт] Фото знаменитости/Анна Плетнева
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотки Анны Плетневой из группы "Винтаж"
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C69F1B9AC93FF1126F455B729C4673B529C78DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457889   (78577) от 26.02.2012
-
-Картинки - Винтажные рекламные плакаты Авто [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 490*500...700*900
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B73D0D6DA43A6698EE0CE10F0965E81BE48D9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457897   (78516) от 26.02.2012
-
-[Графика] Амазонки
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78516.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Графика] Амазонки
-Название: Амазонки
-Тип раздаваемого: Графика
-Разрешение файлов: 500*715...1920*1200
-Расширение (тип) файлов: JPG
-Количество: 263
-Скриншоты:Время раздачи: 24/7
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B435D9B2DE1EF869BD365D36DF696455884CA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457392   (78169) от 24.02.2012
-
-Обои - 65 Best Premium HD Wallpapers Pack (1920 X 1200) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев различной тематики подойдут чтобы украсить Ваш рабочий стол.Формат: JPGРазрешение файлов: 1920x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B79E6C6D292C9C26AED6FF060B82CC1A0344453
 ```
 
 https://mybot314.ru/tekegram_catalog/

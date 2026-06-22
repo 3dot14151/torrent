@@ -1,3 +1,57 @@
+###  Публикация: 518087   (645156) от 02.07.2012
+
+Святитель Григорий Богослов | Полное собрание творений [2000] [DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645156.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свои замечательные богословские творения св. Григорий получил от Церкви почетное наименование Богослова и Вселенского учителя, а за способность проникать мыслью до самых глубоких тайн веры и выражать непостижимые ее истины с прозрачной ясностью и строгой точностью, Церковь в одной из молитв называет его умом самым высоким. Проповеди его насыщены такой поэзией, что многие фразы из них были использованы (св. Иоанном Дамаскиным и другими) для праздничных песнопений. Нетленные частицы мощей св. Григория до сих пор источают дивное благоухание.Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242799635054B2B09754B0DDBF2F3763826F85D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141790   (644723) от 13.06.2017
+
+Камаль Эль Зант | Нравы мусульманина [3 книги] (2007-2010) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Нравы мусульманина» является важной и актуальной, поскольку она помогает ознакомлению с главными нравами, на основании которых мусульманин строит свои отношения как с Всевышним Аллахом, так и с людьми.
+Данный труд также достоин внимания, потому что затрагивает общечеловеческие проблемы нравственности, воспитания и духовного развития.
+Важно отметить, что материал (   Читать дальше...   )Жанр: ИсламФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F1889BFDAAB4AE1733712FE2208794518671F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141867   (644718) от 13.06.2017
 
 Сейфеддин Языджы | Основы исламских знаний. Вероучение, поклонение, нравственность [Издание 3-е, перераб., доп] (2007) [PDF]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644718.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644382.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644105.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644029.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643904.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643812.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643499.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643426.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643324.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643307.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643210.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643148.jpg" />
 </div>
 
 
@@ -333,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643078.jpg" />
 </div>
 
 
@@ -361,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643067.jpg" />
 </div>
 
 
@@ -389,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641999.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641997.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641703.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640856.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639886.jpg" />
 </div>
 
 
@@ -522,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638189.jpg" />
 </div>
 
 
@@ -550,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637668.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637573.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637471.jpg" />
 </div>
 
 
@@ -632,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637331.jpg" />
 </div>
 
 
@@ -646,58 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:818EFD9389423404740732DA0F9AF9D6C234DAB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033912   (636271) от 12.07.2016
-
-А.В. Банников и др. (сост.) | Раннехристианские жития галльских святых (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучая историю как поздней Римской империи, так и варварских королевств, мы сталкиваемся с необходимостью привлечения дополнительных источников для ликвидации лакун в наших знаниях об этом периоде. К счастью, до нас дошли многочисленные жития раннехристианских святых. Сочинения подобного рода нельзя просто отбрасывать и игнорировать при реконструкции исторических (   Читать дальше...   )Жанр: Жития, агиографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EF5D5B84E455FE59874D44A5C475E833508AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907848   (636058) от 13.06.2015
-
-Д. Сидоров | О христианских праздниках, постах и обрядах (1957) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636058.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре рассказывается о происхождении и сущности христианских праздников, постов и обрядов.Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76105444FD3F5D549DE22C1D409F4DC808EEBFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

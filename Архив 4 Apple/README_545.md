@@ -1,3 +1,58 @@
+###  Публикация: 1341846   (229402) от 29.11.2019
+
+Smultron 12.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229402.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью Smultron создавать и редактировать любой текстовый документ , начиная от веб-страницы, сценарий, список, к каждому виду текста или кода.
+Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
+По словам разработчика, при создании редактора ставилась задача снабдить программу богатой (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Peter BorgПоддерживаемая ОС: macOS X 10.14.4 или более поздняя версияЯзык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A4BE09D9C6DFE538CB1F709E7CA0B7B3262107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649564   (229396) от 28.07.2023
+
+iNet Network Scanner 2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229396.jpg" />
+</div>
+
+
+###  Подробнее
+
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © BananaGlue GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332F8BFF8A65A984E8C7315814FDBE5756B06675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649684   (229388) от 28.07.2023
 
 FSNotes 6.4.1 [Multi]
@@ -6,7 +61,7 @@ FSNotes 6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229388.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Clipboard Manager 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229364.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ NoteBurner Netflix Video Downloader 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229351.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ Fork 2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229315.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ Cisdem Data Recovery 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229306.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Nova 11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229276.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ PDF Converter Master 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229237.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229193.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Nevercenter CameraBag Photo 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229161.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ Pixelmator Pro 3.3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229122.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Nevercenter CameraBag Pro 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229121.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ Paw 3.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229107.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ PDF to EPUB Converter 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229068.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Allegorithmic Substance Designer 2019.2.3 (build 2683) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229010.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ Omni Toolbox 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228773.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ Default Folder X 6.0 b1 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228748.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ Photo Mechanic 6 v6.0 build 3954 (158b808) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228692.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ Nik Complete 2 Collection by DxO 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228618.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ This War of Mine: Final Cut (2014) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228536.jpg" />
 </div>
 
 
@@ -511,7 +566,7 @@ ProFind 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228242.jpg" />
 </div>
 
 
@@ -537,7 +592,7 @@ Cookie 6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228233.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ Drop - Color Picker 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228225.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ Postico 1.5.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228213.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ EverWeb (Standalone) 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228195.jpg" />
 </div>
 
 
@@ -635,61 +690,6 @@ EverWeb даже создает мобильные сайты, которые о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EF04E85410E4F5661208B44049E61F8A2F8E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424646   (228184) от 17.11.2020
-
-Doxillion Plus 4.51 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doxillion - один из самых стабильных, простых в использовании и всеобъемлющих конвертеров файлов мультиформатных документов.
-● Конвертируйте текстовые документы в считанные минуты после загрузки
-● Быстрый и простой процесс конвертации документов в один клик
-● Пакетный конвертер файлов для конвертации тысяч файловТип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DDD122F0DC8DEE702A02877BD796395036CC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965198   (228170) от 13.12.2015
-
-AirServer 6.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228170.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirServer – это мощное приложение для Mac, которое позволяет вести потоковую передачу или зеркалировать ваше устройство iOS, на ваш Mac. Если ваш компьютер подключен ко второму или альтернативному дисплею, такому как HDTV или проектор, ваше устройство iOS сможет использовать этот дисплей. Если устройство iOS поддерживает зеркалирование, то все, что вы видите на дисплее (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 октября 2015Разработчик: AirServerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C153FAD76EC2C5F0E7429A01E47F56EBB3A39E48
 ```
 
 https://mybot314.ru/tekegram_catalog/

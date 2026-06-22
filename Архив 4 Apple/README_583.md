@@ -1,3 +1,57 @@
+###  Публикация: 1592728   (182123) от 24.11.2022
+
+Microsoft Office 2021 for Mac LTSC 16.67 VL [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
+Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Microsoft CorporationПоддерживаемая ОС: macOS 11 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4EB5203069DBEA230780E9F4785B797F25F751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427766   (182027) от 29.11.2020
+
+Boom 3D 1.3.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom 3D является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение автоматически калибруется в соответствии с типом компьютера Mac, обеспечивая уникальное персонализированное звучание. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10.3+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8D6F58E033E434415B7B496DD1271E666BC39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427824   (181955) от 29.11.2020
 
 TablePlus 3.11.0 [En]
@@ -6,7 +60,7 @@ TablePlus 3.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181955.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Receipts 1.9.10b7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181680.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Smultron 12.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181676.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ Privatus 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181672.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ PatterNodes 2 v2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181669.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Workspaces 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181666.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ iCollections 6 v6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181657.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ BusyCal 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181653.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Drop - Color Picker 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181650.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ A Better Finder Rename 11 v11.25 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181627.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Usher 2.0 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181621.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ Dato 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181612.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ MenuBar Stats 3 v3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181598.jpg" />
 </div>
 
 
@@ -361,7 +415,7 @@ Mountain Duck 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181592.jpg" />
 </div>
 
 
@@ -390,7 +444,7 @@ JPEG Jackal 2.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181578.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ Moom 3.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181540.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ Faronics Deep Freeze 7 v7.30.220.0207 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181515.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ Wondershare Filmora Х v10.1.3.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181426.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ Sharks 3D 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181378.jpg" />
 </div>
 
 
@@ -522,7 +576,7 @@ FruitJuice - Active Battery Health and Monitoring 2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181300.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ Texpad 1.8.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180982.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ Scherlokk - Files finder 4 v4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180976.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ Comic Collector 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180974.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ Cisdem DVDBurner 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180957.jpg" />
 </div>
 
 
@@ -638,61 +692,6 @@ Cisdem DVD Burner предлагает простое и элегантное р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5612E9707250E873A855798AEA16531C8DD761A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428295   (180954) от 01.12.2020
-
-Music Collector Pro 20.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Collector позволяет автоматически каталогизировать ваши компакт-диски в базе данных. Просто вставьте компакт-диск в привод CD-ROM, отсканируйте его штрих-код или введите исполнителя и название, чтобы загрузить все данные из различных источников в Интернете. Используйте встроенную поддержку TWAIN для сканирования изображений обложек непосредственно в программу. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D55B897F691465C5DB593A7CDCFC7A0C2B77DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428129   (180951) от 01.12.2020
-
-Duplicate File Finder Pro 6.11  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180951.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrimeFile - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Drag & drop столько папок, сколько вы хотите, и нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатов файлов по категориям: изображения, видео, музыки, архивы, документы и др.. Это очень легко, чтобы увидеть, сколько места занимает каждый файл.
-
-В Pro версии (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498553E8C4AA568E80094B9B334888DC252BD907
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 965926   (988164) от 01.01.2016
+
+Пингвин нашего времени (2015) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая немка Виня одержима идеей найти своего возлюбленного Андрея, который внезапно исчез. В поисках Андрея она приезжает на Крайний Север России. Случайность ли, что на своем пути она встречает таинственного миллионера Всеволода Старыча, одержимого странными и даже опасными идеями?…Производство: Россия, Германия / X-Filme Creative Pool, ZAO Studia "F.A.F"Жанр: Комедия, ТриллерРежиссер: Штефан КромерАктеры: Люси Хайнце, Алексей Гуськов, Юрий Колокольников, Антон Пампушный, Евген Баль, Мария Семенова, Елена Ласкавая, Александр Слободяник, Анатолий Горячев, Сергей ГрековПеревод: Не требуется (русский) iTunesПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B086EB12CF6F696584D5352685AC8C7C52EF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354386   (987943) от 22.01.2020
+
+Маняшино озеро (2017) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая добрая девочка из сибирской глубинки Маняша очень рано потеряла маму и осталась с отцом Иваном. Пока несчастный вдовец целыми днями проводит на работе, Маняша ищет способ, как исполнить свою мечту — обрести материнскую любовь и заботу. И однажды в их дом приходит молодая медсестра Светлана.Производство: Россия / Кинокомпания "МЕЧТА"Жанр: ДрамаРежиссер: Андрей ГавриловАктеры: Владимир Сычев, Марина Федункив, Юлия Беретта, Иван Шаповалов, Яна Исакова, Савелий НепомнящийСубтитры: ОтсутствуютПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936472B59F92561ACC3C5DD5BB10CD47F075BFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300730   (987621) от 22.01.2020
 
 Завтрак с видом на Эльбрус (1993) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987621.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987451.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987298.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986938.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986807.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986733.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986450.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986372.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986032.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985402.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985041.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985001.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984970.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984897.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984259.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984146.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982963.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982921.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982614.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982612.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982470.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982048.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981947.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981178.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D3258F127818A010E98FD707872BA67D4F9C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 135664   (981009) от 14.01.2012
-
-Коля - Перекати Поле (2005) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта комедийная мелодрама является продолжением известного во всем мире фильма режиссера Николая Досталя "Облако-рай"!
-В новом фильме рассказана история про тех же героев. Время действия - наши дни, место действия - небольшой провинциальный городок, затерявшийся на просторах России. Когда-то случайно брошенная при свидетелях фраза заставила Колю оставить (   Читать дальше...   )Жанр: КомедияРежиссер: Николай ДостальАктеры: Андрей Жигалов Ирина Розанова Алла Клюка Сергей БаталовПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614031   (980865) от 05.02.2013
-
-Настоящая любовь (2012) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоятельный адвокат Андрей и начинающая журналистка Лена - каждый по-своему несчастлив в личной жизни. Разведенный Андрей инкогнито ищет настоящую любовь, переодеваясь в нищего, потому что убежден: деньги портят чувства. А Лена тем временем полностью разочаровалась в мужчинах. Теперь ее цель – получить хорошую работу в газете, и в поисках сенсации она решает вывести на чистую воду брачных аферистов. Но, как говорится, любовь нечаянно нагрянет …Жанр: КомедияРежиссер: Сергей ПоповПродюсер: Юрий Сапронов, Андрей СмирновАктеры: Кристина Асмус, Илья Носков, Ольга Тумайкина, Анна Ардова, Анна Уколова, Дарья Чаруша, Алексей Гришин, Виталий Хаев, Тимофей Трибунцев, Артур Ваха, Елена Галибина, Марина Барсукова, Евгений Дремин, Эвелина ВаулинаПеревод: Не требуется (Русский)Продолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA208B471C505070883E9A2705D1AB208DD2F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

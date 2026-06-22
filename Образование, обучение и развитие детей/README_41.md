@@ -1,3 +1,111 @@
+###  Публикация: 1039100   (597175) от 31.07.2016
+
+Валерий Демус (сост.) | Энциклопедический справочник. Самые необходимые научные данные и факты в одной книге (2011) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот справочник - настоящая мини-библиотека в помощь школьнику, студенту и любознательному читателю. Самые важные, интересные факты и самые свежие данные из разных областей знания изложены в доступной форме. Это издание заменит вам десятки специализированных справочников!
+
+Самые важные и интересные сведения по гуманитарным, точным и естественным наукам:
+• физика(   Читать дальше...   )Жанр: Познавательная, учебная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D535E716D8D9E5270A80B248AF03FA8CA12A175A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914669   (596498) от 03.07.2015
+
+Вальтер Флеммер | Древний Китай (2008) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китай - это не страна, а целый субконтинент, где можно встретить самые разнообразные ландшафты - пустыни и тропические леса высочайшие в мире горы и плодородные долины. Китай, прародитель азиатских цивилизаций, самая густонаселенная страна на земле, предстает перед нами от самых истоков (около 5000 г. до н.э.) до XX столетия, прежде всего, через своих императоров (   Читать дальше...   )Жанр: Книги для детей, Всемирная историяПеревод: Алла МоисеенковаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D1EF6C964DE303EAB32166676E6F4FEF6EAE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914675   (596296) от 03.07.2015
+
+Галина Шалаева | Как воспитать здорового и умного ребенка. Ваш малыш от А до Я (2010) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заглянув в содержание этой книги, вы найдёте ответ практически на любой вопрос, связанный с развитием вашего ребёнка от грудного до подросткового возраста.
+И самое главное достоинство этого уникального справочника – рекомендации и советы родителям, как вести себя со своими детьми и как научить их ориентироваться в повседневной жизни.Жанр: Здоровье, Справочники, Воспитание детейФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376A607BD18757882026D9A1F893846A37550704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150306   (595217) от 14.07.2017
+
+Евгений Мар | Что из чего (1968) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга детского писателя Е. Мара объединяет четыре ранее выходивших книжки о материалах, окружающих нас в повседневной жизни - дереве, глине, железе и воде. Иллюстрации И. Кабакова.Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDCFF54A3A8BB89ADE62C5D2D32290B84F55039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 688121   (595184) от 10.08.2013
 
 Александра Беседина | Настольная книга для девочек XXI века (2013) [FB2]
@@ -6,7 +114,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595184.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595130.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595047.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594830.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594781.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594654.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594546.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594539.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594023.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593995.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593781.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593470.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593139.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592896.jpg" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592271.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591893.jpg" />
 </div>
 
 
@@ -427,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591380.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591373.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591306.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590445.jpg" />
 </div>
 
 
@@ -533,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590443.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590406.jpg" />
 </div>
 
 
@@ -573,110 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0048C178769B3D70362C920F3B48204378102637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916780   (590344) от 09.07.2015
-
-А.П. Нечаев | Чудеса без чудес. Маленькая физика в применении к забавам (1923) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжечка моя предназначается для детей, впервые"приступающих к изучению явлении природы. Но она не имеет в виду исчерпать захваченный ею предмет в дать из физики все, что может быть и должна быть усвоено в этом возрасте. Эта книжка — не школьное пособие, она имеет в виду возбудить самодеятельность и привить интерес к эксперименту. Поэтому из огромного материала, (   Читать дальше...   )Жанр: Физика, гооволомкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3664B291B01AF113239D3A285D56C1775D0C7F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916822   (590336) от 09.07.2015
-
-И.Г. Сухин | 1200 головоломок с неповторяющимися числами (2003) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590336.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приведены новые занимательные задачи, которые помогут детям не только полюбить вычисления, но и получать по математике только пятёрки. Головоломки с неповторяющимися цифрами систематизированы, что позволит эффективно использовать их как для проведения олимпиад и праздников, так и для тренировки математического аппарата школьников. В результате ученики начальных (   Читать дальше...   )Жанр: Математика, головоломкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142A518E7DDA95DF90207A12237E0F538246BE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916772   (590332) от 09.07.2015
-
-В. Внуков | Занимательная физика на войне (1930) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прежде всего автор просит снисхождения... «Занимательная» физика, вообще должна читаться легко, а значит, пишется трудно, «занимательная» же военная физика дело совсем необычное, а потому особенно трудное. Автор рискует думать, что книжка все же заинтересует не малый круг читателей и в особенности юных читателей.Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B7131D5A7DC284E12CB6E6BAA8B54A8ACA5086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917100   (589956) от 10.07.2015
-
-А. Захаров | Звездное небо (1925) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о звездах. Для детей младшего возраста, 5-10 летЖанр: Детская образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B98026544749EBA5C16E6060C9250CF0AEADC05
 ```
 
 https://mybot314.ru/tekegram_catalog/

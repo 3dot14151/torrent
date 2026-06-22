@@ -6,7 +6,7 @@ Revostock - Book Photo Album - 64501 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228419.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227040.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225768.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225475.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Revostock - Splatter Gallery - 124133 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225045.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223923.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223593.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223404.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223307.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223172.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222327.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222023.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221997.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221942.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220643.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220423.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220032.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Pond5 - Cube Effect Photo Display [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218957.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218039.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217992.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217906.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216977.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215628.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Pond5 - Old Album Photos - 58206493 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215467.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214555.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_214249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214249.jpg" />
 </div>
 
 

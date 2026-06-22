@@ -1,3 +1,83 @@
+###  Публикация: 455352   (63021) от 14.03.2024
+
+Софья Прокофьева | Приключения жёлтого чемоданчика. Зелёная пилюля (Радиоспектакль) (2011) [MP3, Николай Куликов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63021.jpg" />
+</div>
+
+
+###  Подробнее
+
+В чемоданчике доброго детского доктора есть волшебные средства от любых недугов: конфеты для храбрости, порошок смеха, микстура антиболтина и много чего еще. Но вот беда: чемоданчик попал в чужие руки, а это может принести много бед. Мальчику Пете очень не хватает смелости, он боится ходить в кино и даже в школу, но он все равно поможет доктору найти и вернуть чудесный (   Читать дальше...   )Жанр: Сказа, приключенияВ ролях: Николай Куликов, Владимир Смирнов, Любовь Чекмарева и др.Издательство: Детское радио, Радиотеатр «Цветной» для малышейПродолжительность: 03:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FAF6E494B2D25311DFCB89D80ED3AA4BAF5F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356321   (63019) от 14.03.2024
+
+Софья Прокофьева | Лоскутик и Облако (Радиоспектакль) (2012) [MP3, Артисты Детского музыкального театра]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Радиотеатр «Цветной» для малышей.
+Сказочная повесть о трогательной девочке по имени Лоскутик и о настоящем Облаке, о том, как они победили злого короля Фонтаниуса I и его коварного приближенного Слыша. Жадный король завладел всей водой в королевстве и продает ее жителям за золотые монеты. Но однажды в его владения залетает Облако. Оно находит себе друга (   Читать дальше...   )Жанр: Русская литература для детей, сказочная повестьВ ролях: Артисты Детского музыкального театраПродолжительность: 04:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF4B5554066BD2A47011EF5A7D0C4A2214E374E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 306700   (62707) от 17.03.2024
+
+Р.И. Фраерман | Дикая собака Динго, или повесть о первой любви (Радиоспектакль) (2005) [MP3, Ия Саввина и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Повесть «Дикая собака Динго» давно вошла в золотой фонд советской детской литературы. Это лирическое, полное душевной  теплоты и света произведение о товариществе и дружбе, о нравственном взрослении подростков. Покорившая своей теплотой и искренностью не одно поколение «Дикая собака Динго, или повесть о первой любви» никого (   Читать дальше...   )Жанр: Русская литература для детей, повестьВ ролях: Ия Саввина, Олег Ефремов, Олег Табаков и др.Издательство: Гостелерадиофонд, Звуковая книгаПродолжительность: 01:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16C06451DF88536884A8C7199DD1107537431FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 397919   (62696) от 17.03.2024
 
 Юрий Коваль | Недопёсок (2009) [MP3, Регина Рейх]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62696.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62611.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62597.jpg" />
 </div>
 
 
@@ -91,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62576.jpg" />
 </div>
 
 
@@ -119,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62575.jpg" />
 </div>
 
 
@@ -148,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62524.jpg" />
 </div>
 
 
@@ -175,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62499.jpg" />
 </div>
 
 
@@ -203,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62496.jpg" />
 </div>
 
 
@@ -230,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62470.jpg" />
 </div>
 
 
@@ -257,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62392.jpg" />
 </div>
 
 
@@ -285,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62391.jpg" />
 </div>
 
 
@@ -313,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61977.jpg" />
 </div>
 
 
@@ -339,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61870.jpg" />
 </div>
 
 
@@ -365,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61766.jpg" />
 </div>
 
 
@@ -392,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61688.jpg" />
 </div>
 
 
@@ -419,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61642.jpg" />
 </div>
 
 
@@ -445,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61550.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61528.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61373.jpg" />
 </div>
 
 
@@ -529,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61351.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61348.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61329.jpg" />
 </div>
 
 
@@ -611,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61294.jpg" />
 </div>
 
 
@@ -624,92 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D6BD07D9D8C6D0B322E0F658DA65D0EF7F8FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950712   (61262) от 31.03.2024
-
-Корней Чуковский и др. | Коллекция всеми любимых сказок детства с пластинок (1949-1991) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61262.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот сборник вошли сказки «Теремок», «38 попугаев»; «Аленький цветочек», «Алиса в стране чудес» и др., оцифрованные с виниловых пластинок в исполнении советских  и российских актеров театра и кино. Чудесные, добрые, светлые сказки нашего детства с шипением, шорохом, с щелчками винила. Это прекрасная возможность познакомить детей со сказками детства их родителей.001.	38 Попугаев
-002.	38 Попугаев. А вдруг получиться
-003.	38 Попугаев. Великое закрытие
-004.	38 Попугаев. Завтра будет завтра(   Читать дальше...   )Жанр: АудиосказкаИздательство: Аудиокнига своими рукамиПродолжительность: 217:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE1682DC6889F3996884AE89890B6C307FDAF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395794   (61143) от 01.04.2024
-
-Марк Твен | Принц и нищий (2011) [MP3, Олег Жуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека приключений
-Марк Твен (1835–1910) – американский писатель.
-Роман Марка Твена «Принц и нищий» уникален, что, это сказка, но её действие происходит не в придуманном, а в самом настоящем государстве. В ней правда переплелась с вымыслом, а имена её персонажей: Генрих VIII, Эдуард VI, Мария, Елизавета  мы знаем из истории Англии. Именно Эдуард, принц (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, приключения, роман-сказкаИздательство: МедиаКнига, 1С-ПаблишингПродолжительность: 08:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8937896654240ADBFAA38C750F8FE2CC64512CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400374   (61141) от 01.04.2024
-
-Марк Твен | Том Сойер за границей (2010) [MP3, Михаил Росляков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека приключений.
-Марк Твен (1835–1910) – американский писатель.
-Приключения Тома Сойера продолжаются!
-На этот раз непоседа Том решает отправиться за границу, чтобы разбогатеть и стать независимым. Друзья Тома тоже мечтают об этом, и он быстро собирает вокруг себя желающих составить ему компанию. Итак, мальчишки отправляются в дальние странствия...Жанр: Зарубежная литература для детей, классика, повестьИздательство: МедиаКнигаПродолжительность: 04:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A968FA3EC4A86D9BAB41B778E9FC5FF20F21B55A
 ```
 
 https://mybot314.ru/tekegram_catalog/

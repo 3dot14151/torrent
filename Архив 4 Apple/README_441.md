@@ -1,3 +1,58 @@
+###  Публикация: 1420966   (331411) от 02.11.2020
+
+Find Any File (FAF) 2.1.2b6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9936813E1F1E69BAEBB508123CEFD7A21DF7B46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420973   (331408) от 02.11.2020
+
+Soulver 3 v3.4.10 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
+
+Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: Acqualia SoftwareПоддерживаемая ОС: OS X 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E4DE2241160FCDC58D72A98604B585D714AE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420810   (331365) от 02.11.2020
 
 Flashcard Hero 3.1.2 [En]
@@ -6,7 +61,7 @@ Flashcard Hero 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331365.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ App Tamer 2 v2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331359.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ MiniTube 3.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331281.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Serial Box 11.2020 + iSerial Reader 2.0.24 + SerialSeeker 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331274.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ dBpoweramp Music Converter 17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331272.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Elmedia Player Pro 7.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331198.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ Divvy 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331055.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ IP Scanner Pro 3.41.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330279.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ Cookie 4.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330275.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ CleanApp 5.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330201.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ iMazing 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330178.jpg" />
 </div>
 
 
@@ -307,7 +362,7 @@ PDF Expert 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329396.jpg" />
 </div>
 
 
@@ -336,7 +391,7 @@ Bitdefender Antivirus 4.0.0 (10079) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329168.jpg" />
 </div>
 
 
@@ -363,7 +418,7 @@ Sketch 3.4.2 (15857) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328276.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ BlueHarvest 6.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327557.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ Downie 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327486.jpg" />
 </div>
 
 
@@ -447,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326713.jpg" />
 </div>
 
 
@@ -473,7 +528,7 @@ iPulse 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326706.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326646.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ Blocs 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326596.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ Path Finder 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326590.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ On1 Photo 10 (10.0.0.2241) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326468.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ SketchUp Pro 2016 (16.0.19913) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326307.jpg" />
 </div>
 
 
@@ -633,7 +688,7 @@ Alfred Powerpack 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325787.jpg" />
 </div>
 
 
@@ -646,61 +701,6 @@ Alfred Powerpack 2.8.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E37520D803D5635EA923D42D3ED746DBFD7EDB3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957986   (325738) от 19.11.2015
-
-Эверест / Everest (2015) WEB-DLRip [576p] iPad
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эверест — великая неприступная гора, покорить вершину которой мечтают многие профессиональные альпинисты. Одна из экспедиций на ее вершину закончилась настоящей трагедией, однако этот факт не останавливает отважных альпинистов. Опытный инструктор Роб Холл, собрав группу из лучших альпинистов, собирается совершить восхождение на самую высокую вершину планеты. Все (   Читать дальше...   )Производство: США, Великобритания, ИсландияЖанр: Триллер, драма, приключения, биография, историяРежиссер: Бальтасар КормакурАктеры: Джейсон Кларк, Джош Бролин, Джейк Джилленхол, Сэм Уортингтон, Джон Хоукс, Майкл Келли, Ингвар Эггерт Сигюрдссон, Кира Найтли, Эмили Уотсон, Робин РайтПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B048E0BA0304BF8808BE49B4509DE429954AD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958023   (325691) от 19.11.2015
-
-Adele - 25 (2015) [AAC|256 кб/с]<Indie, Pop>
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hello
-2. Send My Love (To Your New Lover)
-3. I Miss You
-4. When We Were Young(   Читать дальше...   )Жанр: Indie, PopПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9603A09A4E7405A87256E62A8801251FEC0342
 ```
 
 https://mybot314.ru/tekegram_catalog/

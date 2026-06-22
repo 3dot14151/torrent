@@ -1,3 +1,29 @@
+###  Публикация: 1144900   (623774) от 24.06.2017
+
+BBC: Веллингтон - железный герцог без маски / Wellington: The Iron Duke Unmasked (2015) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герцог Веллингтон был самым известным британцем в первой половине 19-го века. Его победа над Наполеоном при Ватерлоо в 1815 году изменила ход истории. Стальной взгляд, худощавое лицо, для следующих поколений он стал олицетворять саму суть Британии. Генерал, политик, любовник, аутсайдер - в этой программе мы узнаем, что герой Ватерлоо был гораздо более сложным человеком, (   Читать дальше...   )Производство: Великобритания, Blakeway Production for BBCЖанр: Документальный, история, биографическийРежиссер: Ричард СандерсПеревод: Двуголосый закадровый, профессиональныйСубтитры: английскиеПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1615C537417DAAD627A4AFCECCB3F8AED3517FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 722539   (623201) от 19.06.2015
 
 BBC. Самая дикая мечта. Покорение Эвереста / The Wildest Dream. Conquest of Everest (2010) HDTVRip [H.264/720p]
@@ -6,7 +32,7 @@ BBC. Самая дикая мечта. Покорение Эвереста / The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623201.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Амазонка с Брюсом Перри / Amazon with Bruce Parry (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622535.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620777.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Выдающиеся женщины ХХ столетия. Агата Кр�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620695.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Выдающиеся женщины ХХ столетия. Одри Хеп�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620546.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618734.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC: Выдающиеся женщины ХХ столетия. Жозефина
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616884.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613309.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC. История Жизни / Life Story (1-6 серии из 6)  (2014) BDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612350.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC. Происхождение человека / Origins of Us (2011) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612054.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC. В краю муссонов: Потоп / Wonders of the Monsoon: Deluge (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610563.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTV [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607520.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ BBC. Большой Барьерный риф / Great Barrier Reef (3 серии
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607065.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606710.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606330.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ BBC: История хирургии. Кровоточащие сердца [2 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605430.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ BBC: Восхождение женщины / The Ascent of Woman (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603177.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ BBC: Век природы / The Age of Nature (2020) HDTVRip [H.264/720p] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602868.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602479.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ BBC: Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602245.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ BBC: Первобытная Америка / BBC: Wild New World (2002) DVDRip (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599430.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596970.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ BBC. Horizon: В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595702.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ BBC: Выдающиеся женщины ХХ столетия. Индира Г�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595581.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ BBC: Выдающиеся женщины ХХ столетия. Коко Шан�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595457.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ BBC: Выдающиеся женщины ХХ столетия. Коко Шан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D888F35DB365BF8E1527CC8EB6608EF34304FDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916119   (591335) от 07.07.2015
-
-BBC: Зараженный. Жизнь с паразитами / Unfested! Living With Parasites (2014) SATRip ("Видеофильм ТВ")
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паразиты. У большинства людей они просто вызывают омерзение. Даже слово - паразит - оскорбление. Может паразиты и отвратительны, но для Майкла Мосли они уникальны. Их жизненный цикл поразителен. Мало кто на Земле сравнится с ними по умению приспосабливаться. Чтобы больше узнать об этих удивительных созданиях, Майкл сознательно заразит себя различными видами паразитов, (   Читать дальше...   )Производство: Великобритания, BBC, Science ProductionЖанр: ДокументальныйРежиссер: Натан УильямсПеревод: Одноголосый закадровый, профессиональный (Фильм озвучен компанией "Видеофильм ТВ")Продолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E940A4D4C5AA09B69EFE8FECE303E5A4231D26
 ```
 
 https://mybot314.ru/tekegram_catalog/

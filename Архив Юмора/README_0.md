@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020445.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020429.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comedy Баттл (23.04.2021) WEBRip [H.264/720p-LQ] (сезон 11, выпус
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018766.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Comedy Баттл (23.04.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018218.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comedy Баттл (30.04.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018207.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Comedy Баттл (07.05.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016901.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Comedy Баттл (21.05.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014661.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Comedy Баттл (28.05.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013502.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012104.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Comedy Баттл (11.06.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011311.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Comedy Баттл (18.06.2021) WEB-DL [H.264/1080p-LQ] (сезон 11, выпу�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010295.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010130.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009942.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009922.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000096.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999286.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997914.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995971.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988323.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988318.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988256.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988224.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987469.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987245.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987157.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Comedy Баттл. Новый сезон (24.01.2020) WEB-DL [H.264/1080p-LQ] (�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985957.jpg" />
 </div>
 
 

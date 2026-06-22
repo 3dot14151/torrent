@@ -1,3 +1,32 @@
+###  Публикация: 1289784   (684131) от 17.03.2019
+
+Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Одиночная смешанная эстафета. Супермикст (2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684131.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 марта 2019 года, четверг. 19:10 МСК
+53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
+Одиночная смешанная эстафета. Супермикст
+Стадион:  Национальная биатлонная Арена "Эстерсунд" (Эстерсунд, Швеция)Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F843CA4F6AAB9C641B280FCB3259C3BE44C21517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289793   (684126) от 17.03.2019
 
 Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Одиночная смешанная эстафета. Супермикст (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684126.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684120.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683988.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683986.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683985.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683848.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683843.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683814.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683802.jpg" />
 </div>
 
 
@@ -262,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683711.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683699.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683564.jpg" />
 </div>
 
 
@@ -341,7 +370,7 @@ NG: Кёльнский Собор / Cologne Cathedral (2012) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683443.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683133.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683130.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682762.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682744.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682730.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682724.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682721.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682720.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682650.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682642.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682628.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682603.jpg" />
 </div>
 
 
@@ -697,35 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:374B5A148BCF052218D94D30CC63043720A4C9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029527   (682584) от 26.06.2016
-
-Футбол. Чемпионат Европы 2016. 1/8 финала. Франция - Ирландия (26.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682584.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 июня 2016, воскресенье. 16:00 МСК
-1/8 финала
-
-Стадион: Стад де Люмьер (Лион, Франция) , 56 279 зрителей (95 % при вместимости 59 500)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Денис Казанский, Юрий Розанов)Продолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDC59B6769A0D27A963C7841E101A397FA80970
 ```
 
 https://mybot314.ru/tekegram_catalog/

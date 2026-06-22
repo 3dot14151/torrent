@@ -1,3 +1,56 @@
+###  Публикация: 1341877   (227293) от 30.11.2019
+
+Meta 1.9.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
+С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2019Разработчик: Benjamin JaegerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1594F89DDF587AE5DFA1B744E4090E24188DDCDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342106   (227285) от 30.11.2019
+
+Audirvana 3.5.28 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B66A79A1AC2975D3AFBF8DFECB7E078812247D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424559   (227244) от 17.11.2020
 
 NetSpot PRO Wi-Fi Reporter 2.13.1009  [Multi]
@@ -6,7 +59,7 @@ NetSpot PRO Wi-Fi Reporter 2.13.1009  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227244.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Luminar 4  v4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227208.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ DVDFab All-In-one 11.0.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227165.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ iStat Menus 6 v6.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227042.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Surviving Mars - Gagarin Patch v3 (25505) (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227017.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Codepoint for Mac 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226949.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ SponsorBlock for YouTube 5.4.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226864.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ DaisyDisk 4.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226858.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Colibri 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226857.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ PhotosRevive 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226843.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Movavi Video Editor Plus 2020 v20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226839.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226835.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ AI Transcription 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226827.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ System Dashboard Pro 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226810.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Ghost Buster Pro 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226793.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Stats 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226759.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ SketchUp Pro 2015 (15.2.686) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226670.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ Permute 3 v3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226572.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Adobe Media Encoder 2020 14.0.0.556 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226570.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Topaz Plugins Bundle (upd 19.2014) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226547.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ SnapMotion Unlimited 5.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226500.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ Permute 3 v.3.10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226491.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ Downie 4 v.4.6.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226453.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ Magic Disk Cleaner 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226428.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ Magic Disk Cleaner находит и удаляет временные файл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53B1671D6CEE269C28D10A4EE345AA26873AF3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268527   (226409) от 11.12.2018
-
-Wondershare Filmora 9.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3C8DDB57EB5C4900B1E8784E0A7ED6DF6F7058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424897   (226252) от 18.11.2020
-
-MacCleanse 9.0.2 Pre-Release [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для комплексной очистки кэша, удаления лог-файлов и очистки системы от мусора. MacCleanse в считанные минуты проделает все операции, на которые бы потребовалось несколько часов ручной работы. Она умеет удалять приложения и неиспользуемые языковые пакеты, очищать кэш, удалять лог файлы и cookies, стирать историю посещенных веб-страниц, находить и удалять старые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43E2FE53EC889AC86B5B96D9E56D1E78965EF01
 ```
 
 https://mybot314.ru/tekegram_catalog/

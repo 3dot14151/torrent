@@ -1,3 +1,58 @@
+###  Публикация: 622299   (960464) от 22.02.2013
+
+"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Blue
+02. An Universe Is In A Pocket
+03. Autumn
+04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622058   (960319) от 22.02.2013
+
+Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979703   (958192) от 27.01.2016
 
 ABBA – Number Ones (2006) DVDRip
@@ -6,7 +61,7 @@ ABBA – Number Ones (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958192.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957286.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957219.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957198.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Eruption - One Way Ticket (1979) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956547.jpg" />
 </div>
 
 
@@ -148,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955877.jpg" />
 </div>
 
 
@@ -177,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955675.jpg" />
 </div>
 
 
@@ -206,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955554.jpg" />
 </div>
 
 
@@ -235,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955512.jpg" />
 </div>
 
 
@@ -264,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955066.jpg" />
 </div>
 
 
@@ -290,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955042.jpg" />
 </div>
 
 
@@ -319,7 +374,7 @@ VA - Зимний марафон № 222: Праздничный Зимний Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954431.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951601.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music En
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
 </div>
 
 
@@ -435,7 +490,7 @@ VA – Fetenhits: The Real Classics (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948978.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948355.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ Sade – Life Promise Pride Love (1993) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948132.jpg" />
 </div>
 
 
@@ -548,7 +603,7 @@ Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947991.jpg" />
 </div>
 
 
@@ -577,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947732.jpg" />
 </div>
 
 
@@ -606,7 +661,7 @@ VA - Зимний марафон № 223: Презент Новинок Росс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946554.jpg" />
 </div>
 
 
@@ -635,7 +690,7 @@ The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945685.jpg" />
 </div>
 
 
@@ -662,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945568.jpg" />
 </div>
 
 
@@ -675,65 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C6F9FB3B323DA6F013E349C76E403F0A95B7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983368   (943427) от 06.02.2016
-
-Глюкоза – Энциклопедия. Том 1 (2004) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ненавижу
-02. Невеста
-03. Глюк'Oza Nostra
-04. Ой, ойЖанр: EuropopПеревод: ОтсутствуетПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689848B9F82886E38128E3311093DEDA5ACCD319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982444   (943261) от 06.02.2016
-
-VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипы собирались и конвертировались специально в авто, на 2DIN автомагнитолу.
-Представлены практически все жанры.Коллекция легко редактируется выделением ненужного и кнопочкой DEL001 2 Brothers - Dreams
-002 2 Unlimited - Let The Beat
-003 2 Unlimited-No Limit
-004 2CELLOS - They Don't Care About Us(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 50:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCADBF0F686666BA89BA7FEA5A0C00F291D3BABA
 ```
 
 https://mybot314.ru/tekegram_catalog/

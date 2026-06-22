@@ -1,3 +1,55 @@
+###  Публикация: 1573001   (417100) от 29.08.2022
+
+OmniPlayer Pro - Media Player 2.0.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417100.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD179736311E7A73F3F01C52AF61B1C236A473B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572998   (417099) от 29.08.2022
+
+SiteSucker Pro 5.0.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417099.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2022Разработчик: © 2021 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4752F661383B9B52A77FCAECE0E53197CD1DB019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573093   (417095) от 29.08.2022
 
 Find Any File (FAF) 2.3.3b17 [Multi]
@@ -6,7 +58,7 @@ Find Any File (FAF) 2.3.3b17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417095.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Copied 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417039.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ iMazing 2.4.2 (7986) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417020.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Alfred PowerPack 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416904.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Athentech Perfectly Clear Complete 3.8.0.1665 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416903.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ Alfred Powerpack 4.0.4.1110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416901.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ Music Tag Editor Pro 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416886.jpg" />
 </div>
 
 
@@ -201,7 +253,7 @@ Infuse PRO 7 v.7.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416885.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ QLab 4 v.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416879.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ Adobe InCopy 2022 17.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416877.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ PhotoSweeper Х 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416741.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ Geekbench 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416728.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ Grids for Instagram 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416726.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ Wondershare Filmora 11 v.11.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416695.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ TG Pro (Temperature Gauge Pro) 2.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416691.jpg" />
 </div>
 
 
@@ -415,7 +467,7 @@ MediaHuman Youtube Downloader for Mac 3.9.9.74 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416687.jpg" />
 </div>
 
 
@@ -444,7 +496,7 @@ TechSmith Camtasia 2022 Studio 2022.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416685.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ Wondershare PDFelement Pro OCR 9.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416681.jpg" />
 </div>
 
 
@@ -496,7 +548,7 @@ Flowstate 1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416621.jpg" />
 </div>
 
 
@@ -525,7 +577,7 @@ Carbon Copy Cloner 5.1.11 (5795) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416565.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ DxO PhotoLab 2 ELITE Edition 2.3.1.43 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416563.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ PlistEdit Pro 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416536.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Wondershare Recoverit 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416505.jpg" />
 </div>
 
 
@@ -636,7 +688,7 @@ ForkLift 3.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416371.jpg" />
 </div>
 
 
@@ -648,61 +700,6 @@ ForkLift – это альтернативный файловый менедже
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA7DEC57D0B58CFBCF9549EF944F6822FBA384A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324810   (416368) от 13.09.2019
-
-Reeder 4.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа чтения новостей для Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Silvio RizziПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA5034DA49A5EA868673EA3222057833AF3AAE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065952   (416346) от 24.10.2016
-
-Firetask - Project-oriented GTD Task Management 3.8.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firetask. GTD-менеджер с приятным интерфейсом
-Грамотное планирование является если не гарантом успешности, то, как минимум, эффективным средством достижения хорошего результата в любом начинании. Сегодня мы расскажем еще об одном таком менеджере, который больше ориентирован на работу с проектами и носит название Firetask.
-
-Одно из основных отличий Firetask от других (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 октября 2016Разработчик: Gerald AquilaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA511151D23A077737D1E0569B346EB9E272EF1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

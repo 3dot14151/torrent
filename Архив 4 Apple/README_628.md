@@ -1,3 +1,57 @@
+###  Публикация: 1674409   (161452) от 05.11.2023
+
+DxO PhotoLab 6 ELITE Edition 6.10.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD00181895FCB98434A45AC8EEAD854CD67DFE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433461   (161451) от 20.12.2020
+
+Overlay 3.70 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамка, которая позволяет полупрозрачно отображать изображение или даже PDF перед всем файлом. Приложение позволяет вам с легкостью копировать, отслеживать или сравнивать рисунки, изображения и документы, поскольку вы можете заблокировать рамку и сделать ее без помех при помощи жестов мыши.
+Это прозрачное наложение изображения или документа на экране, по которому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Jiulong ZhaoПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0F8DDC7B4D7B6EDEB8A8C807AA6702EAE7401A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433486   (161447) от 20.12.2020
 
 DiskCatalogMaker 8.3 [Multi/Ru]
@@ -6,7 +60,7 @@ DiskCatalogMaker 8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161447.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ SponsorBlock for YouTube 5.4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161426.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Separation Studio 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161413.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Wondershare Recoverit for Mac 12.0.17.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161412.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ EverWeb (Standalone) 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161410.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ djay - DJ App & AI Mixer 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161395.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ AudioFinder 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161392.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Sketch Fashion 1.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161387.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Algoriddim Neural Mix Pro 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161386.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ DxO PhotoLab 6 ELITE Edition 6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161368.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ WidsMob AI Retoucher 3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161366.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ Mactracker 7.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161308.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ PhotoSweeper X 3.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161291.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ Photos Exif Editor 2.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161280.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Rhinoceros 7 v.7.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161236.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ Pixelmator Pro 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161204.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ Author 8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161202.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ Diagrams 2.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161185.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ DoubleTake 2.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161181.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ SnapMotion Unlimited 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161166.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ Piezo 1.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161162.jpg" />
 </div>
 
 
@@ -573,7 +627,7 @@ Note Studio 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161154.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161153.jpg" />
 </div>
 
 
@@ -628,7 +682,7 @@ Meta 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161136.jpg" />
 </div>
 
 
@@ -640,58 +694,6 @@ Meta поможет Вам управлять постоянно растуще�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B131FC549AB6FCF81FB2F4E6510820E2E338FB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518182   (161086) от 18.12.2021
-
-Permute 3 v3.7.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2021Разработчик: © 2021 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB98DEC9AEA06A3F02297D0E307D569F7130A471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518215   (161082) от 18.12.2021
-
-Clearview X 3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая в использовании утилита для чтения электронных книг, оснащенная библиотечной полкой, поддерживает популярные форматы электронных книг, такие как PDF, EPUB (без DRM), CHM, MOBI, FB2 и комиксы (CBR, CBZ). Вы можете делать аннотации, вставлять закладки и выполнять свободный поиск, а также получать доступ к своим заметкам, закладкам и коллекциям книг на нескольких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: © 2012-2021 Canoe SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C975D1FED5F7595668ED79CDEB42361A1444AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

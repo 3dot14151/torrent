@@ -1,3 +1,81 @@
+###  Публикация: 1645402   (209390) от 09.07.2023
+
+Бенедикт Спиноза | Этика (2011) [MP3, Игорь Мурашко]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бенедикт Спиноза (1632-1677) - один из величайших философов-рационалистов. Его сочинения составляют эпоху в истории европейской мысли, и их изучение стало необходимым моментом всех учебных курсов по метафизике. Характерной чертой трактатов Спинозы является строгая последовательность мысли и четкая организация текста. Идеи Спинозы, особенно его центрального произведения, (   Читать дальше...   )Жанр: ФилософияИздательство: Нигде не купишПродолжительность: 15:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1142F745C3DC2713FB3FEFCAF854C78B6AA98AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645583   (209323) от 10.07.2023
+
+Джон Бергер | Искусство видеть (2015) [MP3, Владимир Левашев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых обсуждаемых и влиятельных книг об искусстве, когда либо изданных в мире. Она написана по мотивам знаменитого фильма BBC и впервые была опубликована вслед за его премьерным показом в 1972 году. В том же году критик Sunday Times писал: «Бергер не просто открывает нам глаза на то, как мы видим произведения изобразительного искусства, он почти наверняка (   Читать дальше...   )Жанр: изобразительное искусство, история искусства, культурологияПеревод: Eвгения ШрагаЯзык озвучки: русскийИздательство: ВИМБОПродолжительность: 02:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A4CAF0FF6C6446A6FF68085AEA7CACDDAB092E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646677   (208845) от 15.07.2023
+
+Николай Константинович Рерих | Агни-йога (2007) [MP3, Николай Савицкий]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208845.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Агни-йога» [1929] – одна из книг Живой Этики, в которой Николай Константинович Рерих передаёт человечеству учение Великих Мудрецов – тайное мистическое искусство слияния с Высшими Силами, искусство обретения Себя в Сущем и Божественного в Себе. Это уникальный сплав человеческих исканий и духовной мудрости Высших Откровений, синтез мировых религий и эзотерических (   Читать дальше...   )Жанр: йога, эзотерика / оккультизмИздательство: АРДИСПродолжительность: 13:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F5951B8CF5C7C506944F4AC6AA6F0AAE37AFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608360   (208664) от 30.01.2023
 
 Светлана Сосновская | Секс Академия с Светланой Сосновской (Подкаст) (2020) [MP3, Светлана Сосновская]
@@ -6,7 +84,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208664.jpg" />
 </div>
 
 
@@ -24,32 +102,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647379   (208617) от 18.07.2023
-
-Всеволод Коршунов | Призвание: режиссёр. Беседы с режиссёрами российского кино (2022) [MP3, Павел Корицкий, Агния Егошина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_208617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московская школа кино и издательство Бомбора представляют! Книга «Призвание режиссёр. Беседы с режиссёрами российского кино» - это настоящий калейдоскоп современного отечественного кино. Киновед Всеволод Коршунов встретился с двенадцатью выдающимися режиссерами нашего времени и поговорил с ними об искусстве, ремесле и индустрии в целом. Каждый из них режиссер, но (   Читать дальше...   )Жанр: кинематограф, режиссураИздательство: БОМБОРАПродолжительность: 05:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F47F758EE16B55E65AF63CCBFBBF9D7C54205C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648009   (208322) от 21.07.2023
 
 Нагиса Тацуми | Ничего лишнего (2020) [MP3, Алевтина Пугач]
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208322.jpg" />
 </div>
 
 
@@ -76,35 +128,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653554   (205939) от 18.08.2023
-
-Иссэт Котельникова | Основной курс гадания на Таро (Школа Таро Врата Изиды 2012) [MP3, Иссэт Котельникова, Андрей Карна Котельников]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_205939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс из 10 блоков по 5 уроков, формат аудио записи
-Традиция Папюса
-
-Основной обучающий курс гадания на Таро сочетает в себе и философскую и предсказательную систему. Преподаватели школы доступным языком объясняют эзотерические принципы и законы вселенной, символически зашифрованные в каждом аркане, и обучают практическому использованию карт для диагностики различных (   Читать дальше...   )Жанр: Карты Таро, эзотерикаИздательство: Школа Таро Врата ИзидыПродолжительность: 109:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4321DAEB78AE5E8E6F3C80111ED3BE89CBD2B825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654495   (205758) от 21.08.2023
 
 Кэти Мари Уэйланд | Архитектура сюжета. Как создать запоминающуюся историю (2021) [MP3, Мария Ермакова]
@@ -113,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205758.jpg" />
 </div>
 
 
@@ -139,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205583.jpg" />
 </div>
 
 
@@ -166,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205478.jpg" />
 </div>
 
 
@@ -192,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204993.jpg" />
 </div>
 
 
@@ -219,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204285.jpg" />
 </div>
 
 
@@ -245,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204137.jpg" />
 </div>
 
 
@@ -271,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203666.jpg" />
 </div>
 
 
@@ -297,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203130.jpg" />
 </div>
 
 
@@ -323,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202408.jpg" />
 </div>
 
 
@@ -350,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202407.jpg" />
 </div>
 
 
@@ -376,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200472.jpg" />
 </div>
 
 
@@ -402,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200046.jpg" />
 </div>
 
 
@@ -428,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199994.jpg" />
 </div>
 
 
@@ -454,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198779.jpg" />
 </div>
 
 
@@ -480,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196539.jpg" />
 </div>
 
 
@@ -508,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196228.jpg" />
 </div>
 
 
@@ -534,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195960.jpg" />
 </div>
 
 
@@ -561,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193964.jpg" />
 </div>
 
 
@@ -590,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193407.jpg" />
 </div>
 
 
@@ -619,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193280.jpg" />
 </div>
 
 
@@ -645,7 +668,7 @@ Drew Hernandez | Drew Hernandez Podcast (2023) [OPUS] [EN]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193039.jpg" />
 </div>
 
 
@@ -659,32 +682,6 @@ Drew Hernandez ведет свою аудиопередачу два раза в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:992647E725EEC1B8BC14A6B0C80CC61BB30EF964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587622   (192630) от 31.10.2022
-
-Элизабет Маршалл Томас | Собаки и тайны, которые они скрывают. Легендарный бестселлер о сознании, поведении и привычках наших питомцев (2022) [MP3, Дина Пятро Дабришюте]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему собаки разных размеров по-разному относятся друг к другу? В чем реальная суть словосочетания «метить территорию» на собачьем языке? Что делает питомец, когда хозяина нет рядом? На эти и многие другие вопросы Элизабет Маршалл отвечает и как ученый, и как собаковод.Жанр: Домашние животныеПродолжительность: 03:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6647F814A3EA920BBC227CBACEB92F078D87EB3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

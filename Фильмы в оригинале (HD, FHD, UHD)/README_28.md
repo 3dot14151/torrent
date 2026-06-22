@@ -1,3 +1,133 @@
+###  Публикация: 1141435   (648247) от 11.06.2017
+
+Сердце дракона 4 / Dragonheart: Battle for the Heartfire (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король Гарет умирает, что теперь будет с драконом, отдавшим ему часть своего сердца? Станут ли потомки короля достойными продолжателями его славных дел, и какой дар будет у каждого из них?Производство: США, Castel Film Romania, Universal 1440 EntertainmentЖанр: ФэнтезиРежиссер: Патрик СиверсенАктеры: Патрик Стюарт, Том Рис Харрис, Джессамин-Блисс Белл, Тэмзин Мёрчант, Андре Эриксен, Ричард Кордери, Мартин Хатсон, Делрой Браун, Тёрло Конвери, Льюис Маккиннон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7337BC19F9D05FA66422565A07C35D7C3F68C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227361   (646489) от 26.05.2018
+
+Невидимка / In Darkness (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646489.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Девушка в темноте», как называют слепую Софию, становится невольным свидетелем убийства дочери опасного международного преступника. Но несмотря на слепоту, София не так беззащитна, как считают мафия и спецслужбы.Производство: Великобритания, США / 42 SeeЖанр: ТриллерРежиссер: Энтони БирнАктеры: Натали Дормер, Эмили Ратаковски, Эд Скрейн, Джоэли Ричардсон, Джеймс Космо, Нил Мэскелл, Эмбер Андерсон, Ян Бейвут, Бернард Коллако, Kim Adis ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E787FDB01F84D2FF8C5CF806926B1966B5C0B995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142105   (646401) от 12.06.2017
+
+Челюсть / Jawbone (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страдающий от алкоголизма боксер, оставшись без жилья предпринимает последний рывок, решаясь на бой без правил, который определит - вернется ли он к нормальной жизни и вступит в ААА, или скатится на самое дно и умрет.Производство: ВеликобританияЖанр: боевик, драма, спортРежиссер: Томас К. НэпперАктеры: Иэн МакШейн, Рэй Уинстон, Майкл Смайли, Джонни Харрис, Люк Дж.И. Смит, Анна Уилсон-Холл, Эрнест Вернон, Ли Лэтэм, Хаки Али, Кёрсти ШеннонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570E2A757054734B8C7EE1C4185E8327A028D5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227354   (646288) от 26.05.2018
+
+Мир будущего / Future World (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек, живущий в постапокалиптическом мире, вынужден отправиться в рискованное путешествие в мрачный и опасный мир Пустоши, чтобы отыскать лекарство для больной матери.Производство: США, AMBI Group, Black Sparrow Films, Dark Rabbit ProductionsЖанр: ФантастикаРежиссер: Джеймс Франко, Брюс Тьерри ЧунгАктеры: Джеймс Франко, Сьюки Уотерхаус, Джеффри Уолберг, Маргарита Левиева, Снуп Догг, Твин Шадоу, Метод Мэн, Люси Лью, Милла Йовович, Кармен Ардженциано ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E84881F0918EA2DDCF0B6BC35F27200ACDB82D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142083   (646205) от 12.06.2017
+
+Сердце дракона 4 / Dragonheart: Battle for the Heartfire  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король Гарет умирает, что теперь будет с драконом, отдавшим ему часть своего сердца? Станут ли потомки короля достойными продолжателями его славных дел, и какой дар будет у каждого из них?Производство: СШАЖанр: фэнтезиРежиссер: Патрик СиверсенАктеры: Патрик Стюарт, Том Рис Харрис,  Тэмзин Мёрчант, Андре Эриксен, Ричард Кордери, Мартин Хатсон, Делрой Браун, Тёрло Конвери,  Марте Кристенсен, Орхан ГамстПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E916C5E59424EBC44AD73CF542C1A7EF84DB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142097   (646191) от 12.06.2017
 
 Высота / Altitude  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646191.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644590.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644479.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644345.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644267.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644265.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644263.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643367.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643228.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642764.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642492.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642455.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640623.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639307.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639176.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ Oats: Volume 1 (2018) WEB-DL [H.264/1080p-LQ] [EN]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639075.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637763.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637291.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636948.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636930.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636823.jpg" />
 </div>
 
 
@@ -539,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6674232BAA30DA640E0D08B366A58069E87B6B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908155   (635580) от 13.06.2015
-
-Голодные сердца / Hungry Hearts  (2014) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волею судеб молодые люди Джуди и Мина оказались в одном месте в одно время. Каждый из них приехал в самый удивительный район Нью-Йорка, Бруклин. Он вдохновил их красотой своих каменных джунглей. Чтобы отдохнуть, а затем вновь продолжить путешествие, они зашли в небольшое кафе, где и познакомились. Они влюбились друг в друга с первого взгляда и больше не захотели (   Читать дальше...   )Производство: Италия, США, Wildside, Rai Cinema, Ministero per i Beni e le Attività Culturali (MiBAC)Жанр: триллер, драмаРежиссер: Саверио КостанзоАктеры: Адам Драйвер, Альба Рорвахер, Роберта Максвелл, Аль Роффе, Гейша Отеро,  Джейк Уэбер, Дэвид Аарон Бэйкер, Натали Голд, Виктор Уильямс, Кристина Дж. Хюи, Джинджер КернсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D98FF8F71A53883190DE2ED31514B9D6622243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143343   (634662) от 18.06.2017
-
-Песня за песней / Song to Song (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о двух пересекающихся любовных треугольниках. Это история о сексуальной одержимости и предательстве на фоне музыкальной сцены в Остине, штат Техас.Производство: США, Buckeye Pictures, FilmNation Entertainment, Waypoint EntertainmentЖанр: Драма, Музыкальный, МелодрамаРежиссер: Терренс МаликАктеры: Натали Портман, Майкл Фассбендер, Райан Гослинг, Руни Мара, Кейт Бланшетт, Холли Хантер, Беренис Марло, Вэл Килмер, Люкке Ли, Оливия Грэйс Эпплгейт ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E222E15CAC396AD31D79DE0221137D3AD3A7B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034835   (632378) от 14.07.2016
-
-Преступник / Criminal  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632378.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последней отчаянной попытке остановить катастрофу мирового масштаба генетики осуществляют невероятную операцию по вживлению воспоминаний и умений погибшего оперативника ЦРУ в тело опасного заключенного с надеждой, что тот доведет до конца прерванную миссию агента.Производство: Великобритания, США, BenderSpink, Campbell Grobman Films, Lionsgate, Millennium FilmsЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Ариэль ВроменАктеры: Кевин Костнер, Гари Олдман, Томми Ли Джонс, Райан Рейнольдс, Элис Ив, Галь Гадот, Хорди Молья, Майкл Питт, Амори Ноласко, Антье Трауэ, Скотт Эдкинс, Лара ДэкароПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7329D4C441030DAA6ABF2C76F52133B31E40DA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034883   (632259) от 14.07.2016
-
-Преступник / Criminal  (2016) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последней отчаянной попытке остановить катастрофу мирового масштаба генетики осуществляют невероятную операцию по вживлению воспоминаний и умений погибшего оперативника ЦРУ в тело опасного заключенного с надеждой, что тот доведет до конца прерванную миссию агента.Производство: Великобритания, США, BenderSpink, Campbell Grobman Films, Lionsgate, Millennium FilmsЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Ариэль ВроменАктеры: Кевин Костнер, Гари Олдман, Томми Ли Джонс, Райан Рейнольдс, Элис Ив, Галь Гадот, Хорди Молья, Майкл Питт, Амори Ноласко, Антье Трауэ, Скотт Эдкинс, Лара ДэкароПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91C90C5FDF9F17DF0BCE9AF5A34EE1C4EAC1B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034966   (632058) от 14.07.2016
-
-Высотка / High-Rise  (2015) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элитная высотка - идеальная модель мира будущего. Здесь есть всё для комфортной и роскошной жизни. Но зависть, соперничество, жажда острых ощущений постепенно разжигают открытую вражду между жителями высотки, заставляя забыть о законах морали даже лучших из них.
-Добро пожаловать в мир будущего.Производство: Великобритания, Бельгия, British Film Institute (BFI), Film4, HanWay Films, Ingenious Media, Northern Ireland Screen, Recorded Picture Company (RPC), S Films, Scope PicturesЖанр: драмаРежиссер: Бен УитлиАктеры: Том Хиддлстон, Джереми Айронс, Сиенна Миллер, Люк Эванс, Элизабет Мосс, Джеймс Пьюрфой, Кили Хоуз, Питер Фердинандо, Сиенна Гиллори, Рис Шерсмит, Энцо Чиленти, Август ПрюПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB937B18C672AAF106D9661BBABF0F33E08C259
 ```
 
 https://mybot314.ru/tekegram_catalog/

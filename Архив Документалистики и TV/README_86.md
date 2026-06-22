@@ -1,3 +1,32 @@
+###  Публикация: 1390270   (783377) от 14.06.2020
+
+Хоккей. Молодёжный Чемпионат мира 2020. Предварительный раунд. Группа B. Россия — Германия (2019) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783377.jpg" />
+</div>
+
+
+###  Подробнее
+
+44-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2020 года.
+31 декабря 2019, вторник. 17:00 МСК
+Предварительный раунд. Группа B.
+Россия — Германия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7963A97FCB2BFAAB30FE0073A15F34AA9BD85F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390089   (783373) от 14.06.2020
 
 Хоккей. Молодёжный Чемпионат мира 2020. Предварительный раунд. Группа B. США — Россия (2019) IPTVRip [H.264/1080p-LQ]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783373.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783371.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782692.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782691.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782687.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ AMA Supercross Championship: Salt Lake City (11.06.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_782256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_782256.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782255.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ AMA Supercross Championship: Salt Lake City (15.06.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782252.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781889.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781577.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781223.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781036.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ NGW: Дикое королевство: Восстание / Savage Kingdom (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780466.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780380.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780226.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778510.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778409.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778408.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778407.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778406.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778405.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778404.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778403.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778402.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778381.jpg" />
 </div>
 
 
@@ -699,35 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D13F3592E3D8A139A12BB37208C91D34257F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011656   (778017) от 03.05.2016
-
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Тампа Бэй - Айлендерс. 1-й матч (27.04.2016) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778017.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 апреля 2016, четверг. 02:00 МСК
-1/2 финала - Восток. 1-й матч
-
-Стадион: Амали-Арена (Тампа, США) , 19 092 зрителя (98 % при вместимости 19 500)(   Читать дальше...   )Телекомпания: CBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAACD33924DBEC789BC67E3171C59E5F0B27F32
 ```
 
 https://mybot314.ru/tekegram_catalog/

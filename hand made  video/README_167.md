@@ -1,3 +1,29 @@
+###  Публикация: 1738268   (22538) от 04.04.2025
+
+Древо жизни / The Tree of Life (2011) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы наблюдаем за развитием 11-летнего Джека, одного из трех братьев. Поначалу ребенку все кажется чудесным. Глазами своей души он наблюдает за поступками мамы. Она представляет собой любовь и милосердие, в то время как отец пытается научить сына, что в реальном мире на первое место необходимо всегда ставить себя. Каждый родитель старается переманить Джека на свою (   Читать дальше...   )Производство: США / Cottonwood Pictures, Plan B Entertainment, River Road EntertainmentЖанр: фэнтези, драмаРежиссер: Терренс МаликАктеры: Брэд Питт, Шон Пенн, Джессика Честейн, Хантер МакКракен, Ларами Эпплер, Тай Шеридан, Фиона Шоу, Джессика Фусельер, Николас Гонда, Уилл УоллесПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 02:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8C406FAE00FB7520EAC39CEBDF46F47929D9E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789322   (22535) от 04.04.2025
 
 Бездна / The Abyss (1989) WEBRip [H.265/2160p] [4K, SDR, 8-bit] [Open Matte] [Special Edition] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22535.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22516.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22510.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22486.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22456.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22367.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22331.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22325.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22299.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22200.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22187.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22117.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22108.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22094.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22088.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22086.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22067.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22066.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22038.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21899.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21570.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21567.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21566.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21562.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21551.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A45146CF8E8A6213650DC24FE853AB39CAB8B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791299   (21545) от 13.04.2025
-
-Эскадрон гусар летучих (1980) DVDRip [H.264/1080p] (серии 1-2 из 2) [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об отважном и бесстрашном гусаре и поэте, генерал-лейтенанте Денисе Давыдове, одним из первых организовавшем и возглавившем партизанскую борьбу против наполеоновской армии, оккупировавшей Россию в 1812 году. Подвиги и приключения Давыдова, ставшего легендарным при жизни, вызывали не только восхищение и радость друзей, но и злобу высокопоставленных (   Читать дальше...   )Производство: СССР, киностудия им. М.ГорькогоЖанр: военный, биографияРежиссер: Степан Степанов (Станислав Ростоцкий), Никита ХубовАктеры: Андрей Ростоцкий, Николай Ерёменко (младший), Александр Карин, Николай Карпов, Игорь Кашинцев, Иван Краско, Лидия Кузнецова, Евгений Лебедев, Владимир Мащенко, Алексей Панькин, Юрий Рычков, Андрей Семин, Владимир Сергиенко, Владимир Шакало, Марина ШиманскаяЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:47 + 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740A51FDCEA935390398ABE2F716EADDEA85523A
 ```
 
 https://mybot314.ru/tekegram_catalog/

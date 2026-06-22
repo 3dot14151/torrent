@@ -1,3 +1,109 @@
+###  Публикация: 1299056   (600859) от 30.04.2019
+
+К. Маркс, Ф. Энгельс | Революция в Испании (1937) [PDF] [UA]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600859.jpg" />
+</div>
+
+
+###  Подробнее
+
+В статьях об Испании, составивших настоящий сборник, Карл Маркс и Фридрих Энгельс вскрывают предательскую контрреволюционную роль крупной буржуазии по отношению к народным массам.
+
+Поведение испанской буржуазии в революции 1856 года подтвердило историческую закономерность классовой борьбы, установленную Марксом и Энгельсом на опыте революции 1848–1849 годов; напуганная (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08E55D44BEABC2D2987430DCC2F5356EFFA31C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299014   (600741) от 30.04.2019
+
+Ян Мортимер | Века перемен. События, люди, явления: какому столетию досталось больше всего? (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600741.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каком веке прошлого тысячелетия произошло больше всего значительных перемен? Какое событие спровоцировало наиболее долгоиграющие последствия: промышленная революция или изобретение интернета? Эта книга от доктора исторических наук, выдающегося исследователя Средневековья Яна Мортимера – временной трамплин по всей западной истории. Читая эту книгу, вы совершите (   Читать дальше...   )Жанр: Всемирная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5857B9220D0ED04EAD23AC0390F3CA8F7AAD461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913793   (600281) от 01.07.2015
+
+Энтони Берджесс | Уильям Шекспир. Гений и его эпоха (2001) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нашумевшая биография Уильяма Шекспира, написанная известным английским писателем Энтони Берджессом. Автор предлагает новую, максимально приближенную к реальности, версию детства, зрелости и смерти поэта, черпая доказательства в редких записях церковно-приходских книг, свидетельствах современников и анализе бессмертных произведений Шекспира. Не умалчивая о "скандальных" (   Читать дальше...   )Жанр: Биографии зарубежных знаменитостейПеревод: Г. В. БажановаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1061B9A7A1F98AEEB9D4E918167D36799F03D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039026   (599396) от 30.07.2016
+
+Анна фон Бремзен | Тайны советской кухни (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599396.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Русская кулебяка и русские блины, а между ними - грузинское чанахи, узбекский плов, одесская фаршированная рыба и, конечно, общесоветские котлеты и салат оливье. Автор популярных в США кулинарных книг Анна фон Бремзен вспоминает о детстве в СССР, рассказывает, как жили (и ели!) ее родственники, пока рождалось, крепло, убивало и умирало странное государство, (   Читать дальше...   )Жанр: Биографии. МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C191ACA94D4719FC93ADE5F01581AB2116FE4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914621   (598557) от 02.07.2015
 
 Беата Янковяк-Коник и др. | Бурбоны (2012) [FB2]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598557.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598492.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598486.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598479.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598478.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598385.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597798.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597640.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597638.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597628.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596493.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596161.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595144.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595043.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594928.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593127.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591854.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591850.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591761.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591387.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590989.jpg" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589516.jpg" />
 </div>
 
 
@@ -573,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3F431FCAFEAA0F6AFA9C1070F572B442E1935F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917411   (589504) от 11.07.2015
-
-Виктория Рошаль (сост.) | Энциклопедия символов (2005) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Символический язык - язык универсальный. Мы встречаем символы выбитыми на камнях древних храмов, в ритуалах Посвящений, во всех Священных Писаниях, запечатленными в таинственных формах сфинксов Ассирии и Египта, скрытыми в ошеломляющих пропорциях пирамид, в загадочных эмблемах старинных алхимических книг, встречаем в изобразительном искусстве и художественной литературе. (   Читать дальше...   )Жанр: История. Археология. ЭтнографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D4065491A7314895639907F3D67559D0EBFC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917971   (588683) от 13.07.2015
-
-К. Кувшинов (ред.) | Москва. Годы обновления и реконструкции (1977) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588683.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге показана деятельность Московской городской партийной  организации по осуществлению планов реконструкции и развития  столицы, грандиозные перемены, которые произошли в облике города, в жизни трудящихся Москвы за 60 лет Советской власти.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7BB26B5805A3FFF4CC5900644FEDBDA8AF99F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300792   (588112) от 08.05.2019
-
-Rocky Wood, Lisa Morton | Witch Hunts: A Graphic History of the Burning Times (2012) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588112.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение трех столетий, когда Черная смерть свирепствовала в Европе, а Реформация разорвала Церковь, десятки тысяч были арестованы как ведьмы и подвергались пыткам и казням, в том числе сжигались заживо. Этот графический роман исследует исторические предпосылки и методы охотников на ведьм, рассказывает о том, кто получил с этого выгоду и как Просвещение постепенно (   Читать дальше...   )Жанр: История, Историография, Графический романФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70D30F048FB335EAC7BFC264A4A87FFA7C66A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917988   (588066) от 14.07.2015
-
-Г. А. Арбатов | Свидетельство современника (1991) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор делится с читателями воспоминаниями и мыслями о  сложном и ответственном периоде истории нашей страны между  смертью Сталина и началом перестройки. Периоде, в течение которого он «вблизи» наблюдал, а подчас и участвовал в важных политических событиях, непосредственно работал со многими политическими лидерами.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2308814536D6B187B327B4A8F0A1E3067523B94
 ```
 
 https://mybot314.ru/tekegram_catalog/

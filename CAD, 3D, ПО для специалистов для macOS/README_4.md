@@ -6,7 +6,7 @@ Autodesk Maya 2024 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255145.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vectorworks 2025 Update 7 (Build 828783) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251813.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Millumin 4 v.4.16.f [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231752.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ QuartzCode 1.67.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229267.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Smith Micro Poser Pro v11.0.1.31230 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223315.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Room Arranger 9 v.9.7.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216738.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Arturia Pigments v1.0.0.473 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215673.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ future.dj pro - mix everything 1.8.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213674.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.1.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210277.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ future.dj pro - mix everything 1.11.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205171.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wolfram Mathematica 13.3.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204580.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Planner 5D Premium 4.14 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200715.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Substance 3D Painter 8.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200489.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ MathWorks MATLAB R2023a 9.14.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200404.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adobe Substance 3D Sampler 4.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199677.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Maxon App for Mac 2023.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195238.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Substance 3D Designer 12.4.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194926.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ ZBrush 2023.2.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194835.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Xojo 2023 Release 1.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194467.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Autodesk Flame 2024.0.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193919.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Native Instruments Kontakt 7 v.7.6.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189269.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Maxon Cinema 4D Studio 2024.0.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188331.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ GRAPHISOFT ArchiCAD 26.0 ARM/Intel [Rus]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188127.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Xojo 2020 Release  2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_185990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185990.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ iDatabase 6.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184367.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ CrystalMaker X 10.5.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184318.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 517955   (1003098) от 06.01.2020
+
+Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изображения [Rus]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позволяет добавлять водяные знаки в изображения. Так вы можете быстро вставить свой текст или логотип в изображение, настроить размер, прозрачность, другие параметры, затем сохранить и загрузить его, например, на интернет-блог.
+Поддерживает работу на планшетниках.Тип издания: ПираткаРелиз состоялся: 06.01.20Разработчик: AndroidVillaПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C2273AEBC41E5DF7B49FAA7F729D0C68DCA5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351749   (1001881) от 11.01.2020
 
 Money Pro v2.0.13  [Multi]
@@ -6,7 +33,7 @@ Money Pro v2.0.13  [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001881.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001813.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Shadow Fight 2 Special Edition v1.0.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001585.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Terraria v1.3.0.7.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001554.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Fake GPS Location v3.5 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001541.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Audio MP3 Cutter Mix Converter v1.90 Pro [Ru/Multi] - обрезка и конв
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001331.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Human: Fall Flat v1.0 build 34 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001260.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Geometry Dash v2.111 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001220.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ The Room (2012) v1.07 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000984.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ VK Coffee v8.00 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000973.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ Need for Speed: Hot Pursuit v2.0.18 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000947.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ GRID Autosport v1.6RC9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000945.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ Return To Castle Wolfenstein (RTCW) v2.1.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000933.jpg" />
 </div>
 
 
@@ -344,7 +371,7 @@ Empire Warriors Premium: Tactical TD Game v2.1.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000810.jpg" />
 </div>
 
 
@@ -370,7 +397,7 @@ Private Browser - Fast VPN Incognito Browser 3.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000797.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ GFX Tool for PUBG 8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000767.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ Alien Shooter 2 - The Legend 2.2.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000764.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ WorkAudioBook v4.4.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000761.jpg" />
 </div>
 
 
@@ -474,7 +501,7 @@ Minecraft: Story Mode 1.37 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000755.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ Need for Speed No Limits VR v1.0.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000747.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ Need for Speed: Most Wanted v1.3.128 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000734.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ S.T.A.L.K.E.R. 1.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993030.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992619.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ Cheat Engine 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992449.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ Call of Duty: Black Ops Zombies 1.0.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992386.jpg" />
 </div>
 
 
@@ -642,33 +669,6 @@ Call of Duty: Black Ops Zombies - консольная версия игры т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D72226FB16DA13BE77580EB7EA2C3CA27F1FD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799034   (992311) от 17.01.2020
-
-Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календарь+ - очень удобное приложение, помогающее планировать, составлять расписание и распределять во времени самые разные события и мероприятия прямо с вашего устройства. Теперь это проще, чем когда-либо! Календарь+ автоматически синхронизируется с аккаунтами в Google и отображает всё многообразие ваших планов сквозь призму личных настроек.
-Также, функция быстрого (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 17.01.19Разработчик: Calendar+Поддерживаемая ОС: Android 4.4 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE1E753EBE302557F1B7B9F81C9098AF220A182
 ```
 
 https://mybot314.ru/tekegram_catalog/

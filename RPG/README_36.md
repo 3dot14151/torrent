@@ -1,3 +1,107 @@
+###  Публикация: 1170613   (262365) от 19.12.2017
+
+Vaporum (2017) [Ru/Multi] (Build 236) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vaporum — однопользовательская ролевая игра от независимой студии Fatbot Games. Главный герой оказывается в загадочной механической башне застрявшей посреди океана. Вы не помните, что связывает вас с этим странным местом, но башня кажется вам знакомой. Герою необходимо добраться до вершины башни и попутно раскрыть тайны её происхождения и вашей связи с ней. В ролевом (   Читать дальше...   )Тип издания: RepackРазработчик: Fatbot Games, s. r. o.Жанр: RPG, Adventure, Puzzles, 3D, 1st-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A682E1A85121328CBCEBC19DFD79B246A61A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193616   (261896) от 22.12.2017
+
+Hand of Fate 2 (2017) [Ru/Multi] (1.1.0) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hand of Fate 2 — это «ползание по подземельям» в стилистике темного фэнтези, живая настольная игра, каждый уровень которой составляется из карт встреч, подобранных вами! Выбирайте с умом: ваш соперник, загадочный Дилер, не собирается нежничать, превращая вас в инструмент отмщения. Расклады на столе изменились, но ставка та же: жизнь или смерть!Тип издания: RepackРазработчик: Defiant DevelopmentЖанр: Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E01B25B01596043E8FA1C93013C3278B9A3101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839080   (261709) от 26.11.2025
+
+Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели первого сиквела в истории Supergiant Games взяли только лучшее из оригинальной игры в жанре rogue-like, чтобы представить вам совершенно новое динамичное приключение, которое можно проходить снова и снова. Окажитесь в подземном мире из греческих мифов и узнайте, как зародилось колдовство.Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25ECD2309C90B9F358DEB4A0B6A6963D244411B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839089   (261704) от 27.11.2025
+
+Hades (2020) [Ru/Multi] (1.38290) Repack Necros
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бросьте вызов богу мёртвых и прорубите себе путь из Подземного мира в игре в жанрах «рогалик» и «данжен-кроулер» от создателей Bastion, Transistor и Pyre. В Hades переплетаются особенности «данжен-кроулера» и «рогалика». Эта игра обладает лучшими чертами игр Supergiant, высоко оценённых критиками: динамичным игровым процессом Bastion, богатой атмосферой и глубиной (   Читать дальше...   )Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E93E6DA60510EFED5A1AD5C720F87CC636BF45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085298   (261629) от 26.11.2025
 
 Balrum (2016) [En] (1.7) License GOG
@@ -6,7 +110,7 @@ Balrum (2016) [En] (1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261629.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261465.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259096.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.22) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257838.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Geneforge 1 - Mutagen (2021) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257786.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257623.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Trails in the Sky 1st Chapter (2025) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256743.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Little Witch in the Woods (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256742.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255912.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255662.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255177.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255154.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254962.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Star Ocean: The Divine Force (2022) [Multi] (01.01/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254869.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Tiny Tina's Wonderlands (2022) [Ru/Multi] (10922058/dlc) Repack DjDI [Chaotic Gr
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254863.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Venetica (2009) [Multi] (1.0.3) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254797.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Wytchwood (2021) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254791.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.6.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254768.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254651.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complet
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254523.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.0.49820) Scene Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254478.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254361.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Let'sРlay [Anniversary Ed
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7067B3EA45237BADD95FF438A43380A3A8F086FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836699   (254199) от 12.11.2025
-
-Slayer: The Demon Haunted World (2025) [Ru/Multi] (Build 20761750) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slayer: The Demon Haunted World - это стратегическая экшен-игра с тщательно проработанной боевой системой и мрачным повествованием. Казалось, что эпоха пепла и пыли осталась позади. Но тени вновь пробудились, и пророчество начало сбываться. Под лунным светом родилась беловолосая девочка - Элия. Только она способна бросить вызов павшей звезде. Пробудившись на вершине (   Читать дальше...   )Тип издания: RepackРазработчик: PLAY MephistowaltzЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DE487027389B2AD25FEC7CEEDE7A1D0270FA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498115   (253980) от 18.05.2012
-
-Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253980.jpg" />
-</div>
-
-
-###  Подробнее
-
-События игры The Magic Candle (Волшебная Свеча) развиваются в сказочной стране Deruvia. Великое зло в форме демона по имени Dreax, удерживается в Волшебной свече силой колдовства 44 волшебников. Однако свеча догорает, а зло готовится к освобождению из своего заточения и уже планирует обрушиться всей своей мощью на жителей Deruvia. В такой ответственный момент оказывается, что все волшебники пропали без вести и в Deruvia некому противостоять Дриксу. С этого момента Вы вступаете в игру.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468511   (252787) от 13.05.2012
-
-Diablo III/3 [Multi9] (L) 2012
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть знаменитой серии action/RPG Diablo. Сюжет разворачивается спустя 20 лет после событий Diablo 2. Нам предложено снова сразиться с адовыми созданиями в мире Санктуарии, выступив в роли персонажа одного из пяти классов, среди которых есть и новенький — Знахарь (Witch Doctor). Как и положено, носиться по подземельям и крошить гостей из Преисподней поможет огромный багаж всяческих умений и интересных вещичек. Для любителей онлайн-баталий также припасены приятные сюрпризы: например, совместное прохождение игры с уникальными квестами.Тип издания: ЛицензияРазработчик: Blizzard EntertainmentЖанр: Action-RPG, Hack and slashЯзык озвучки: Английский, Португальский,  Французский, Немецкий, Испанский, Итальянский, Польский, Корейский, Китайский.Язык интерфейса: Английский, Португальский,  Французский, Немецкий, Испанский, Итальянский, Польский, Корейский, Китайский.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836409   (252531) от 10.11.2025
-
-Liuyin's World (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колесо Сансары этого мира было искажено загрязнённой духовной энергией, превратившись в ИИ. Развитие технологий ИИ позволило преодолеть пределы жизни, объединив плоть, душу и механику в новую форму жизни. Однако выжившие люди и демоны не принимают этот метод. Главный герой исследует мир, где сосуществуют люди, механические ИИ и монстры, раскрывая конфликты между (   Читать дальше...   )Тип издания: RepackРазработчик: kingnagameЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE213C4DDA65F538E0931440CE9B660041EFA73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 315278   (36202) от 25.11.2024
-
-Иван Забелин | Домашняя жизнь русских цариц (2007) [MP3, Юлия Мен]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская историческая библиотека.
-Иван Егорович Забелин (1820–1908) – один из виднейших русских историков XIX века, археолог, музейный деятель, коллекционер, действительный статский советник (1876), член-корреспондент (1884), почетный член (1907) Петербургской Академии наук.
-Традиционная пышность и замкнутость русского великокняжеского, а затем и царского (   Читать дальше...   )Жанр: Русская литература, историческая прозаИздательство: Вира-М (аудио)Продолжительность: 15:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FA24132A2ACCCF70E3B51B05867340082D5E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329447   (36106) от 26.11.2024
 
 Александр Мыльников | Петр III (2010) [MP3, Юрий Заборовский]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36106.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35999.jpg" />
 </div>
 
 
@@ -90,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35794.jpg" />
 </div>
 
 
@@ -117,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35429.jpg" />
 </div>
 
 
@@ -144,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34844.jpg" />
 </div>
 
 
@@ -172,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34491.jpg" />
 </div>
 
 
@@ -199,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34228.jpg" />
 </div>
 
 
@@ -227,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34201.jpg" />
 </div>
 
 
@@ -254,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33874.jpg" />
 </div>
 
 
@@ -280,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20578.jpg" />
 </div>
 
 
@@ -306,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20273.jpg" />
 </div>
 
 
@@ -332,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20270.jpg" />
 </div>
 
 
@@ -359,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20258.jpg" />
 </div>
 
 
@@ -386,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20154.jpg" />
 </div>
 
 
@@ -412,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18933.jpg" />
 </div>
 
 
@@ -441,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18522.jpg" />
 </div>
 
 
@@ -470,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17992.jpg" />
 </div>
 
 
@@ -496,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15548.jpg" />
 </div>
 
 
@@ -524,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13275.jpg" />
 </div>
 
 
@@ -551,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11904.jpg" />
 </div>
 
 
@@ -579,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7697.jpg" />
 </div>
 
 
@@ -605,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6768.jpg" />
 </div>
 
 
@@ -631,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6740.jpg" />
 </div>
 
 
@@ -658,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6739.jpg" />
 </div>
 
 
@@ -684,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6455.jpg" />
 </div>
 
 
@@ -695,6 +667,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF15DEE673B11984CA28246AF1D09E4C0BCD3E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814020   (6109) от 24.08.2025
+
+Олег Михайлов | Александр III. Забытый император (2025) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Царствование Александра III не сопровождалось ни кровопролитными войнами, ни разорительными радикальными реформами. Оно принесло России экономическую стабильность, упрочение международного престижа, рост ее народонаселения и духовное самоуглубление. Не мало потрудился император и для улучшения военного дела: русская армия была значительно увеличена и вооружена новым (   Читать дальше...   )Жанр: История, биографии, мемуарыИздательство: СОЮЗПродолжительность: 13:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6523E30951CC9B2B1519AEFC532ED364094083B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

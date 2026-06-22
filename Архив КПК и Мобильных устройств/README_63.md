@@ -1,3 +1,57 @@
+###  Публикация: 1562889   (507048) от 11.07.2022
+
+1Tap Cleaner Pro 4.19 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Tap Cleaner - это инструмент для очистки Android-устройства, благодаря которому с помощью всего одного прикосновения вы можете очистить кэш, историю журнала вызовов и историю поиска. Несмотря на то, что вы можете 'навести полный порядок' всего лишь одним прикосновением, приложение включает в себя гораздо больше опций, которые позволят вам выбрать именно то, от чего (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 29.06.2022Разработчик: Sam LuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713BF4DBC60311C1C6764A17544572ED836F74D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377558   (506962) от 20.08.2011
+
+Worms 2011 Armageddon (2010) <Ru/En>
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yahoo! Всемирно популярные червячки вернулись! Наступил 2011 год, началась новая червячная война, прими участие в этой битве, взорви скользящих червей или дай хорошенько битой по-голове и отправь в водные плаванья!
+В твоём распоряжении арсенал из 36 орудий, 4 компании за разные кланы!
+Отличная графика и звуковое сопровождение не дадут тебе скучать!Тип издания: лицензияЖанр: Аркады.Язык интерфейса: Русский + Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562896   (506880) от 11.07.2022
 
 True Phone - Телефон, Контакты 2.0.18 [Ru/Multi]
@@ -6,7 +60,7 @@ True Phone - Телефон, Контакты 2.0.18 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506880.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506451.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506395.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ VA-Летние Dubstep рингтоны для мобильного (2012) [MP3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506336.jpg" />
 </div>
 
 
@@ -120,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506267.jpg" />
 </div>
 
 
@@ -146,7 +200,7 @@ Calm - Meditate, Sleep, Relax 6.3 Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506210.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ Pocket 7.60.0.0 Mod by ZackModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506206.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506166.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ Unit Converter Pro / Конвертер единиц Pro 2.2.30 Mod by Balatan [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506111.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_506032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_506032.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505430.jpg" />
 </div>
 
 
@@ -306,7 +360,7 @@ Always On: Edge Music Lighting 1.5.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505372.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ Bazaart: Photo Editor & Graphic Design v1.13.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505136.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505054.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ Boost for reddit 1.12.5 Mod by Balatan, Tysontl2007 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504564.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ Fluid Navigation Gestures 2.0-beta11 Mod by Zerаtul [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504475.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Sipnetic 1.0.46 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504468.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ Nothing Launcher (Beta) 1.0.1 Mod by Phoenix1985 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504377.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504373.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ Always On Edge - Not Only LED! 7.1.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504372.jpg" />
 </div>
 
 
@@ -543,13 +597,41 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504285.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Впервые Эм и Декс встретились 15 июля на выпускном в колледже и провели вместе только один день. А потом пришла ночь, и они…решили остаться друзьями. Они будут встречаться в тот же день через год, через два. Но сколько лет должно пройти, чтобы они поверили в свою любовь и поняли, как много значил для них этот ОДИН ДЕНЬ?Жанр: Драма, МелодрамаРежиссер: Лоне Шерфиг / Lone ScherfigАктеры: Энн Хэтэуэй, Джим Стёрджесс, Том Мисон, Джоди Уиттакер, Тим Ки, Рейф Сполл, Жозефин Де Ла Буме, Патришия Кларксон, Кен Стотт, Хейда Рид и др.Перевод: ДублированныйПродолжительность: 01:42:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379061   (504180) от 23.08.2011
+
+Brick Breaker Revolution 2 [Игра] (Java)
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_504180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снова арканоид. На сей раз от Digital Chocolate. При этом если Gameloft шли по пути "тюнинговки" жанра, то DC отполировывают класический геймплей. Разница в названии минимальная. Разница по игре - громадная.
+
+Ссылка на релиз Block Breaker'аЖанр: Аркада (арканоид)
 
 ## Скачать торент
 ```bash
@@ -569,7 +651,7 @@ Governor of Poker 2 Premium 2.0.8 Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504174.jpg" />
 </div>
 
 
@@ -595,7 +677,7 @@ DualSim Ringtone v1.4.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504104.jpg" />
 </div>
 
 
@@ -606,86 +688,6 @@ DualSim Ringtone - это приложение, которое оценят об
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E97D1646CE3F64271D1FD4F66C5C36C8BA6ED926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378690   (503989) от 23.08.2011
-
-Zombieville USA 1.0.4 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zombieville США - одна из самых больших хитов для iPhone, теперь на Android устройств! Эта игра завоевала сердца миллионов игроков по всему миру. Добро пожаловать в Zombieville США! Когда ваш город наводнен ходячими мертвецами,остается только одно - набрать оружия и разносить легионы нежити к чертовой матери. Боритесь за выживание с 18 различными видами оружия! Как (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 21 июня 2011 г.Разработчик: Mika MobileПоддерживаемая ОС: Android 2.1+Жанр: Arcade (Аркада)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933976   (503935) от 03.09.2015
-
-Приложения для Dual SIM устройств под Android
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_503935.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной теме собран пользовательский опыт (интернет форумов) обладателей Dual SIM (Duos) устройств! Управление SIM:Dual SIM Selector PRO (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932453   (503750) от 04.09.2015
-
-Тягач Вездеход ЗиЛ-134 (1957) SATRip [H.264] [MP4|1280x720]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проанализировав опыт, полученный в результате испытаний опытного ЗиС-Э134 и других вездеходных конструкций, коллектив специального конструкторского бюро (СКБ) ЗиЛ под руководством В.А. Грачёва спроектировал и в январе 1957 года построил опытный четырёхосный автомобиль повышенной проходимости ЗиЛ-134 (артиллерийский тягач колёсный АТК-6).
-
-Для ЗиЛ-134 были специально (   Читать дальше...   )Телекомпания: Киностудия "ЗИЛ"Жанр: ДокументальныйПродолжительность: 00:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26311F91A4BD5FFF671D20D1D2394599B79638E
 ```
 
 https://mybot314.ru/tekegram_catalog/

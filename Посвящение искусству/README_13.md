@@ -1,3 +1,82 @@
+###  Публикация: 834604   (841286) от 04.04.2016
+
+Лавкрафт: Страх неизведанного / Lovecraft: Fear Of The Unknown (2009) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный документальный фильм "Lovecraft: Fear Of The Unknown" представляет собой увлекательный рассказ о жизни Говарда Филлипса Лавкрафта. Своими мыслями о творчестве писателя делятся прославленные авторы, работающие в жанре литературы сверхъестественного ужаса, а также известные кинорежиссёры, чьё становление было бы невозможно без увлечения прозой (   Читать дальше...   )Жанр: Документальный, биография, познавательныйПеревод: Одноголосый закадровый (любительский)Язык субтитров: русскийПродолжительность: 01:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6689B1CF16A8ED67984BC2A88CDE98C997E58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540245   (839518) от 10.03.2017
+
+Борислав Брондуков. Первый после Чаплина (2008) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 марта 2008 известному артисту и народному любимцу Бориславу Брондукову могло бы исполниться 70. К этой дате документалисты "Интера" (студия "07 Продакшн") подготовили ленту "Борислав Брондуков. Первый после Чаплина"
+Борислав Брондуков снялся при жизни в 115 картинах, но его имя почти никогда не значилось первым в титрах - он с легкостью (   Читать дальше...   )Производство: Украина / "07 Продакшн" по заказу т/к "Интер"Жанр: Телепередача, документальныйРежиссер: Алексей ЛябахПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992663C4F94086E7D46F8C407D34299605AE37AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501302   (836405) от 09.10.2021
+
+Кто Вы, Чарли Браун? / Who Are You, Charlie Brown? (2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о легендарном создателе комиксов и мультипликаторе, который подарил миру целый ряд ярких и запоминающихся персонажей.Производство: США / Imagine Documentaries, Wild Brain Inc.Жанр: ДокументальныйРежиссер: Майкл БонфильоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: РусскиеПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB55C2EF241B93A5964B2B49F05DB2AF8559F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501270   (836282) от 09.10.2021
 
 MADONNA. Madame X (2021) WEBRip [H.264/1080p] [EN]
@@ -6,7 +85,7 @@ MADONNA. Madame X (2021) WEBRip [H.264/1080p] [EN]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836282.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Led Zeppelin. Рок от А до Я / A to Zeppelin: The Led Zeppelin Story (20
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835908.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835202.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833204.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829964.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ Deep Purple - Now What ?! (Bonus DVD) 2013 г.,[, DVD5]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827120.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826553.jpg" />
 </div>
 
 
@@ -198,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826544.jpg" />
 </div>
 
 
@@ -224,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826507.jpg" />
 </div>
 
 
@@ -250,7 +329,7 @@ BBC: Терри Пратчетт: Снова в чёрном / Terry Pratchett: 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826160.jpg" />
 </div>
 
 
@@ -279,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826096.jpg" />
 </div>
 
 
@@ -305,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825913.jpg" />
 </div>
 
 
@@ -331,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824869.jpg" />
 </div>
 
 
@@ -358,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824598.jpg" />
 </div>
 
 
@@ -384,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824130.jpg" />
 </div>
 
 
@@ -410,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824128.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824109.jpg" />
 </div>
 
 
@@ -463,7 +542,7 @@ Deep Purple: From Here to InFinite (2017) BDRip [H.264/720p-LQ] [VO]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823878.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822912.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822518.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819496.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819017.jpg" />
 </div>
 
 
@@ -594,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817846.jpg" />
 </div>
 
 
@@ -606,85 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2110E86B628F044B1A4DE9029FE3349A6C12486F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008179   (817841) от 17.04.2016
-
-Я – Стив МакКуин / I Am Steve McQueen (2014) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив Маккуин – одна из ярчайших кинозвезд Голливуда прошлых лет. Мужественный вид, магнетизм «плохого парня» и сногсшибательная харизма выделяли Маккуина среди коллег по цеху.
-Стив вырос в маленьком городке в пригороде Индианаполиса, служил в морской пехоте США и стал одним из самых высокооплачиваемых и востребованных актеров своего поколения. Широкой публике он (   Читать дальше...   )Телекомпания: США, Network Entertainment, McQueen RacingЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506364102F6D5F219B3A6B7A02D88692F268A1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503827   (817791) от 20.10.2021
-
-Коко Шанель - гордая и непокорная / Chanel, l'insoumise (2021) HDTVRip [H.264/720p] [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как женщина, родившаяся в конце XX века в бедной семье, стала легендарной фигурой французского мира роскоши? Мы оглядываемся на жизнь и карьеру Габриэль Шанель, которая начинала как обычная модистка и превратила свое имя в культовый модный бренд.Производство: Франция, Skopia FilmsЖанр: Документальный, биографическийРежиссер: Эрик БитунПеревод: отсутствуетЯзык озвучки: французскийСубтитры: Русские (неотключаемые, перевод Е.Шмагринской, Hiventy)Продолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503F9A4DEC714FEC76F4DA2C10F1AC5080F67688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503820   (817790) от 20.10.2021
-
-Пьер Карден: фабрика будущего / Pierre Cardin: La Fabrique du Futur (2020) HDTVRip [H.264/720p] [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьер Карден, голос, узнаваемый среди тысяч людей, его романтическая судьба, иконоборческое видение моды и бизнеса, уверенность в себе как лидера индустрии, который знает, что он возглавляет империю. Мода, дизайн, кейтеринг, недвижимость, шоу...Производство: Франция, TV5MONDE Europe HDЖанр: Документальный, биографическийРежиссер: Элиза ШассенПеревод: отсутствуетЯзык озвучки: французскийСубтитры: Русские (неотключаемые, перевод М.Лабори, Hiventy)Продолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1839B2AF1CD78EAD0929B5FE1A76987ABCD12022
 ```
 
 https://mybot314.ru/tekegram_catalog/

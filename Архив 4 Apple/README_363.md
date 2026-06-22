@@ -1,3 +1,31 @@
+###  Публикация: 1244478   (481797) от 01.09.2018
+
+1Password 7.1.1 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481797.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
+
+Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E48BB3A09DC8DCE0A21B92142658DA4814A6CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056412   (481691) от 25.09.2016
 
 Business Mix for Pages 3.0.1 [En]
@@ -6,7 +34,7 @@ Business Mix for Pages 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481691.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Usher 2.0 Beta 4556   [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481630.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Duplicate File Finder Pro 6.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481487.jpg" />
 </div>
 
 
@@ -91,7 +119,7 @@ start 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481371.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ Disk Expert 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481361.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ MacCleaner 2 PRO 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481358.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ Movavi Slideshow Maker 6 v6.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481263.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ App Cleaner & Uninstaller Pro 7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481083.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ Gemini 2: The Duplicate Finder 2.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480967.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ Music Tag Editor Pro 7.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480559.jpg" />
 </div>
 
 
@@ -282,7 +310,7 @@ Downcast 2.11.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480556.jpg" />
 </div>
 
 
@@ -309,7 +337,7 @@ Chaos Control Premium 1.15 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480552.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ Superkey 0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480438.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ Mix Up Studio 3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480432.jpg" />
 </div>
 
 
@@ -389,7 +417,7 @@ PullTube 1.8.4.1 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480426.jpg" />
 </div>
 
 
@@ -415,7 +443,7 @@ Contacts Journal CRM 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480424.jpg" />
 </div>
 
 
@@ -442,7 +470,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480421.jpg" />
 </div>
 
 
@@ -468,7 +496,7 @@ Things 3 v3.15.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480274.jpg" />
 </div>
 
 
@@ -495,7 +523,7 @@ Bartender 4 v4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480265.jpg" />
 </div>
 
 
@@ -522,7 +550,7 @@ Fenêtre 0.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480235.jpg" />
 </div>
 
 
@@ -550,7 +578,7 @@ Direct Mail 5.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480166.jpg" />
 </div>
 
 
@@ -577,7 +605,7 @@ Watercolor Studio Pro 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480162.jpg" />
 </div>
 
 
@@ -603,7 +631,7 @@ Alfred 3 Powerpack 3.7 (931)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480158.jpg" />
 </div>
 
 
@@ -629,7 +657,7 @@ Principle 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480151.jpg" />
 </div>
 
 
@@ -656,7 +684,7 @@ Things 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479950.jpg" />
 </div>
 
 
@@ -669,33 +697,6 @@ Things — приятный и простой ежедневник. Это ид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62AB2B823B63A3EBF2AB681FF610902B8FB8EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244499   (479931) от 02.09.2018
-
-Scrivener 3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
-Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий и идей будут удобно организованы и всегда (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Literature & Latte LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376FAC8AEB47F1FA1C1C185B9B768166999D880A
 ```
 
 https://mybot314.ru/tekegram_catalog/

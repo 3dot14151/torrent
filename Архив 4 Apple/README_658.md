@@ -1,3 +1,55 @@
+###  Публикация: 1436100   (139170) от 30.12.2020
+
+Room Arranger 9 v9.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Jan AdamecПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1356DCBE19F523EE2B4FB0F754ECB822EF63803C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679336   (138572) от 25.11.2023
+
+Doppler for Mac 2.1.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175C2A677D9E5457FA6A6F4A6523CAB53662B3B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679572   (138558) от 25.11.2023
 
 Apeaksoft iPhone Eraser for Mac 1.0.18 [Multi]
@@ -6,7 +58,7 @@ Apeaksoft iPhone Eraser for Mac 1.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138558.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ NCH ClickCharts Diagram Pro 8.67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138551.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ AnyToISO Pro 3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138546.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Multitouch 1.27.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138506.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ CheckBook Pro 2.7.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138500.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Rectangle Pro 3.0.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138207.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ TablePlus 5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138092.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ DxO FilmPack 5 Elite 5.5.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137935.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Waltr 2 v2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137912.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Wondershare Repairit 5.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137911.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ iFinance 4.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137900.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137886.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Wondershare Filmora 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137869.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ XMind Pro 2023 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137728.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ iToolab UnlockGo 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137680.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Luminar Neo 1.16.0 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137535.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Boom 3D 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137509.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ CleanMyMac 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137369.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ Little Snitch 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137354.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ Lingon X 6.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137177.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137157.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ FontExplorer X Pro 3.5.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135587.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ iStat Menus 4.03 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_135561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135561.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ iCompta 6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135371.jpg" />
 </div>
 
 
@@ -633,59 +685,6 @@ iCompta - простое, но мощное приложение для упра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679797   (135263) от 26.11.2023
-
-Live Wallpaper & Themes 4K Pro for Mac 18.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: © 2023 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B76FEDF2936D6B663436199C740E88C5F6D2C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679816   (135251) от 26.11.2023
-
-Calendar 366 II 2.14.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
-Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2023Разработчик: © 2017-2023 n.spektorПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABC31FF770AF64562C1D522EE724C515C853A4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

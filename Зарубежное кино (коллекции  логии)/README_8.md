@@ -1,3 +1,57 @@
+###  Публикация: 796620   (683344) от 15.06.2014
+
+Трилогия жизни / Il trilogy della vita (1970-1974) BDRip [H.264]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся итальянский поэт, писатель, культуролог и кинорежиссёр Пьер Паоло Пазолини обратился к знаменитым сочинениям средневековья и предренессансной эпохи. Фильм «Декамерон» открывает его так называемую «трилогию жизни», вторая часть — экранная версия «Кентерберийских рассказов» Джефри Чосера, а третья — «Цветок тысячи и одной ночи», вариация на темы арабских (   Читать дальше...   )Производство: Италия, Франция, Германия (ФРГ)Жанр: Драма, комедия, эротика, фэнтезиРежиссер: Пьер Паоло ПазолиниАктеры: Франко Читти, Нинетто Даволи, Йован Йованович, Винченцо Амато, Анджела Люче, Джузеппе Дзигайна, Франкель Габриэла, Крито Винченцо, Джорджо Иовине, Хью Гриффит, Лаура Бетти, Джозефин Чаплин, Алан Уэбб,  Дж.П. Ван Дайн, Вернон Добчефф, Адриан Стрит, Тесса Буше, Маргарет Клеманти, Инес Пеллегрини, Франческо Паоло Говернале, Абадит Гидей, Сальваторе Сапиенца, Луиджина (   Читать дальше...   )Перевод: Профессиональный многоголосыйПродолжительность: 01:51:14 + 01:51:00 + 02:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAC43734F1A5CD481B5FAA978E66A3D8300F065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029402   (681632) от 26.06.2016
+
+Тёмный рыцарь / The Dark Knight (2005-2012) BDRip [H.265/1080p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восемь лет назад Бэтмен растворился в ночи, превратившись из героя в беглеца. Приняв на себя вину за смерть прокурора Харви Дента, он пожертвовал всем. Вместе с комиссаром Гордоном они решили, что так будет лучше для всех. Пока преступность была раздавлена антикриминальным актом Дента, ложь действовала.
+
+Тем не менее, еще опаснее становится появление нового врага (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Боевик, Приключения, Фантастика, ДрамаРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Том Харди, Энн Хэтэуэй, Джозеф Гордон-Левитт, Марион Котийяр, Гари Олдман, Морган Фриман, Майкл Кейн, Мэттью Модайн, Бен МендельсонПеревод: ДублированныйЯзык субтитров: Русский, Английский (full, SDH)Продолжительность: 02:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677857655E1756411824493F539F1EBE233CD97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029413   (679885) от 27.06.2016
 
 Титаны - Дилогия: Битва Титанов / Clash of the Titans (2010), Гнев Титанов / Wrath of the Titans (2012) [H.264/1080p-LQ]
@@ -6,7 +60,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679885.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_676934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676934.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674005.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673908.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672853.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672847.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672617.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671727.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669747.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669118.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667206.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666916.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665042.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661902.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661862.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661141.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659963.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657432.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655324.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653488.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651616.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_650879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_650879.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650720.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646193.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5BC5B3CC797C4056AB8E68A5DA2B42D7DB18643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517884   (644678) от 02.07.2012
-
-Три цвета: Синий, Белый, Красный / Trois couleurs: Bleu, Blanc, Rouge (1993, 1994) BDRemux [1080p] [The Criterion Collection]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_644678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синий, белый и красный — цвета флага Франции. Культовая трилогия Кшиштофа Кесьлёвского является вольной рефлексией автора на знаменитый девиз «Свобода, равенство, братство».Производство: Франция, Швейцария, ПольшаЖанр: драма, мелодрама, детективРежиссер: Кшиштоф КесьлевскийАктеры: Ирен Жакоб, Жан-Луи Трентиньян, Фредерик Федер, Жан-Пьер Лори, Самюэль Ле Бьян, Марион Сталанс, Теко Селио, Бернар Эскалон, Жан Шлегель, Эльжбета ЯсиньскаПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: Английские (Criterion), Английские, Русские, Французские (Lyrics), Русские (Lyrics)Продолжительность: 01:38:20; 01:31:59; 01:39:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346145   (640991) от 07.06.2011
-
-Ва-банк / Vabank (1981, 1984) DVD5/DVD9 [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение знаменитой комедии польского режиссера Ю. Махульского «Ва Банк». Месть останавливает Крамера от разумного шага – уехать в Швейцарию, где у него еще осталось много денег. Сбежав из тюрьмы, он разыскивает своего заклятого врага и ... ему почти удается его уничтожить. Но неистощимый на выдумки медвежатник Квинто с блеском выходит из создавшейся ситуации (   Читать дальше...   )Жанр: Криминал, КомедияРежиссер: Юлиуш МахульскийАктеры: Ян Махульский, Леонард Петрашак, Витольд Пыркош, Эва Шикульска, Бронислав Вроцлавский, Кшиштоф Кершновский, Яцек Хмельник, Юзеф Пара, Эльжбета Зайонцувна и Тео Блом в роли ОдерматтаПеревод: Многоголосый закадровыйПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

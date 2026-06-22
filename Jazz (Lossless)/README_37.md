@@ -6,7 +6,7 @@ The Modern Jazz Quartet - Pyramid & Lonely Woman (1959, 1962) 2000, ArsNova[APE|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921087.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Monty Alexander Trio - Montreux Alexander Live! (1977) 1995, MPS Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921080.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ John Abercrombie Quartet - Up And Coming (2016) ECM[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921062.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington - Mellow (1940-е - 1960-е) 1997, BMG[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921051.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Roberto Fonseca - Abuc (2016) Impulse![FLAC|Lossless|tracks + .cue] <Afro-Cuban 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920988.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Louis Armstrong & Friends: What A Wonderful Christmas (1997) Hip-O Records[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920984.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920983.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The George Lewis Band Of New Orleans - Jazz At Preservation Hall IV (1962) Remas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920949.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Z O L B E R T - Inside Out (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920947.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Best Of The Big Bands (2010) 2CD, Sonoma Entertainment [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920513.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nina Simone - My Baby Just Cares For Me (1986) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920361.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eddie Higgins Quintet - It's Magic (2007) [FLAC|Lossless]<Post-Bop, Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920340.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Led Zeppelin In Jazz: Tribute To Led Zeppelin (2021) [FLAC|Lossless|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920288.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ The Modern Jazz Quartet - The Last Concert (1974) 2CD, 2005, Atlantic[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919406.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Igor Butman, Eddie Gomez, Andrei Kondakov, Lenny White - Jazz 4х4 (1997) Сою
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919400.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Lou Gazzara - Musical Love Affair (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919382.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Christmas Swing (2014) [FLAC|Lossless|tracks + .cue] <Jazz, Retro>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919365.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ The Paul Bley Quartet - Solemn Meditation (1957) 2008, Fresh Sound Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919290.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Bill Evans - Empathy + Pike's Peak (1961-1962) 2013, Essetial Jazz Classics[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919273.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Bennie Green - Bennie Green (1960) 1980, Bainbridge Records [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919214.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Benny Green - Kaleidoscope (1997) Blue Note[FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919199.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Martial Solal - The Complete Vogue Recordings, Vol.2, 1956 (1998) Vogue [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919198.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Duke Ellington - Live In Europe: Guest Star Ella Fitzgerald (1967) 1994, Musica 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919102.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Danilo Rea Trio - Romantica (2004) [FLAC|Lossless]<Modern Jazz, Piano>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918754.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Dave Brubeck - This Is Jazz (1953 - 1964) 1996, Legacy[FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917799.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Carlos “Patato” Valdes - Ritmo y Candela II: African Crossroads (1996) Round
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917794.jpg" />
 </div>
 
 

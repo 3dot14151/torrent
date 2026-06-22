@@ -1,3 +1,56 @@
+###  Публикация: 1157580   (475734) от 24.08.2017
+
+Прощай, друг / Adieu l'ami (1968) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авантюрная история о двух сослуживцах — военном враче Иностранного легиона Дино Барране и наемнике Франце Проппе, по окончании Алжирской войны и демобилизации ввязавшихся в сомнительное дело со вскрытием сейфа в хранилище крупной компании во время Рождественских праздников…
+Участники иностранного легиона американец Франц Пропп и француз Дино Барран вновь встречаются (   Читать дальше...   )Производство: Франция, Италия. Greenwich Film Productions, Medusa filmЖанр: Боевик, Драма, КриминалРежиссер: Жан ЭрманАктеры: Ален Делон, Чарльз Бронсон, Ольга Жорж-Пико, Бернар Фрессон, Брижит Фоссе, Эллен Баль, Жан-Клод Баллард, Мишель Барсе, Стефан Буи, Андре ДюмаПеревод: Многоголосый закадровый, авторский x2Субтитры: РусскиеПродолжительность: 01:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDF9CEA97829E06D01702AC1DAE6784C924F1FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546273   (475647) от 14.09.2012
+
+На несколько долларов больше / Per Qualche Dollaro In Piu / For A Few Dollars More (1965) [H.264/720p-LQ] HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заработать несколько лишних долларов честным путем на диком Западе не проблема, если у тебя есть проверенный кольт и разрешение властей на отстрел бандитов. Этим путем и идут бок о бок профессиональные охотники за головами негодяев «Человек без имени» и полковник Мортимер, общая цель которых — преступная банда мексиканца ИндиоЖанр: Боевик, Драма, Криминал, ВестернРежиссер: Серджио ЛеонеАктеры: :  Клинт Иствуд, Ли Ван Клиф, Джан Мария Волонте, Мара Крупп, Луиджи Пистилли, Клаус Кински, Йозеф Эггер, Панос Пападопулос, Бенито Стефанелли, Роберто КамардьельПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 02:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8885360346C4A897FD151046F89322251AE4A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244428   (475540) от 04.09.2018
 
 Человек, который слишком много знал / The Man Who Knew Too Much (1955) BDRemux [H.264/1080p]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475540.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475076.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473759.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473247.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472526.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472369.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471744.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470969.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470109.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469581.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469299.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469253.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468427.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468165.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467136.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465232.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463349.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463177.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462035.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461862.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461055.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459603.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459444.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459400.jpg" />
 </div>
 
 
@@ -625,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:230470B3D308B5E80EFDCFB490D34EF16D3CE424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320190   (458656) от 24.08.2019
-
-Джоси Уэйлс – человек вне закона / The Outlaw Josey Wales (1976) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458656.jpg" />
-</div>
-
-
-###  Подробнее
-
-В классическом вестерне «Джоси Уэйлс - человек вне закона» Клинт Иствуд, предстаёт в роли отважного героя, напоминающего его знаменитого Человека Без Имени, впервые появившегося в культовой картине «За пригоршню долларов».
-Но, в отличие от хладнокровного персонажа классической трилогии Серджио Леоне, у Джоси Уэйлса есть имя, сердце и... праведный гнев! Отомстив за (   Читать дальше...   )Производство: США / The Malpaso Company, Warner Bros. PicturesЖанр: ВестернРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Вождь Дэн Джордж, Сондра Лок, Билл МакКинни, Джон Вернон, Пола Трумен, Сэм Боттомс, Джеральдин Кимс, Вудроу Парфри, Джойс ДжеймисонПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: АнглийскиеПродолжительность: 02:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FABBC2ED8C85817267E132ED571BF26BD22C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318066   (458643) от 24.08.2019
-
-Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) BDRip [H.265/720p] [10-bit] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть невероятных похождений прославленного археолога и искателя приключений Индианы Джонса. На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества - Святой Грааль. В этом археологу помогает его отец - профессор Джонс старший. Теперь под бдительным оком своего отца и при помощи своих верных талисманов, неизменной шляпы (   Читать дальше...   )Производство: США / Paramount Pictures, Lucasfilm Ltd.Жанр: Фэнтези, боевик, приключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиот, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт ЭддисонПеревод: Многоголосый профессиональныйСубтитры: Русские (pgs), английские (pgs)Продолжительность: 02:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75288B6FEF226080D24DC15223FB8B21B56B6297
 ```
 
 https://mybot314.ru/tekegram_catalog/

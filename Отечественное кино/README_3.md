@@ -1,3 +1,30 @@
+###  Публикация: 1840797   (1047552) от 07.12.2025
+
+Способ убийства (1993) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психологический триллер по мотивам детектива Эда Макбейна.
+В основе сюжета — два параллельно развивающихся события, в центре которых детектив Стив Карелла. Ему поручено непростое дело: накануне хозяин богатой виллы миллионер Скотт повесился в небольшой комнате без единого окна, предварительно закрывшись изнутри весьма хитроумным способом... В это же время в полицейский (   Читать дальше...   )Производство: Россия, Украина / Киностудия им. А.Довженко, Студия "Ч"Жанр: триллерРежиссер: Олег ГoйдаАктеры: Евдокия Германова, Регимантас Адомайтис, Алексей Серебряков, Алексей Горбунов, Елена Сотникова, Елена Петрова, Наталья Шостак, Евгений Князев, Александр МилютинСубтитры: русскиеПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113CA731ECB4525765F988999A30060DA425F796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840302   (1047112) от 04.12.2025
 
 Ночной дозор (2004) BDRip [AV1/1080p-LQ] [10-bit]
@@ -6,7 +33,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047112.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047060.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047057.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046933.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046914.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046850.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046740.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046739.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046729.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046700.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046680.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046623.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046606.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046580.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046519.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046518.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046369.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046302.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046297.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046295.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046292.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046290.jpg" />
 </div>
 
 
@@ -579,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046238.jpg" />
 </div>
 
 
@@ -597,6 +624,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765890   (1046163) от 04.01.2023
+
+Золото (2012) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1046163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судебный пристав предъявляет семье Брагиных иск по карточным долгам пропавшего брата. Для расчётов — два месяца. Или Гордея, как брата должника ждёт арест и тюрьма. Выход один — бросить всё и бежать. Всех спасает золотая жила. Прииск быстро приносит богатство: теперь Гордей — золотопромышленник! Но новая беда — ещё хуже: деньги! Их слишком много! Все хотят получить (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Андрей МармонтовАктеры: Сергей Безруков, Ирина Скобцева, Андрей Мерзликин, Михаил Пореченков, Анна Герман, Максим Шибаев, Любовь Куликова, Владимир Кабалин, Алексей Шемес, Дарья МихайловаПродолжительность: 01:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BF00621EA83E33AFFA04EAB86D30F81572B5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 238960   (1046161) от 04.01.2023
 
 Медвежий поцелуй (2002) DVDRip
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046161.jpg" />
 </div>
 
 
@@ -617,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45D479B08A35364C6E3F9A4824BD8BAEA3FCD5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602385   (1046095) от 05.01.2023
-
-Дед Мороз всегда звонит… трижды! (2011) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история произошла в обычной московской семье, на одной из улиц, в одном из домов… Началась она незадолго до Нового года – а вот закончилась уже по его наступлении. В семье наших героев, как, впрочем, и в любой другой семье перед праздником – новогодний переполох. Теща ссорится с главой семьи, ребенок задергал старших родственников вопросом: «А Дед Мороз придет?» (   Читать дальше...   )Производство: Россия / СинтезФильмЖанр: комедияРежиссер: Константин СтатскийАктеры: Максим Виторган, Татьяна Васильева, Максим Матвеев, Михаил Трухин, Андрей Фролов, Камиль Ларин, Юлия Ауг, Ирина Цывина, Валерий Меладзе, Равшана КурковаСубтитры: отсутствуютПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1B4C946D24AFFD3EC722364246EA5CCEBBFE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602516   (1045969) от 06.01.2023
-
-На ощупь (2022) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045969.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Виктора проблемы: с сыном, с работой, с совестью, и единственный выход — сбежать в свой уединенный загородный дом. Но там ему предстоит еще более суровое испытание: из-за несчастного случая на охоте он теряет зрение. Теперь Виктор должен не просто выживать в полном опасностей диком лесу, но и противостоять собственным страхам и одиночеству.Производство: Россия / К.Б.А. / Кинокомпания братьев АндреасянЖанр: триллер, драма, приключенияРежиссер: Антон МуссАктеры: Дмитрий Нагиев, Владислав Ценёв, Михаил Горевой, Михаил Евланов, Дарья Войновская, София Сальман, Данила Шевцов, Михаил Дорожкин, Сергей Тезов, Анна СоловейчикСубтитры: отсутствуютПродолжительность: 01:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C351D9CB2C5C81061BF3435EB93219E1207734E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

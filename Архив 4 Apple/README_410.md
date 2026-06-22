@@ -1,3 +1,58 @@
+###  Публикация: 1326982   (378783) от 23.09.2019
+
+GlueMotion 1.3.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378783.jpg" />
+</div>
+
+
+###  Подробнее
+
+GlueMotion - идеальный инструмент для фотографов. Приложение позволяет редактировать пакетные Deflicker и собирать последовательности изображений в покадровые фильмы.
+
+GlueMotion был создан, чтобы сэкономить время и помочь вам в процессе работы. Благодаря использованию инструмента пакетного редактирования, нет необходимости использовать дополнительные приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B491C298262FF004F327442AF77A81491C22D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326804   (378782) от 23.09.2019
+
+Grids for Instagram 5.6.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids переносит лучшее из Instagram на ваш Mac.
+Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37321CDDACB60EFADAF74BC2DDD167DAAA57771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327011   (378781) от 23.09.2019
 
 Mellel 4.2.4 [Multi/Ru]
@@ -6,7 +61,7 @@ Mellel 4.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378781.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ iClock Pro 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378778.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ VideoProc (former MacX Video Converter Pro) 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378777.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ OS X El Capitan 10.11.1 (15B42) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378734.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378644.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ Wondershare PDFelement Pro 7.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378555.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ goPanel 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378443.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378211.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Sketch 47.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378182.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ AirServer 7.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378173.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ Photo Mechanic 5.0 (17719) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378031.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377895.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ DaVinci Resolve Studio 12.5.3 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377808.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377724.jpg" />
 </div>
 
 
@@ -384,7 +439,7 @@ MacX MediaTrans 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377627.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ EtreCheck 5 v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377524.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ Boxy SVG 3.22.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377518.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ QLab Pro 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377513.jpg" />
 </div>
 
 
@@ -492,7 +547,7 @@ iA Writer 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377383.jpg" />
 </div>
 
 
@@ -518,7 +573,7 @@ Disk Diet 5.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377382.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ Pixellu SmartAlbums 2 v2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377369.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ Disk Drill Enterprise 3.6.916 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377280.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ MAMP & MAMP PRO 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377275.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ EXIF Sync 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376986.jpg" />
 </div>
 
 
@@ -637,62 +692,6 @@ EXIF Sync 1.9.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD01A9C5A17D0214B081FCB28F81E59B44E9375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175683   (376778) от 19.10.2017
-
-Fantastical 2.4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
-Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.
-
-Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2017Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08704D1124846369BCACBA9488F66CA57CE846AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415656   (376690) от 12.10.2020
-
-Sublime Text 4.0 Dev build 4088 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: Jon SkinnerПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425A6D18F3805E598029C32365A76C620F528958
 ```
 
 https://mybot314.ru/tekegram_catalog/

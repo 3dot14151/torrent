@@ -1,3 +1,81 @@
+###  Публикация: 1638200   (212028) от 07.06.2023
+
+Ничто не сравнится / Nothing Compares (2022) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история феноменального восхождения Шинейд О’Коннор к всемирной славе и как ее личность привела к изгнанию из мейнстрима поп-музыки. Сосредоточившись на ее пророческих словах и делах в период с 1987 по 1993 год, фильм отражает наследие этого бесстрашного первопроходца через призму современных феминисток.Производство: Великобритания, Ирландия, Ard Mhacha Productions, BFI Doc Society Fund, BFI Doc Society Fund, Northern Ireland Screen, ShowtimeЖанр: документальный, музыка, биографияРежиссер: Кэтрин ФергюсонПеревод: субтитры (Велес)Язык озвучки: английскийСубтитры: русские, английские (отдельным файлом)Продолжительность: 01:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5958A371C4907ABE2FE6BFF4F94A16686383CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980552   (212001) от 25.07.2022
+
+Владимир Высоцкий - Нет, ребята, всё не так… (2013) DVDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание нового DVD альбома «Нет, ребята, все не так…» приурочено к 75-тилетию гениального поэта и актера Владимира Высоцкого. На диске поклонники творчества Владимира Семеновича найдут его лучшие песни, спетые под простой аккомпанемент семиструнной гитары. Помимо этого 14 рассказов об отсутствии официального признания, о работе в кино и театре, о популярности театра (   Читать дальше...   )Производство: Россия, Квадро-ДискЖанр: Авторская песня, Концерт, Театр, ДокументальныйСубтитры: Есть в съемках иностранных компаний (hardsub)Продолжительность: 03:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFB22F4914713827EDE1F2190307A5B5C12C973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639074   (211782) от 11.06.2023
+
+Дневники Энди Уорхола / The Andy Warhol Diaries (2022) WEB-DL [H.264/1080p] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о знаменитом американском художнике Энди Уорхоле.Производство: США, NetflixЖанр: документальный, история, биографияРежиссер: Эндрю РоссиУчастники: Билл Ирвин, Джеффри Дейч, Джессика Бек, Боб Колачелло, Кристофер МакосПеревод: многоголосый профессиональный (SDI Media)Язык озвучки: русский, английскийСубтитры: русские (форсированные, полные), английские (полные, для слабослышащих), немецкие, французские, испанские, итальянские, португальские (европейские, бразильские), арабские, венгерские, вьетнамские, голландские, греческие, датские, иврит, индонезийские, корейские, китайские (упрощённые, традиционные), малахийские, норвежские, польские, румынские, тайские, турецкие, (   Читать дальше...   )Продолжительность: 00:56:13+00:52:39+01:12:20+01:14:25+01:05:06+01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639203   (211680) от 12.06.2023
 
 Джейн глазами Шарлотты / Jane par Charlotte / Jane by Charlotte (2021) BDRemux [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211680.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Throbbing Gristle: Такой же другой, как я / Other, Like Me (202
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211679.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211002.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210903.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210746.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210616.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210308.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209840.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209525.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209499.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209452.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208357.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208136.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208078.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206735.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Beatles в Индии / The Beatles and India (2021) WEB-DL [H.264/1080p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206721.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206555.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206337.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206299.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206271.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206167.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205913.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205860.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B61323A4582646CF1BDA231BBD5C7B4652EBAB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 401996   (205267) от 06.10.2022
-
-Игорь Тальков. Я точно знаю, что вернусь (2011) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это случилось 6 октября 1991 года в Санкт-Петербурге. Во дворце спорта "Юбилейный" прозвучал роковой выстрел. Выстрел, который оборвал жизнь певца, поэта, композитора и актёра Игоря Талькова на самом пике его популярности. К памятной доске на стене "Юбилейного" до сих пор приходят люди и оставляют цветы перед портретом музыканта.
-Прошло уже двадцать (   Читать дальше...   )Телекомпания: ТВЦЖанр: Биографический, документальныйПродолжительность: ~00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F2A47F16A63F075C1F90520BC2364D77621A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655016   (204752) от 23.08.2023
-
-Музейные истории / Museum stories (2019) UHDTV [H.265/2160p] (серии 1-5 из ?)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествия по музеям Франции.Производство: Франция, Urubu FilmsЖанр: документальный, искусство, архитектураРежиссер: Грегори ШепардПеревод: одноголосый профессиональный (Audiovisit)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB103B2C0097DFEB03E4C8D0BF298513A5417DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655198   (204646) от 24.08.2023
-
-Ингрид Бергман: В её собственных словах / Jag ar Ingrid (2015) BDRemux [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204646.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2011 году режиссер Стиг Бьëркман встречает Изабеллу Росселлини, дочь Ингрид Бергман, которая предлагает ему «снять фильм о Маме». С помощью Изабеллы Стиг сможет представить историю Ингрид, рассказанную ее собственными словами с ее собственными образами. У Ингрид Бергман было семь номинаций на премию Оскара, и три награды. Она признана одной из самых талантливых (   Читать дальше...   )Производство: Швеция, Chimney, Mantaray FilmЖанр: документальный, история, биографияРежиссер: Стиг БьёркманУчастники: Пиа Линдстрем, Роберто Росселлини, Изотта Росселлини, Ингрид БергманПеревод: двуголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: английские (полные, на шведскую речь)Продолжительность: 01:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488CE9E72ECE7FE23CC12610185175F4F0440BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

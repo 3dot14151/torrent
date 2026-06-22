@@ -1,3 +1,108 @@
+###  Публикация: 1164001   (444465) от 08.09.2017
+
+А. Фадeев (ред.) | Встречи с товарищем Сталиным (1939) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как увлекательные художественные произведения, читаются вышедшие в 1939 году под редакцией А. А. Фадеева воспоминания о встречах со Сталиным - А. Стаханова, И. Папанина, М. Громова, Б. Иофана, П. Ангелиной и других знатных людей нашей страны: рабочих, колхозников, ученых, летчиков, деятелей искусства. Из этих воспоминаний с большой яркостью вырисовывается исключительная (   Читать дальше...   )Жанр: история, мемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC5D21E543986F184278E796751872F4AF30653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164069   (444463) от 08.09.2017
+
+И. Бенедиктов, А. Рыбин | Рядом со Сталиным (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444463.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, представленной вашему вниманию, собраны воспоминания людей, близко знавших И.В. Сталина. Один из них, А.Т. Рыбин, был личным телохранителем вождя с 1931 года и являлся свидетелем многих эпизодов из жизни Сталина на протяжении двадцати лет. Второй, И. А. Бенедиктов, в течение двух десятилетий (с 1938 по 1958 год) занимал ключевые посты в руководстве сельским (   Читать дальше...   )Жанр: история, мемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89CE253B96781EF61B2B7317E55CB1A050B9FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163982   (444462) от 08.09.2017
+
+Ю.С. Гиренко | Сталин - Тито (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировая общественность была ошеломлена, когда летом 1948 г. в адрес руководителей компартии и правительства Югославии сталинское руководство выдвинуло тяжелые обвинения.
+На основе многочисленных документов и воспоминаний, ранее неизвестных советскому читателю, автор повествует о том, как начинался конфликт, приведший к разрыву государственных и  партийных отношений (   Читать дальше...   )Жанр: историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95ECE6BF242D44E3ED605B7A5DB849BAD960EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164086   (444460) от 08.09.2017
+
+А.Л. Малицкий (сост.) | Собрание Советских Конституций и Конституционных Актов (1928) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник содержит в себе Конституции Союза ССР и всех шести союзных Республик в последних их редакциях. Помимо того, в сборнике помещены Конституции всех трёх договорных республик Закавказья в их последних редакциях, принятых вследствие образования Закавказской Федерации и Союза ССР.Жанр: история, правоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052569D1E080C5D1EB7719494D5A0E32875402DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164078   (444458) от 08.09.2017
 
 М.В. Александров | Внешнеполитическая доктрина Сталина (1995) [PDF]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444458.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444292.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444273.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444119.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444118.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444113.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442650.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442224.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442019.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441871.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441866.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441862.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441860.jpg" />
 </div>
 
 
@@ -354,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441856.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441847.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441845.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441786.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441705.jpg" />
 </div>
 
 
@@ -490,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441701.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441699.jpg" />
 </div>
 
 
@@ -543,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441698.jpg" />
 </div>
 
 
@@ -569,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441691.jpg" />
 </div>
 
 
@@ -581,110 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2604328696499AA9E9B5AF3E16747CBAE972A3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944429   (440676) от 07.10.2015
-
-В. Н. Кузнецов | Дени Дидро [К 250-летию со дня рождения великого французского философа-материалиста и просветителя] (1963) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440676.jpg" />
-</div>
-
-
-###  Подробнее
-
-В творчестве Дидро и других французских просветителей с особой четкостью обнаружилось, что материализм по самой сущности своей является мировоззрением передовых общественных сил. В. И. Ленин писал: «В течение всей новейшей истории Европы ... материализм оказался единственной последовательной философией, верной всем учениям естественных наук, враждебной суевериям, (   Читать дальше...   )Жанр: История, философия, политология, биографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B6C4DCB9E55399CDBC18B7E2F79CAB6E703980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944306   (440673) от 07.10.2015
-
-В. Ф. Асмус | Жан-Жак Руссо [К 250-летию со дня рождения] (1962) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440673.jpg" />
-</div>
-
-
-###  Подробнее
-
-В короткое время Руссо стал прославленным писателем, могучим пробудителем мысли в Германии и в других странах Европы. Его влияние объяснялось не только действием его философских идей, но и его искусством писателя. Что же представляло собой это учение, завоевавшее такой быстрый и блистательный, победоносный успех? Кто был его автор, какую жизнь вел он в своем обществе?Жанр: История, философия, биографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8E9B1204EDB2D91CA935CA3EEC9A5F5E2A82D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944313   (440667) от 07.10.2015
-
-В. Ф. Асмус | Философия Иммануила Канта (1957) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440667.jpg" />
-</div>
-
-
-###  Подробнее
-
-О естественнонаучных, философских и общественно-политических взглядах Иммануила Канта — родоначальника немецкой классической философии.Жанр: История, философия, биография, эстетика, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513469393BC4E0ED7AAD3B4C55418A9809E21C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944584   (440364) от 07.10.2015
-
-Дмитрий Москаленко | История деградации азбуки (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440364.jpg" />
-</div>
-
-
-###  Подробнее
-
-В как таковой «письменности на бумаге» в древности не было острой необходимости, т. к. хранение и передача информации осуществлялась на энергоинформационном плане. Это как сейчас, например, мы используем компьютеры, телевизоры, интернет и сотовые телефоны для записи, хранения и передачи информации, и по сути сама письменность на бумаге уже становится менее актуальна. (   Читать дальше...   )Жанр: История, культурология, языкознаниеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F021652A871536755D2B4F73E3F34E015F0F5EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

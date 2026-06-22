@@ -1,3 +1,56 @@
+###  Публикация: 1342168   (170225) от 10.12.2019
+
+Картуш / Cartouche (1962) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завоевав любовь прекрасной цыганки Венеры парижский разбойник 18-го века Доминик взял себе кличку «Картуш» и стал настоящим французским Робин Гудом.
+Одинаково владея шпагой и языком, Картуш во главе организованной им банды «весельчаков» потрошит кошельки аристократов и раздает добычу беднякам, каждый раз ловко оставляя в дураках своего заклятого врага — начальника (   Читать дальше...   )Производство: Франция, Италия / Filmsonor, Les Films Ariane, Mondex Films, Vides CinematograficaЖанр: Приключения, комедияРежиссер: Филипп Де БрокаАктеры: Жан-Поль Бельмондо, Клаудия Кардинале, Джесс Хан, Марсель Далио, Жан Рошфор, Филипп Лемэр, Ноэль Роквер, Одиль Версуа, Жак Шарон, Люсьен РэмбурПеревод: Дублированный, многоголосый закадровыйСубтитры: русские (полные), французские (полные)Продолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF732C6F30F631FC6E7F9311AABCBAB0A232CD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593576   (170198) от 09.12.2022
+
+Квартира / The Apartment (1960) UHD BDRip [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американец Си Си Бакстер живет в Нью-Йорке и работает простым клерком в одной из ведущих страховых компаний в стране вот уже больше трех лет, зарабатывая 94 доллара в неделю. Как и многие сотрудники он мечтает продвинуться вверх по карьерной лестнице, но, в отличии от коллег, обладает одним большим преимуществом. Квартира Бакстера находится вблизи центрального парка (   Читать дальше...   )Производство: США. The Mirisch CorporationЖанр: комедия, мелодрамаРежиссер: Билли УайлдерАктеры: Джек Леммон, Ширли МакЛэйн, Фред МакМюррэй, Рэй Воллстон, Джек Крюшен, Дэвид Льюис, Хоуп Холидей, Джоан Шоули, Наоми Стивенс, Джонни СевенПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E75431A3B19F161D1DC672E60E70EFECA95B873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511994   (169887) от 06.12.2021
 
 Однажды в Америке / Once Upon a Time in America (1984) BDRip [H.264/1080p-LQ]  [Extended Director's Cut] [MVO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169887.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169548.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169304.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169262.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169208.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168659.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168522.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168489.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168246.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167385.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167250.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167179.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166780.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166772.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166340.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166306.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165992.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165924.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165907.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165804.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165224.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164904.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164890.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164880.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4610DBBB69D86E7C53E43E81CA54BEDEAE73E1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672809   (164831) от 01.11.2023
-
-Четыре мушкетёра Шарло / Les Quatre Charlots Mousquetaires / The Four Charlots Musketeers (1974) HDTVRip [H.264/1080p]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бессмертный роман Александра Дюма они безбожно перелопатили, превратив в бурный водопад гэгов, сопровождающих необыкновенные приключения, нет, не прославленных мушкетеров, а их верных оруженосцев.
-Оказывается, на самом деле все было так. Четверка друзей-мушкетеров, вступив в схватку с отрядом гвардейцев кардинала, была обречена на неминуемую гибель. Если бы не их (   Читать дальше...   )Производство: Франция, Les Films Christian Fechner, Renn ProductionsЖанр: комедия, приключенияРежиссер: Андре ЮнебельАктеры: Жерар Ринальди, Жерар Филипелли, Жан Саррю, Жан-Ги Фешнер, Джозефин Чаплин, Даниэль Чеккальди, Поль Пребуа, Бернард Хэллер, Карин Петерсен, Катрин Журдан и др.Перевод: Дублированный (Дубляжная группа киностудии имени М. Горького)Язык озвучки: Русский, французскийСубтитры: русские, французскиеПродолжительность: 01:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1D9B07CDB502A974FBB684C483128083AF6E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595089   (164706) от 16.12.2022
-
-Голубые Гавайи / Blue Hawaii (1961) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чед Гейтс увольняется из армии и возвращается на родные гавайские пляжи к друзьям и девушке. Его отец хочет, чтобы сын устроился работать в компанию, занимающуюся продажей фруктов, но Чеду больше нравится веселиться, и скучная работа ему совсем не по душе.Производство: США / Hal Wallis ProductionsЖанр: мюзикл, комедияРежиссер: Норман ТорогАктеры: Элвис Пресли, Джоан Блэкман, Анджела Лэнсбери, Нэнси Уолтерс, Роланд Уинтерс, Джон Арчер, Ховард МакНир, Стив Броди, Кристиан Кэй, Ирис АдрианПеревод: Двуголосый профессиональный (Кондор), Авторский (А. Михалёв)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA13D34287BCAABCFB0CA04138F70E7846549319
 ```
 
 https://mybot314.ru/tekegram_catalog/

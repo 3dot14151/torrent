@@ -1,3 +1,29 @@
+###  Публикация: 1776477   (28973) от 01.02.2025
+
+Анель / Anel (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаура живет в большом доме вместе с мужем-предпринимателем Мади, свекровью Зейнеп и маленькой дочерью Анель. В день 12-летия девочки Лаура замечает, что с ней что-то не так. Анель становится плохо, а вскоре она начинает вести себя странно и даже пугающе. Но Мади и Зейнеп игнорируют беспокойство Лауры. Женщина понимает, что муж и свекровь что-то от нее скрывают, и (   Читать дальше...   )Производство: Казахстан / Tiger FilmЖанр: триллер, ужасыРежиссер: Акан СатаевАктеры: Азамат Сатыбалды, Зарина Кармен, Дарига Кушекбаева, Медина Мадикызы, Лаура МырзахметоваПеревод: СубтитрыЯзык озвучки: КазахскийСубтитры: РусскиеПродолжительность: 01:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1174033AAECB4F3362187ABA75A119BA5C68708B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777726   (28460) от 06.02.2025
 
 Заманback (2024) WEBRip [H.264/1080p-LQ] [KAZ, UZB / RU, KAZ Sub]
@@ -6,7 +32,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28460.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26930.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26893.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20458.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18582.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17810.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17439.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16852.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16718.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16036.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14515.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11507.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9005.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5683.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4675.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4553.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2225.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2166.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1504.jpg" />
 </div>
 
 

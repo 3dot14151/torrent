@@ -1,3 +1,32 @@
+###  Публикация: 1043733   (570945) от 17.08.2016
+
+PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Community Of Hope 02:23
+02. The Ministry Of Defence 04:11
+03. A Line In The Sand 03:33
+04. Chain Of Keys 03:09(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303709   (569454) от 23.05.2019
 
 Bailen - Thrilled to Be Here (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -6,7 +35,7 @@ Bailen - Thrilled to Be Here (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569454.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Glen Hansard - This Wild Willing (2019) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569442.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Strumbellas - Rattlesnake (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569315.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Vampire Weekend - Father of the Bride (2019) Japanese Edition / Scene [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569133.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Akuma Six - Akuma No Sekai (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, T
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569068.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568901.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mothman - Cancer Withdrawal (2022) [FLAC|Lossless|WEB-DL|tracks] <Mathcore, Chao
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567501.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Antagonist A.D. - Through Fire All Things Are Renewed (2022) [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567499.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567448.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Masfel - Kinai Natha (Chinese Flu) (1994) [FLAC|Lossless|tracks + .cue] <Experim
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565992.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Cate Le Bon - Reward (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565272.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Foster The People - Sacred Hearts Club (2017) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565219.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Lewis Capaldi - Divinely Uninspired To A Hellish Extent (2019) [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565122.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Saint Asonia - Saint Asonia (2015) [FLAC|Lossless]<Alt. Metal, Modern Hard Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564392.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564210.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Madsen - Lichtjahre (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562269.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Masfel - Angyaltojas (2000) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560521.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Hospital Hungary (2005) Приложение #083 к журналу Stereo 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560469.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559727.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Masfel - Katasztrofamamor (1998) [FLAC|Lossless|image + .cue] <Experimental rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558756.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Masfel - En garde! (2005) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558754.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Abyss, Watching Me - Nix (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558308.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Masfel - Moni (2001) Maxi-Single, Remix [FLAC|Lossless|tracks + .cue] <Experimen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557370.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Lowhill - Concept of Grief (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557177.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557129.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556698   (557127) от 11.06.2022
-
-Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How To Leave Painlessly
-2. Disintegrate
-3. Constrict
-4. Red Light Gossip(   Читать дальше...   )Жанр: Post-Hardcore, Alternative Metal, MetalcoreПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

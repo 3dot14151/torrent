@@ -1,3 +1,56 @@
+###  Публикация: 782719   (746466) от 03.05.2014
+
+Нимфоманка: Часть 1, 2 / Nymphomaniac: Vol. I, II (2013) BDRip [1080p] [Line]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Дания, Германия, Франция, Бельгия, ВеликобританияЖанр: Драма, эротикаРежиссер: Ларс фон ТриерАктеры: Шарлотта Генсбур, Стэйси Мартин, Стеллан Скарсгард, Шайа ЛаБаф, Кристиан Слэйтер, Ума Турман, Софи Кеннеди Кларк, Йенс Альбинус, Николас Бро, Фелисити Гилберт, Джейми Белл, Уиллем Дефо, Миа Гот, Жан-Марк Барр, Майкл Пас, Морган Хартли...Перевод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH)Продолжительность: 01:57:20 + 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EDF61AC2EA74E7C724F4AFB6986DDD97E4860B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522572   (746032) от 14.01.2022
+
+Властелин колец: Трилогия / The Lord of the Rings: Trilogy (2001, 2002, 2003) BDRip [H.264/1080p-LQ] [Расширенная версия] [Ремастер]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказания о Средиземье - это хроника Великой войны за Кольцо, войны, длившейся не одну тысячу лет. Тот, кто владел Кольцом, получал власть над всеми живыми тварями, но был обязан служить злу.
+Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел (   Читать дальше...   )Производство: США, Новая Зеландия / New Line Cinema, WingNut Films, The Saul Zaentz CompanyЖанр: Фэнтези, приключения, драмаРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Иэн Маккеллен, Шон Эстин, Вигго Мортенсен, Билли Бойд, Доминик Монахэн, Джон Рис-Дэвис, Орландо Блум, Шон Бин, Иэн Холм, Лив Тайлер, Кейт Бланшетт, Бернард Хилл, Кристофер Ли, Энди Серкис, Миранда ОттоПеревод: Дублированный, Профессиональный многоголосый, АвторскийСубтитры: Русские, английскиеПродолжительность: 03:48:19 | 03:55:32 | 04:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B21E3E7448586679F569C33251C415F86245BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 411164   (744250) от 20.04.2015
 
 Шерлок Холмс: Полная коллекция / Sherlock Holmes: The Complete Collection (1939-1946) [1080p] BDRemux
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744250.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742176.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739386.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738200.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737674.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736993.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736750.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735282.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723331.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_712809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_712809.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712253.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708724.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708501.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706697.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_703845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703845.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702983.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694423.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692100.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691228.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Kingsman / Kingsman (2014-2021) BDRip [H.264/720p] [Трилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690066.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689517.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ Kingsman: Трилогия / Kingsman: Trilogy (2014-2021) BDRip [H.264] [AVO]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688074.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686966.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686894.jpg" />
 </div>
 
 
@@ -625,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C94A103F5D5E95D9B5D4DB6865E683BFD4DE87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796620   (683344) от 15.06.2014
-
-Трилогия жизни / Il trilogy della vita (1970-1974) BDRip [H.264]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся итальянский поэт, писатель, культуролог и кинорежиссёр Пьер Паоло Пазолини обратился к знаменитым сочинениям средневековья и предренессансной эпохи. Фильм «Декамерон» открывает его так называемую «трилогию жизни», вторая часть — экранная версия «Кентерберийских рассказов» Джефри Чосера, а третья — «Цветок тысячи и одной ночи», вариация на темы арабских (   Читать дальше...   )Производство: Италия, Франция, Германия (ФРГ)Жанр: Драма, комедия, эротика, фэнтезиРежиссер: Пьер Паоло ПазолиниАктеры: Франко Читти, Нинетто Даволи, Йован Йованович, Винченцо Амато, Анджела Люче, Джузеппе Дзигайна, Франкель Габриэла, Крито Винченцо, Джорджо Иовине, Хью Гриффит, Лаура Бетти, Джозефин Чаплин, Алан Уэбб,  Дж.П. Ван Дайн, Вернон Добчефф, Адриан Стрит, Тесса Буше, Маргарет Клеманти, Инес Пеллегрини, Франческо Паоло Говернале, Абадит Гидей, Сальваторе Сапиенца, Луиджина (   Читать дальше...   )Перевод: Профессиональный многоголосыйПродолжительность: 01:51:14 + 01:51:00 + 02:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAC43734F1A5CD481B5FAA978E66A3D8300F065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029402   (681632) от 26.06.2016
-
-Тёмный рыцарь / The Dark Knight (2005-2012) BDRip [H.265/1080p] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь лет назад Бэтмен растворился в ночи, превратившись из героя в беглеца. Приняв на себя вину за смерть прокурора Харви Дента, он пожертвовал всем. Вместе с комиссаром Гордоном они решили, что так будет лучше для всех. Пока преступность была раздавлена антикриминальным актом Дента, ложь действовала.
-
-Тем не менее, еще опаснее становится появление нового врага (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Боевик, Приключения, Фантастика, ДрамаРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Том Харди, Энн Хэтэуэй, Джозеф Гордон-Левитт, Марион Котийяр, Гари Олдман, Морган Фриман, Майкл Кейн, Мэттью Модайн, Бен МендельсонПеревод: ДублированныйЯзык субтитров: Русский, Английский (full, SDH)Продолжительность: 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677857655E1756411824493F539F1EBE233CD97D
 ```
 
 https://mybot314.ru/tekegram_catalog/

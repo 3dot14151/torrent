@@ -6,7 +6,7 @@ Nate Gross Band - A Ride With The Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101276.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Southern Mojo - One Take Jam (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101274.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ultraboss - Yachtmaster (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101271.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Aphex Twin - Music From The Merch Desk (2016 - 2023) (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101224.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101192.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ SZA – Sos Deluxe: Lana (2024) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101178.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101167.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Isa Nielsen - Break The Chains (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101128.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Sensual Chill Saxaphone Band, Erotica - Shades of Erotica (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101127.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101119.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101114.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101113.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101110.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101109.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101108.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101107.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101106.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101103.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101102.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Midnight - Syndicate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101023.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Perpetual Rage - The Beginning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100946.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100944.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ A Killer's Confession - Victim 1-2 (2024, 2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100918.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100853.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Aging Disgracefully - Shatter the Mirror (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100780.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Amiya - Prosto do Gwiazd (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100779.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1858497   (1060435) от 11.03.2026
+
+Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что значит быть привязанным к другому человеку? Это любовь, эмоциональная связь, стремление быть рядом? Но что, если эти чувства искажены, что если привязанность становится формой насилия? Callus - это короткий психологический хоррор в жанре «симулятор ходьбы». Вернувшись в квартиру своей матери, на мгновение он окунулся в прошлое. Каждый уголок этой квартиры напоминал (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Инди, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FE64F08A72B3416F60D3282A078F050BFBE43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858336   (1060288) от 10.03.2026
+
+Callus / Мозоль (2026) [Ru/Multi] (1.0.1) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что значит быть привязанным к другому человеку? Это любовь, эмоциональная связь, стремление быть рядом? Но что, если эти чувства искажены, что если привязанность становится формой насилия? Callus - это короткий психологический хоррор в жанре «симулятор ходьбы». Вернувшись в квартиру своей матери, на мгновение он окунулся в прошлое. Каждый уголок этой квартиры напоминал (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Инди, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D149B72D0E348538F20258260D8F370A4A856B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858171   (1060138) от 09.03.2026
+
+WW2 Rebuilder (2023) [Ru/Multi] (Build 21440516/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060138.jpg" />
+</div>
+
+
+###  Подробнее
+
+WW2 Rebuilder - симулятор от первого лица, дающий оценить разрушительные масштабы Второй мировой войны. Предстоит взять на себя роль того, кто пытается привести европейский город в порядок после того, как боевые действия закончились. Улицы находятся в руинах. Даже сложно сказать, что когда-то здесь царила красота и величие.Тип издания: RepackРазработчик: Madnetic GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB5F6CF93C874E9C964958A0959AC47A0D30766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858185   (1060134) от 09.03.2026
 
 Clothing Store Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
@@ -6,7 +84,7 @@ Clothing Store Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060134.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Exotica 2: Pet Shop Simulator (2026) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060127.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.6.2/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059988.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack FitGirl [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059880.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Quarantine Zone: The Last Check (2026) [Ru/Multi] (1.0.12.1485/dlc) Repack Let's
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059841.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Cleaning Simulator (2026) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059801.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Trash Goblin (2024) [Ru/Multi] (1.3.5.8836/dlc) Repack FitGirl [Complete Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059732.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Parcel Simulator (2025) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058412.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057967.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ This Is the Police (2016) [Ru/Multi] (1.1.3.0) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057966.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Other s [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057012.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Heroines Through My Lens (2025) [Multi] (1.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056460.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Rising Front (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055964.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Car For Sale Simulator 2023 (2023) [Ru/Multi] (1.2.9) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055276.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055274.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.1.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055138.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Chinese Frontiers (2025) [Ru/Multi] (2.1.1401) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054818.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054514.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053921.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.14.02) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053918.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ I Sell Lemonade (2025) [Ru/Multi] (.05) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053495.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Leaf Blower Co. (2025) [Ru/Multi] (2025 NL Dec 17) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053493.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Monster Mop Up (2025) [Ru/Multi] (0.8.417) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053287.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Monster Mop Up (2025) [Ru/Multi] (0.8.417) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD5316BFB4E10F141C8A43F1F4E2B60CF8EE4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848868   (1053186) от 20.01.2026
-
-Poly Plaza ULTIMATE (2025) [Ru/Multi] (1.0.13) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poly Plaza ULTIMATE отправляет игрока в открытый город для приобретения собственности и сбора арендной платы. Ключевая задача - управление экономическим предприятием через продажу ресурсов и совершение стратегических покупок для увеличения капитала. Основная цель - накопление богатства в мире-песочнице, наполненном неигровыми персонажами, припаркованными автомобилями (   Читать дальше...   )Тип издания: RepackРазработчик: Victor Game StudioЖанр: Инди, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33BF383A70077671F263C79D268A9B079E5967A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848843   (1053055) от 19.01.2026
-
-Coastal Kitchen Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в искусство приготовления блюд из морепродуктов в Coastal Kitchen Simulator. Возьмите на себя роль и шеф-повара, и менеджера, превращая свежий улов во вкуснейшие блюда, выполняя заказы клиентов, открывая новые рецепты и улучшая кухню, чтобы стать настоящим мастером морепродуктов. Готовите ли вы ради удовольствия или стремитесь к идеалу, Coastal Kitchen (   Читать дальше...   )Тип издания: RepackРазработчик: Bewolba StudiosЖанр: Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BCE0BAD760A379EBC09800416A56CC983E0076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848643   (1052940) от 18.01.2026
-
-Barbie Horse Trails (2025) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вперед! Играйте за Барби и отправляйтесь в новое приключение в открытом мире парка Кентербери Трейлс вместе со своим конем Лаки. Станьте юным рейнджером и помогите преобразить и без того потрясающий парк, чтобы все могли им наслаждаться. Скачите по полям с полевыми цветами и другим прекрасным пейзажам. Выполняйте забавные побочные задания с друзьями, делайте потрясающие (   Читать дальше...   )Тип издания: SceneРазработчик: PHL CollectiveЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: Английский, Французский, Немецкий, ИспанскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3410B22B7FB0AD9F654B9EAB47435C7290A369
 ```
 
 https://mybot314.ru/tekegram_catalog/

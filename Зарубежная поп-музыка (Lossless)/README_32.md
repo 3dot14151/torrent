@@ -1,3 +1,119 @@
+###  Публикация: 1018911   (752171) от 22.05.2016
+
+Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Getcha Good! (4:13)
+02. You Win My Love (4:33)
+03. Don't Be Stupid (You Know I Love You) (3:45)
+04. Up! (2:56)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281476   (751617) от 08.02.2019
+
+Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon
+02. Je Suis à Toi
+03. Changer Le Jeu
+04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629C6DFB84A0F72E1AE15D0451C558A4D7BD77CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281504   (751608) от 08.02.2019
+
+Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. imagine
+02. needy
+03. NASA
+04. bloodline(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523356   (751544) от 11.01.2022
+
+Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, Sony Music [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз, приуроченный к двадцатипятилетию первого совместного альбома Мины и Челентано - "Mina Celentano" 1998 года, достигнувшего вершины итальянского хит-парада и получившего две платиновых сертификации. В 2016 году вышел ещё один студийный альбом дуэта - "Le migliori", который превзошёл успех предшественника, получив семь платин. На этом сборнике (   Читать дальше...   )CD - 1:
+01. Niente E' Andato Perso
+02. Eva
+03. A Un Passo Da Te(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15648CA7CE5657A0D173CDD0A0D0D9C929BD2224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216196   (751360) от 30.03.2018
 
 Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -6,7 +122,7 @@ Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751360.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Steps - Tears on the Dancefloor (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Europ
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751348.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751344.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dua Lipa - Dua Lipa (2017) 2018, Reissue, 2CD, Complete Edition [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749826.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749431.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748513.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748419.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746407.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745501.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745322.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745313.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745255.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744215.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Sanremo 2019: 69° Festival Della Canzone Italiana [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743737.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Kristian Leontiou - Some Day Soon (2004) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743708.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - Pure... Acoustic (2014) Box Set, 4 CD [FLAC|Lossless]<Acoustic, Pop, Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743688.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Erotic Dreams - Over 60 Minutes Of Music (1991) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743616.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Supermax - Best Of Remixes (2008) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dis
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743559.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Thomas Anders - History (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic, E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743332.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ VA - Your Favorite Sing Along Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742736.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Robbie Williams - Under The Radar Volume 3 (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741046.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Texas - Jump On Board (2017) Scene [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740911.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Texas - Jump On Board (2017) Scene [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9A059339CE2003CB0D280CC4721B515E1DDF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217778   (740837) от 06.04.2018
-
-Kylie Minogue - Golden (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing (2:59)
- 02. Stop Me from Falling (3:02)
- 03. Golden (3:08)
- 04. A Lifetime to Repair (3:19)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510A530C1E2833059D93D477FB87E07F3F0056EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217791   (740751) от 06.04.2018
-
-Lisa Stansfield - Deeper (2018) [FLAC|Lossless|image + .cue] <Pop, Sou, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything
-02. Twisted
-03. Desire
-04. Billionaire(   Читать дальше...   )Жанр: Pop, Sou, DiscoПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34F1312CB772DE3FF824AA3677A80B52A42ACDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021439   (740679) от 29.05.2016
-
-Fifth Harmony - 7/27 (2016) (Deluxe) [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's My Girl (3:24)
-02. Work From Home (3:34)
-03. The Life (3:23)
-04. Write On Me (3:40)(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CE7A80CC0D93FBE04D6A62B8EE37F335E3B30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283600   (739783) от 17.02.2019
-
-The Day - Midnight Parade (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Dream-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island.flac
-02. Where the Wild Things Are.flac
-03. Grow.flac
-04. The Golden Glow.flac(   Читать дальше...   )Жанр: Indie, Dream-popПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411AFFEA861F9C5405EEF3E036D4CD79539F1D6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

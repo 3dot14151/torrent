@@ -1,3 +1,57 @@
+###  Публикация: 363666   (139232) от 24.11.2023
+
+Сафо | Стихотворения (2007) [MP3, Оксана Цыбина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая древнегреческая поэтесса Сафо, представительница музыкально-песенной лирики, уроженка острова Лесбос, воспела в своих бессмертных стихах нежную любовь и мучительную страсть. В произведениях Сафо личные переживания переплетались с изображениями чувств и событий, созданными творческой фантазией. Поклонение красоте и служение искусству - вечные темы ее задушевной (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: МедиаКнига, 1С-ПаблишингПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938F60BC789DA1584A974E38F71DDC87D843DF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442985   (139191) от 24.11.2023
+
+Иоганн Вольфганг Гёте | Поэзия (2008) [MP3, Илья Прудовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Поэтическая библиотека».
+Иоганн Вольфганг Гёте – величайший немецкий поэт и мыслитель, автор бессмертного «Фауста». Его творчество занимает особое место в мировой литературе. А переводы стихов Гёте, выполненные В. А. Жуковским, М. Ю. Лермонтовым, Ф. И. Тютчевым, А. А. Фетом, А. К. Толстым, сами являются блестящими образцами поэзии.
+«Гёте как человек и деятель» (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 03:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4F7A4F4E51E056CEBC22C23A3527E7294C0580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 442882   (138988) от 24.11.2023
 
 Иоганн Вольфганг Гёте | Фауст (Переводчик Борис Пастернак) (2004) [MP3, Илья Прудовский]
@@ -6,7 +60,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138988.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138816.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138607.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138529.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138469.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138294.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138267.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137985.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137689.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137600.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137268.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137121.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137029.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136878.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136873.jpg" />
 </div>
 
 
@@ -415,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136861.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136745.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136744.jpg" />
 </div>
 
 
@@ -498,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136742.jpg" />
 </div>
 
 
@@ -527,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134997.jpg" />
 </div>
 
 
@@ -553,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134931.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134769.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134581.jpg" />
 </div>
 
 
@@ -636,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134573.jpg" />
 </div>
 
 
@@ -648,62 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0FA60DCCC9717D526901484D0EF2258C9D0FA7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680498   (134273) от 29.11.2023
-
-Габриэль Гарсиа Маркес | Скверное время (2009) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: XX век. Зарубежная проза.
-Прославленный колумбийский прозаик, лауреат Нобелевской премии, классик мировой литературы ХХ столетия Габриель Гарсиа Маркес написал «Скверное время» начале 60-х годов. Этот роман можно считать своеобразным прологом к его главному произведению – «Сто лет одиночества».
-Мир романа узнаваем – это мир маленького латиноамериканского городка (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 07:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97281BE308FE8C8ACC716BC355BA45E86E500091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 352846   (134097) от 29.11.2023
-
-Юрий Олеша | Книга прощания (2020) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Карлович Олеша (1899–1960) – писатель, поэт, драматург, сатирик. Его первое произведение – сказочный роман «Три Толстяка». За ним последовали роман «Зависть» (1927), рассказы и пьесы.
-Прочитав книгу, мы многое узнаем о писателе, о его личной жизни, его трагедии.
-«Книга прощания» – самая откровенная, самая грустная и самая мудрая книга, которую Олеша писал всю (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 19:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5ABB0D44157B9EC5D68A97E7A2BD7D2FA9C847E
 ```
 
 https://mybot314.ru/tekegram_catalog/

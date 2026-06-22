@@ -1,3 +1,31 @@
+###  Публикация: 1339485   (266016) от 19.11.2019
+
+Adobe Stock - 2020 year of rat to Chinese calendar [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+2020 год крысы по китайскому календарю
+5 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0452F148C0E9365CBE037A1ACA2DC5480F2D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191059   (265930) от 11.12.2017
 
 Векторный клипарт - Vector Woman Accessories Collection #5 [AI]
@@ -6,7 +34,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265930.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265301.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265256.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265249.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264480.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264471.jpg" />
 </div>
 
 
@@ -174,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264133.jpg" />
 </div>
 
 
@@ -202,7 +230,7 @@ Adobe Stock - Colorful Happy Valentines Day Illustration with 3D hearts 2 [AI]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263957.jpg" />
 </div>
 
 
@@ -230,7 +258,7 @@ Adobe Stock - Colorful Happy Valentines Day Illustration with 3D hearts 3 [AI]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263928.jpg" />
 </div>
 
 
@@ -258,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263845.jpg" />
 </div>
 
 
@@ -286,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263813.jpg" />
 </div>
 
 
@@ -314,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263810.jpg" />
 </div>
 
 
@@ -342,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263151.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263144.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263116.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263115.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263103.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263070.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ Adobe Stock - Golden 2020 Happy new year greeting card [AI]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262853.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262798.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262788.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262757.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262247.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262224.jpg" />
 </div>
 
 
@@ -676,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262203.jpg" />
 </div>
 
 
@@ -689,34 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:516B4602C8F941447CAA8D7010A96840C5DA7A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193644   (261951) от 22.12.2017
-
-Векторный клипарт - Seamless Floral Borders 51 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Бесшовные цветочные границы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7B191C060FDE6C0F161BB1D42E1F424A0C3AEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

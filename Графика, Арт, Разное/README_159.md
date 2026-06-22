@@ -1,3 +1,212 @@
+###  Публикация: 1806587   (11387) от 15.07.2025
+
+Иконки - Gumroad - Email Spam Threats 3D Icon Set [PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Email Spam Threats 3D Icon Set, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59562D81962C4B878CB7BFF1BE40957D5FB79376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807090   (11325) от 16.07.2025
+
+Промты - SevenUnited LLC - 699 Ai Art Prompts for Style References - 9336128 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор из 699 промтов по стилю, созданных с помощью AI. Каждая подсказка содержит 4 примера изображений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81C4888A87187611EBA349A8C6BFA9DF47B1336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807217   (11213) от 17.07.2025
+
+Иконки - Envato - Food Delivery 3D Icon - AP7HNTR [PNG, BLEND, FBX, OBJ]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Food Delivery 3D Icon, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, BLEND, FBX, OBJРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405F458410218B30AFB3C728E5A8984AC6EEC2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807211   (11209) от 17.07.2025
+
+Иконки - Envato - Data Server 3D Icon Pack - D6TJ24N [PNG, BLEND, GLB, OBJ]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Matcha Food and Drink 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNG, BLEND, GLB, OBJРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14236EEBCAA1E263CA9333703F22CB6F6DF29DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807154   (11205) от 17.07.2025
+
+Иконки - UI8 - Graphic Design 3D Icon Set [PNG, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 59 3D-иконок для графического дизайна.Формат: PNG, BLEND
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD8611714448E1BBB5916389FC5A60DCE06F4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807728   (10904) от 20.07.2025
+
+Обои - Eternal Mix Wallpapers Part 65 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE048366761525D2F3F210FD7D8CFA2C5075E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807776   (10883) от 20.07.2025
+
+Промты - SevenUnited LLC - 435 Midjourney Prompts for Fantasy Characters - 3863627 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 435 настраиваемых промтов Midjourney для фантастических персонажей.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580DC89D0C2F26074FD0C09D77C87B25DD456913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807886   (10778) от 21.07.2025
+
+Иконки - Computer 3D Iconset [PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 20 3D-иконок для графического дизайна.Формат: PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174094118A465D04428C82869F8FFFC57D895E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808130   (10664) от 22.07.2025
 
 Иконки - UI8 - Gamify RPG [PNG, BLEND, FIGMA]
@@ -6,7 +215,7 @@
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10664.jpg" />
 </div>
 
 
@@ -34,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10660.jpg" />
 </div>
 
 
@@ -60,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10598.jpg" />
 </div>
 
 
@@ -86,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10586.jpg" />
 </div>
 
 
@@ -112,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10300.jpg" />
 </div>
 
 
@@ -139,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10248.jpg" />
 </div>
 
 
@@ -165,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10150.jpg" />
 </div>
 
 
@@ -191,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10062.jpg" />
 </div>
 
 
@@ -217,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10006.jpg" />
 </div>
 
 
@@ -244,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9866.jpg" />
 </div>
 
 
@@ -270,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9864.jpg" />
 </div>
 
 
@@ -296,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9828.jpg" />
 </div>
 
 
@@ -322,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9649.jpg" />
 </div>
 
 
@@ -348,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9451.jpg" />
 </div>
 
 
@@ -374,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9382.jpg" />
 </div>
 
 
@@ -401,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9341.jpg" />
 </div>
 
 
@@ -427,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9259.jpg" />
 </div>
 
 
@@ -453,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9130.jpg" />
 </div>
 
 
@@ -464,215 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC823C5943B9DDC8B4CEA0628B9CEE7FEA7954F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810954   (9001) от 07.08.2025
-
-Промты - SevenUnited LLC - 396 Midjourney Japanese Art Prompts - 8704516 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 396 настраиваемых промтов Midjourney для японского искусства.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3657614B2D1D62821E8D4668D0CA798392E53174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811411   (8823) от 09.08.2025
-
-Обои - Eternal Mix Wallpapers Part 70 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BADD64A5C8007446C0E4005C960D36B7E65FABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821043   (8538) от 30.09.2025
-
-Иконки - Random Icons Bundle v2 [PNG, ICO]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая коллекция самых разных иконок из личного архива: часть 2.Формат: PNG, ICO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DE26D2573809B354E1CA7B2110FD65530C22E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812376   (7906) от 14.08.2025
-
-Промты - SevenUnited LLC - 374 Midjourney Prompts For Smartphone Mockups - 2253290 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 374 настраиваемых промтов Midjourney для макетов смартфонов.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC2A520DA16F4F0E1104FAF85975EB5557F052A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812530   (7755) от 15.08.2025
-
-Иконки - Adobe Icons Bundle [PNG, ICO]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор адобовских иконок из личного архива.Формат: PNG, ICO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC76985E45070984C278CF9EA7430B4F1DCF6A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812971   (7307) от 17.08.2025
-
-Иконки - Alphabet Icons Bundle [PNG, ICO]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор иконок алфавита из личного архива.Формат: PNG, ICO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E118DC91972223C9F7E2C582EBA991DD3DD44D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813600   (6789) от 20.08.2025
-
-Промты - SevenUnited LLC - 391 Midjourney Prompts for Characters - 4907669 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 391 настраиваемых промтов Midjourney для дизайна персонажей.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EF3B3E3634F8B5C9F0BAFBE1C7BF205156E083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814050   (6493) от 22.08.2025
-
-Промты - SevenUnited LLC - 374 Midjourney Prompts for Cultural Portraits - 1715073 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 374 настраиваемых промтов Midjourney для портретной фотосъемки в культурном контексте.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E63D9653077B06DBC669B1E6543869405635A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

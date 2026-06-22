@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050612.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041236.jpg" />
 </div>
 
 
@@ -51,6 +51,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612782   (1039798) от 17.02.2023
+
+Наездник в маске / Masked Rider (1995) WEBRip (сезон 1, серии 1-3 из 27) [EN / RU Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1039798.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планете Эденой король Лексиан наделяет своего внука Декса силой Всадника в маске, прежде чем отправить его на Землю на метеоре. По прибытии метеор Декса приземляется на заднем дворе резиденции семьи Стюарт в городе Ливуд. После того, как Декс объясняет Стюартам историю своего происхождения и почему ему нужно соответствовать людям на Земле, граф Дрегон - главный (   Читать дальше...   )Производство: Франция, США / Saban Entertainment, Toei Company, LtdЖанр: ФантастикаРежиссер: Шуки Леви, Уорт КитерАктеры: Тед Ян Робертс, Ренон Словер, Ashton McArn, Paul Pistore, Кендес Кита, Дэвид Стенстром, Кен Мерккс, Дженнифер Танг, Майкл Сорич, Стив КрамерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русский (машинный перевод)Продолжительность: серии по ~00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A50F9906E4DDB56822568C0A0630FD3B4033AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244099   (1038969) от 20.02.2023
 
 Лучше звоните Солу / Better Call Saul (2018) WEBRip [H.264/1080p] (сезон 4, серии 1-10 из 10) [EN / RU, EN Sub]
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038969.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038184.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029882.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013676.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013627.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013120.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005072.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000620.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999062.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997909.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995692.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989250.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987779.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977229.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971967.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963597.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958170.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958159.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956319.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947537.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946384.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944255.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941220.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091606   (939764) от 11.01.2017
-
-Отец Браун / Father Brown (2016) HDTVRip [H.264/720p-LQ] (сезон 5, серии 1-7 из 15) [EN / EN Sub] (обновляемая)
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой телесериала, отец Браун, пастор в небольшой английской деревне. Священник увлекается раскрытием преступлений, однако делает это не только с помощью наблюдательности и логики, он также пытается понять преступника и по возможности помочь ему. В раскрытии преступлений пастору помогают миссис Маккарти приходской секретарь, леди Фелисия Монтегю и Сид Картер.Производство: ВеликобританияЖанр: драма, криминал, детективРежиссер: Пол Гибсон, Мэтт Картер, Йен БарберАктеры: Марк Уильямс, Сорча Кьюсак, Нэнси Кэрролл, Алекс Прайс, Джон Бертон, Том Чэмберс и др.Перевод: отсутствуетЯзык озвучки: английскийЯзык субтитров: английскийПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1C4D15FEE6C5634A3FEA5D928C00A84A83D7A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1227746   (644739) от 27.05.2018
+
+Американская мечта Роберта Кеннеди / Bobby Kennedy. America's broken Dream (2017) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644739.jpg" />
+</div>
+
+
+###  Подробнее
+
+В июне 1968 года сенатор Бобби Кеннеди баллотировался на пост президента Соединенных Штатов. Народ обожал его, но политический истеблишмент и крупный бизнес считали его угрозой. Он защищал бедных и хотел, чтобы Америка вышла из войны во Вьетнаме: поэтому он имел много врагов, среди них была мафия и ЦРУ.
+Этот рассказ о четырех годах, за которые Роберт Кеннеди успел (   Читать дальше...   )Производство: ФранцияЖанр: Документальный, история, биографияРежиссер: Патрик ЖедиПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720B1C1F2FF34715304ECFC6C43D4F84E7487589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034574   (634137) от 13.07.2016
 
 Прекрасная и ужасная жизнь Лени Рифеншталь / Die Macht der Bilder: Leni Riefenstahl (1993) DVDRip (2 части из 2)
@@ -6,7 +33,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634137.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628177.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627340.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625772.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625544.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615933.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609140.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608657.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606819.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606746.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606734.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606728.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606726.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604947.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ BBC. Наполеон / Napoleon (2014) HDTVRip [H.264/720p-LQ] (1-3 серия 
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604044.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ BBC. Наполеон / Napoleon (2014) HDTVRip (1-3 серия из 3)
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604033.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602947.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602938.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602259.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602253.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596661.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594572.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594508.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592354.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586706.jpg" />
 </div>
 
 
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BA15FD2F7ED8ECE6CF3C680C2DF739691A287EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552545   (586653) от 21.05.2022
-
-Де Голль. Великое и сокровенное / Де Голль: история и судьба / De Gaulle, l eclat et le secret (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) Культура
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Июнь 1940 года. Франция переживает тревожные часы — немцы в Париже. Генерал Шарль де Голль просит семью — жену Ивонн, детей Элизабет, Филиппа и Анну — собрать вещи и отплыть на пароходе в Алжир. Сам же направляется в Лондон с миссией предложить Уинстону Черчиллю объединить усилия для противостояния нацистской Германии и продолжить борьбу во имя Франции вместе с англичанами. (   Читать дальше...   )Производство: Франция / Effervescence, France Télévisions, Région Grand EstЖанр: драма, военный, биография, историяРежиссер: Франсуа ВельАктеры: Самюэль Лабарт, Констанс Долле, Батист Русийон, Жан-Луи Трибе, Стефан Жобер, Марго Шателье, Пьер Рошфор, Кристофер Крэйг, Франсис Юстер, Кристоф БарбьеПеревод: Многоголосый профессиональный (ТК "Культура")Язык озвучки: РусскийПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEFF762C02AD1431C41CF067342DBEB7B161FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

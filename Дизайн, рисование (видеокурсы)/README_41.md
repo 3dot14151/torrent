@@ -6,7 +6,7 @@ CGMA, Kevin Griffith | Stylized 3D Asset Creation for Games (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506883.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sycra, Sycra Yasin | Composition for Artists (2013) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506106.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rebelway, Saber Jlassi, Urban Bradesko | Introduction To Houdini For 3D Artists 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505143.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ teachshop | Kompas 3D V11 [Обучающий видео курс] (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504426.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Rebelway, Saber Jlassi | Advanced Compositing Using COPs in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499504.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Wingfox, Sarah Petruzzi | Photorealistic Character Creation (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499271.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Yudaev School, Никита Юдаев | Дизайн c WOW-эффектом. Т
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499264.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Stellar Works | Game Ready Ar-15 Weapon Course (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497423.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part A-B (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495168.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part D (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495058.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Epic Games, Sjoerd de Jong | Post Processing Essentials (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494562.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493614.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492780.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Epic Games, Zak Parrish | UE4 Performance and Profiling (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492321.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ CG Forge, Tyler Bay | Quaternions & Matrices (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492195.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490924.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489073.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484696.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Pixel, Софья Палюхина, Наталья Егорова | Рисова
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483976.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ CG Boost, Zach Reinhardt | Cubic Worlds: Create Stunning Low Poly Animations in 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482033.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ YouSmart, Нина Наумова | Курс Adobe Illustrator, Photoshop, InDes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479959.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Creative Shrimp | Риггинг механизмов в Blender 2.83 / Hard Sur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478675.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Udemy, Josh Gambrell, Ponte Ryuurui | Создание Sci-Fi оружия в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478658.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478521.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Blender Cloud | Создание примитивных животных в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476999.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ CG Sphere | Create Super Detailed Shield In Blender Tutorial (Modeling, Texturin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475888.jpg" />
 </div>
 
 

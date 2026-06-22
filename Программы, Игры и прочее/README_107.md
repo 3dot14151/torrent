@@ -1,237 +1,3 @@
-###  Публикация: 1664784   (184486) от 27.09.2023
-
-DNS Changer Fast&Secure Surf 1.2.8 Mod by ZackModz [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184486.jpg" />
-</div>
-
-
-###  Подробнее
-
-DNS Changer Android — это первый уровень интернет-безопасности, обеспечивающий необходимую защиту от попыток слежки и цензуры. Всего одним касанием приложение находит самый быстрый DNS-сервер и подключается, чтобы улучшить ваше сетевое соединение.Тип издания: ProРазработчик: Protectstar Inc.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820E0A740CC2D5AE2378965FCEB5CDF4BD231D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665045   (183842) от 28.09.2023
-
-Universal Copy v6.3.5 Мод by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Copy — это самый быстрый способ копировать текст на Android, даже из приложений, которые не позволяют вам копировать, или внутри изображений. Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.09.2023Разработчик: Camel CorporationПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF2F8312E78679EB7E6D5E30E77A879AD27A853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427565   (183017) от 28.11.2020
-
-2048 v2.9 [Ru/En] (обновляемая)
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы присоединяетесь к номерам и попадаете на плитку 2048! Поддерживает крошечные (3x3), классические (4x4), большие (5x5), большие (6x6) и огромные (8x8) размеры плат Будьте готовы к новому испытанию! КАК ИГРАТЬ: Каждый раз, передвигая квадраты в одном направлении, вы будете получать еще один квадрат ценностью два очка. Соединяя два квадрата одинакового значения, (   Читать дальше...   )Тип издания: Пиратка (удалена реклама и прочий мусор)Релиз состоялся: 03.10.2020Разработчик: AndrobabyПоддерживаемая ОС: Android 4.1+Жанр: ГоловоломкиЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C600D3591F78BCABB1E6021E15572334D76BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427469   (183013) от 28.11.2020
-
-Space Marshals 3 v1.3.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Marshals – веселая и интересная  игра в жанре научной фантастике. В игре события разворачиваются не на земле, а в открытом космосе! В этом тактическом шутере с видом сверху вы берете на себя роль специалиста Бертона, который охотится на опасных беглецов после катастрофического побега из тюрьмы.Тип издания: ПираткаРелиз состоялся: 25 ноября 2020 г.Разработчик: PixelbiteПоддерживаемая ОС: Android 4.3 +Жанр: Action (Экшен)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427499   (182873) от 28.11.2020
-
-Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_182873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шутер про Вторую Мировую Войну. Выбирайте противоборствующую сторону. Снаряжайте оружие и в битву, вас ждёт захватывающий онлайн шутер с игроками со всего мира с красивой и проработанной графикой.Тип издания: ПираткаРелиз состоялся: 20 ноября 2020 г.Разработчик: XDEVS LTDПоддерживаемая ОС: Android 5.0 и вышеЖанр: Action (Экшен), Shooter (Шутер)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58C3C22B6F6E2C1E09F352FF7D0223919C19008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427651   (182161) от 29.11.2020
-
-Head Soccer LaLiga 2021 v6.2.5 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Head Soccer LaLiga 2021 - Best Soccer Games - крутой спортивный проект в котором геймеры смогут насладиться футбольными поединками. Не матчами, турнирами и прочим, а именно поединками.Тип издания: ПираткаРелиз состоялся: 26 ноября 2020 г.Разработчик: La Liga Nacional de Fútbol ProfesionalПоддерживаемая ОС: Android 5.0 и вышеЖанр: Sports (Спортивная игра)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250FAFEA7E4862F192D9EB5094C2111713095A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665448   (182078) от 30.09.2023
-
-ImageMeter - photo measure v3.8.8 Mod by KitKat [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182078.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageMeter предоставляет инструменты, которые помогут вам измерить длину, углы и области на ваших фотографиях. Вместо того, чтобы рисовать эскизы вручную, просто сделайте фотографию и добавьте к ней размеры телефона или планшета. ImageMeter имеет самую широкую поддержку лазерных устройств измерения расстояния Bluetooth. Поддерживается большинство устройств разных (   Читать дальше...   )Тип издания: Business License ActivatedРелиз состоялся: 28.09.2023Разработчик: Dirk FarinПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665382   (182062) от 30.09.2023
-
-Радио Онлайн Zaycev.FM v3.1.9 Mod by KitKat [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zaycev.fm - приложение онлайн радио, которое открывает радио заново!Тип издания: PremiumРелиз состоялся: 22.09.2023Разработчик: Zaycev.NetПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665372   (182017) от 30.09.2023
-
-Научный калькулятор 991 плюс / Scientific Calculator 991 v6.6.3.674 Mod by Timozhai [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научный калькулятор 300 es plus, 991 ex - калькулятор для студентов и студентов инженерных специальностей. Калькулятор 991 es plus предоставляет мощные функции в реальном калькуляторе 991 ex 300 ex. Это делает продвинутый калькулятор 991 ex самым полезным калькулятором для университета и школы.Тип издания: ProРелиз состоялся: 10.09.2923Разработчик: Tools for studentПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427644   (182002) от 29.11.2020
 
 AudioBaby - Детские аудиосказки, музыка, диафильмы v4.8 [Ru]
@@ -240,7 +6,7 @@ AudioBaby - Детские аудиосказки, музыка, диафиль�
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182002.jpg" />
 </div>
 
 
@@ -266,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181978.jpg" />
 </div>
 
 
@@ -292,7 +58,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181911.jpg" />
 </div>
 
 
@@ -318,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181564.jpg" />
 </div>
 
 
@@ -344,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181539.jpg" />
 </div>
 
 
@@ -370,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181520.jpg" />
 </div>
 
 
@@ -396,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181442.jpg" />
 </div>
 
 
@@ -423,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181293.jpg" />
 </div>
 
 
@@ -449,7 +215,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181236.jpg" />
 </div>
 
 
@@ -475,7 +241,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181156.jpg" />
 </div>
 
 
@@ -501,7 +267,7 @@ Portal v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181136.jpg" />
 </div>
 
 
@@ -527,7 +293,7 @@ QuickEdit Text Editor Pro 1.9.7 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181058.jpg" />
 </div>
 
 
@@ -553,7 +319,7 @@ Code Editor Pro 0.7.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181028.jpg" />
 </div>
 
 
@@ -579,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180955.jpg" />
 </div>
 
 
@@ -605,7 +371,7 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180884.jpg" />
 </div>
 
 
@@ -631,7 +397,7 @@ Leo's Fortune v1.0.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180476.jpg" />
 </div>
 
 
@@ -657,7 +423,7 @@ Sleep Timer v22.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180405.jpg" />
 </div>
 
 
@@ -669,6 +435,240 @@ Sleep Timer v22.11 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E4AB06DAEBC659F58FFED94FA532C1C276531C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666277   (179866) от 03.10.2023
+
+Яндекс Карты и Навигатор v16.5.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яндекс Карты — приложение к городу. К тому, который прямо сейчас вокруг вас. Тут есть много всего, чтобы город был комфортным и понятным. Например, можно в любое время узнать, когда нужный транспорт будет на остановке. Ведь автобусы, троллейбусы и трамваи едут прямо по карте. Есть поиск мест по адресу, названию или просто по категории. Есть тот самый Навигатор с (   Читать дальше...   )Тип издания: ModРелиз состоялся: 26.09.2023Разработчик: Intertech Services AGПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34EA5D2A6610D6C0947E2875BBE048DED6AFDBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593870   (179683) от 28.11.2022
+
+WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179683.jpg" />
+</div>
+
+
+###  Подробнее
+
+WeatherPro — это надежные прогнозы погоды по всему миру и HD-карты с анимированным радаром на вашем Android-устройстве. Это решение идеально подходит для бега, рыбалки, кемпинга или езды на велосипеде или мотоцикле, WeatherPro создан для того, чтобы расширить возможности для активного отдыха.Тип издания: PremiumРелиз состоялся: 10.11.2022Разработчик: DTN Germany GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD95B7E06864C04F72BE43DF8CFABFABC1E43808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428674   (179030) от 03.12.2020
+
+Винтовки v8.5.4 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179030.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении содержится описание винтовок. Обширный каталог винтовок различных стран мира с подробным описанием.Тип издания: Пиратка (Full)Релиз состоялся: 29.11.2020Разработчик: Kirill SidorovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9D39ED6990304BE41C37A5E12BBD300A7D1E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594053   (178957) от 29.11.2022
+
+Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко под умирающим городом Грязное Устье лежат руины древнего королевства. Многих влечет под землю тяга к богатству, славе или ответам на старинные загадки. «Hollow Knight» – классическое двухмерное приключение в огромном взаимосвязанном мире. Исследуйте извилистые пещеры, древние города и смертоносные пустоши, сражайтесь с порчеными тварями и заводите дружбу (   Читать дальше...   )Тип издания: PortРелиз состоялся: 23.10.2022Разработчик: Team CherryПоддерживаемая ОС: Android 5.0+Жанр: Action, Adventure, ArcadeЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FE3050B1DF5D8BD6FBF1F667A7C26761328E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428676   (178956) от 03.12.2020
+
+Пистолеты v8.5.4 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении содержится описание пистолетов. Обширный каталог пистолетов различных стран мира с подробным описанием.Тип издания: Пиратка (Full)Релиз состоялся: 29.11.2020Разработчик: Kirill SidorovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6E2B41759D2B61BA209254F45862D23B8D3C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428599   (178693) от 03.12.2020
+
+Half-Life 2: Эпизод первый v78 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Half-Life 2: Эпизод первый  дополняет самый популярный бестселлер всех времен, Half-Life 2, новой историей и действиями. В эпизоде первом игрок узнает о новых секретах Сити 17, сможет испытать на себе продвинутый физический геймплей и взаимодействовать с удивительными существами.Тип издания: Пиратка (Куплена)Релиз состоялся: 5 июля 2018 г.Разработчик: NVIDIA Lightspeed StudiosПоддерживаемая ОС: Android 4.4 и вышеЖанр: Action (Экшен), Shooter (Шутер)Язык интерфейса: Есть + (С русскими субтитрами)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA23EF870627AD18621EF9E64CDCEDC14900347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594360   (178624) от 30.11.2022
+
+Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calm - Sleep, Meditate, Relax - простое приложение, не требующее от пользователя ничего. Хотя, нет: нужно успокоиться, расслабиться и наслаждаться прекрасными звуками и видами природы. В современном суетливом мире нет места умиротворению. Никто не может рвануть на выходные к реке, чтобы в тишине понаблюдать за качающимися волнами и послушать крик птиц. Постоянный (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.11.2022Разработчик: Calm.com, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Английский, Французский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594210   (178535) от 30.11.2022
+
+Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monefy Pro - Трекер бюджета - программа для учёта финансов. Она подойдёт для отслеживания денежных потоков для одного человека или семьи средних размеров по численности. Статьи поступления и расхода разделённые по разным категориям, сферам и направлениям помогут не запутаться и получать только правильное представление о существующей картине в кошельке. Даже если (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 29.11.2021Разработчик: ReflectlyПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663B261EE495BC5ED22D253C2202013975BE9C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594314   (178492) от 30.11.2022
+
+Olauncher 3.5.6 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Olauncher - это минималистичный лаунчер без рекламы, который уважает вашу конфиденциальность. Это приложение избавит вас от отвлекающих факторов, чтобы вы могли сосредоточиться на действительно важных вещах. Вы должны использовать свой телефон, а не наоборот.Тип издания: FreeРелиз состоялся: 11.11.2022Разработчик: tanujnotesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский, Французский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975CB22E10B57E47A561361ED2F430CD7C9B5C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

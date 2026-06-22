@@ -1,3 +1,134 @@
+###  Публикация: 975481   (971491) от 15.01.2016
+
+Химик / The Chemist (2015) WEB-DLRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971491.jpg" />
+</div>
+
+
+###  Подробнее
+
+На последнем деле - Стил, опытный киллер, отказался выполнять приказ и убить очередную цель. Целью оказалась молодая девушка, которая очень понравилась убийце. Теперь он становится автоматически целью для своих братьев по оружию. Стилу нужно во всём разобраться, чтоб выйти сухим из воды.Производство: СШАЖанр: БоевикРежиссер: Арт КамачоАктеры: Саша Митчелл, Ричард Греко, Мартин Коув, Пэтрик Килпэтрик, Роберт Миано, Оливье Грюнер, Маршал Хилтон, Нина Бергман, Эшли Этвуд, Стефани ГерардПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD8BB4F73FA853F1BFDFFA3F0CF1420335B5195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975491   (971485) от 15.01.2016
+
+Последний обряд / Дом страха / Demonic (2015) HDRip [Line]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жуткое убийство происходит в заброшенном доме. Полиция обнаруживает три трупа и одного выжившего свидетеля. Он рассказывает, что его друзья погибли во время спиритического сеанса.
+Как оказалось — все погибшие охотились на привидений и были падки на всякую паранормальщину, жертвой которой в один прекрасный момент стали сами. Дом, в который они пришли, является вратами (   Читать дальше...   )Производство: США, Великобритания / Dimension Films, First Point EntertainmentЖанр: Ужасы, ТриллерРежиссер: Уилл КэнонАктеры: Мария Белло, Фрэнк Грилло, Коуди Хорн, Дастин Миллиган, Меган Парк, Скотт Мехловиц, Аарон Ю, Алекс Гуд, Эштон ЛиПеревод: Профессиональный многоголосый (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C04F7C190E988EC5F8CC8D2A7AC1318F6E81118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357829   (971450) от 05.02.2020
+
+Рожденный после смерти / Strange But True (2019) BDRip [H.265] [10-bit]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пять лет после гибели старшеклассника Ронни Чейза, который разбился на машине в выпускной вечер, к его матери и брату приходит его школьная подруга Мелисса. Она уверяет, что ждёт ребенка от Ронни. Недоверчивые родственники пытаются выяснить правду, которая оказывается страшнее всех предположений.Производство: Канада | Automatik Entertainment, First Generation Films, Head Gear FilmsЖанр: ТриллерРежиссер: Роуэн ЭтейлАктеры: Ник Робинсон, Эми Райан, Грег Киннир, Брайан Кокс, Маргарет Куэлли, Коннор Джессап, Блайт Даннер, Яная Стефенс, Мена Массуд, Сара АлленПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45CECC58A1E7365BDDAE2E307278A4EF4DAC49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357825   (971443) от 05.02.2020
+
+Простая просьба / A Simple Favor (2018) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стефани, мама-блогер из маленького городка, оказывает подруге простую услугу, после чего та бесследно исчезает… Вместе с Шоном, мужем пропавшей, Стефани должна докопаться до истины. Отныне их жизни полны тайн и предательств, любви и верности, убийств и мести.Производство: США / BRON Studios, Feigco EntertainmentЖанр: Триллер, драма, криминал, детективРежиссер: Пол ФигАктеры: Анна Кендрик, Блэйк Лайвли, Генри Голдинг, Эндрю Рэннеллс, Иэн Хо, Джошуа Сатине, Гленда Браганза, Келли МакКормак, Апарна Нанчерла, Джия МавджиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6661D1A20E91548F4D89DD32FDA94BBE0F3889D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743945   (971413) от 11.01.2014
+
+Тайное окно / Secret Window (2004) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель Морт Рейни живет в доме на берегу. Ещё недавно у него была жена и карьера писателя.Все дни напролет Морт только спит или смотрит на экран компьютера. Но в этой его размеренной, тоскливой жизни появляется странный человек в черной шляпе. Назвавшись Кокни Шутером, он обвиняет Рейни в плагиате.Жанр: Триллер, ДетективРежиссер: Дэвид КоеппАктеры: Джонни Депп, Джон Туртурро, Мария Белло, Тимоти Хаттон, Чарльз С. Даттон, Лен Кариу, Джоан Хини, Джон Данн-Хилл, Власта Врана, Мэтт ХоллэндПеревод: ДублированныйПродолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62996E71BDDE2350E7FEB3FC1A09763FE3130326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 167837   (971243) от 19.01.2010
 
 Язык любви / Karlekens Sprak (2004) VHSRip
@@ -6,7 +137,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971243.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971176.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970890.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970874.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970822.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970753.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970702.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970667.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970656.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970651.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970650.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970572.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970571.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970483.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970452.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970430.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970381.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970368.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970350.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970291.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970287.jpg" />
 </div>
 
 
@@ -540,138 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB8130BC7B7A3842C942C51BB46B0FA44272550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975509   (970286) от 16.01.2016
-
-Эшби / Ashby (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переехав в другой город, Эд начинает дружить со своим новым соседом Эшби - бывшим киллером ЦРУ, которому осталось жить всего несколько месяцев...Производство: США / Head Gear Films, Langley Park Productions, Metrol TechnologyЖанр: драма, мелодрама, комедия, криминалРежиссер: Тони МакНамараАктеры: Микки Рурк, Нат Вулф, Эмма Робертс, Сара Силверман, Кевин Данн, Захари Найтон, Майкл Лернер, Джон Инос III, Стив Култер, Том Ноуики, Адам Алдеркс, Сет ДаусменПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FEC3F2C9E04033ED4436D6DE8D2DFD5F425ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358140   (970271) от 06.02.2020
-
-Мое прекрасное лето с Софи / Une fille facile (2019) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найме 16 лет, она живет в Каннах. Учебный год закончился, впереди каникулы — в компании с приехавшей из Парижа 22-летней кузиной Софи, готовой научить подросшую сестренку правилам взрослой жизни. Лови момент — ее главный девиз. А это значит — богатые и щедрые мужчины для того и существуют, чтобы делать счастливыми юных красавиц и дарить им удовольствия. Такое море (   Читать дальше...   )Производство: Франция / Les Films Velvet, France 3 Cinéma, Canal+Жанр: Драма, комедияРежиссер: Ребекка ЗлотовскиАктеры: Мина Фарид, Захия Дехар, Бенуа Мажимель, Нуно Лопеш, Клотильда Куро, Любна Абидар, Лакдхар Дриди, Анри-Ноэль Табари, Седрик Аппиетто, Микаэль МильориниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC35449EA1B5275DA7A2DF9B75649A994CB6FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975946   (970200) от 16.01.2016
-
-Анестезия / Anesthesia (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970200.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате нападения на профессора философии Колумбийского университета пересекаются жизни нескольких людей…Производство: СШАЖанр: Триллер, драмаРежиссер: Тим Блэйк НельсонАктеры: Дэвид Аарон Бэйкер, Деррик Баскин, Жаклин Баум, Ана Мари Кэлайз, Кэти Чанг, Эрика Чо, Гленн Клоуз, Скотт Коэн, Филип ЭттинджерПеревод: Любительский двухголосый (Паровоз продакшн)Субтитры: ОтсутствуютПродолжительность: 01:29:49Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D94F587747C60BC01D77A045810B495F2D4CC8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168115   (970032) от 20.01.2010
-
-Адский небоскреб / La tour Montparnasse infernale (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два мойщика окон случайно оказываются у самой вершины небоскреба в тот момент, когда здание захватывает группа террористов. Незадачливые герои решают во что бы то ни стало спасти девушку, которую видели в окне. Им и в голову не приходит, что именно она возглавляет банду и готова на все, чтобы избавиться от лишних свидетелей.Производство: 4 Mecs à Lunettes Production, Canal+Жанр: КомедияРежиссер: Шарль НемесАктеры: Эрик Жюдор, Рамзи Бедиа, Марина Фуа, Серж Риабукин, Мишель Путтерфлам, Пьер Семмлер, Эдгар Гиври, Джоржд Триллат, Брюс ДжонсонПеревод: ДублированныйПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168258   (970022) от 20.01.2010
-
-Психоаналитик / Shrink (2009) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДрамаРежиссер: Йонас ПэйтПеревод: Профессиональный (многоголосый, закадровый)
-
-ФайлФормат: AVI (XviD)Продолжительность: 01:44:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

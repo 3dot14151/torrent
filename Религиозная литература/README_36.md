@@ -1,3 +1,55 @@
+###  Публикация: 1016848   (769693) от 15.05.2016
+
+Святитель Игнатий Брянчанинов | Избранные творения (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - сборник кратких рассказов о великих отцах Церкви, отшельниках и монахах. Игнатий Брянчанинов составил его, пользуясь текстами "Пролога" и "Добротолюбия", делая переводы греческих и латинских произведений, содержащихся в многотомной "Патрологии" Миня. Эта книга получилась сокровищницей поучений древних подвижников, где каждое (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C853C2A964B6AFA0736EC416BF741844D637F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213410   (768181) от 17.03.2018
+
+Правило веры (изд.) | Сокровенный старец Серафим Саровский (2011) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Серафим сокрылся от мира в уединенной Саровской пустыни. Склонный к созерцанию и богомыслию, он много лет провел в затворе, предаваясь молитве. Благодать Духа Божия обильно излилась через него, и не оскудевал поток народа, желающего услышать его совет и ощутить молитвенную поддержку. Ярким видимым плодом трудов Святого является просиявшая Серафимо-Дивеевская (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984A797E3354F53B106A438300AF5DD272BA9A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213020   (768176) от 17.03.2018
 
 Христос Яннарас | Хайдеггер и Ареопагит, или об отсутствии и непознаваемости Бога (2007) [FB2, EPUB, MOBI]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768176.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767074.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766323.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766285.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766168.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766126.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766122.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764651.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764539.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764457.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764424.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764421.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764415.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764057.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764055.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763303.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763291.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763249.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763027.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763025.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762947.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761779.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760429.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760423.jpg" />
 </div>
 
 
@@ -633,62 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02154B4819AD0172995BE36ED9AB3DB1486A71F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522257   (760242) от 06.01.2022
-
-Сретенский монастырь (изд.) | Апостол (2010) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первой датированной книгой на Руси стал «Апостол», в 1564 году её напечатали Иван Фёдоров и Пётр Мстиславец. С тех пор эта книга – одна из важнейших в жизни каждого православного христианина.
-
-По совету святых отцов нам необходимо включать чтение Святого Евангелия и «Апостола»  в своё келейное (домашнее) молитвенное правило. Обычно рекомендуется следующая последовательность: (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC51362018FAF2BB44E40315F2473488591B8612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522291   (760240) от 06.01.2022
-
-Сретенский монастырь (изд.) | Псалтирь (2020) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псалтирь (от греч. псалтирион, — название струнного музыкального инструмента) — книга, входящая в состав Библии, которая состоит из 150 песней или псалмов. В Православной Церкви Псалтирь более всех других Священных Книг употребляется при Богослужении.
-
-«В этой книге измерены и описаны словом вся жизнь человеческая, и душевные расположения, и движения помыслов, и (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A716EA637D5BFA1EF93A401DA414D0D12B7C49F
 ```
 
 https://mybot314.ru/tekegram_catalog/

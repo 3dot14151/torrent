@@ -6,7 +6,7 @@ VA - Визбор 85 (К 85-летию Юрия Визбора, Tribute) (2019) 
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36138.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31984.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30575.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16057.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Если б не было войны (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14519.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10970.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1777345   (71102) от 05.02.2025
+
+Гобсек (1936) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71102.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману Оноре де Бальзака.
+Начало XIX века. Мрачный дом ростовщика Гобсека в предместье Парижа — немой свидетель человеческих трагедий и загубленных судеб. Власть денег уравнивает людей разных сословий и положений, заставляя униженно просить ростовщика о ссуде. Но горы гниющих товаров, золота и серебряного лома не приносят счастья Гобсеку...
+Фильм (   Читать дальше...   )Производство: СССР / Студия "Рот-Фронт"Жанр: драма, экранизацияРежиссер: Константин ЭггертАктеры: Леонид Леонидов, Александр Шатов, Галина Сергеева, Татьяна Кондракова, Ю. Волков, Осип Абдулов, Елена Гоголева, Михаил Садовский, Константин Эггерт, Михаил ЦаревСубтитры: отсутствуютПродолжительность: 01:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A33DC9FE858452909760BD8E7F22095427802BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777924   (70948) от 07.02.2025
+
+Дочь партизана (1936) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70948.jpg" />
+</div>
+
+
+###  Подробнее
+
+К середине 1930-х годов Иосиф Сталин победил всех своих внутренних противников. Однако в стране продолжали искоренять состоятельную прослойку крестьян - так называемых кулаков - и остальных "врагов народа". Сценаристы и режиссеры создавали на эту тему множество фильмов, которые рассказывали о сплоченности рабочих и крестьян против "неблагонадежных (   Читать дальше...   )Производство: СССР /  первая комсомольская киностудия "Украинфильм" ОдессаЖанр: драма, историяРежиссер: Алексей МаслюковАктеры: Игорь Романцев, Гуля Королёва, Г. Батобрина, Михаил Иванов, Михаил Хорош, Юдик Обритчук, Ю. Осипец, Галья СерлоковскаяСубтитры: отсутствуютПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC278B6D039072FC44ECA2238458E6973443398E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779484   (70678) от 13.02.2025
+
+Крылатый маляр (1936) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советская Грузия середины 1930-х годов. Двое друзей, маляры Лексо и Надир, проводят большую часть своей жизни в воздухе, раскачиваясь в малярных люльках, подвешенных к крышам домов. Учитывая мужество и смелость, приобретённые малярами, руководство предприятия направляет одного из них, Надира, в городской аэроклуб на курсы по подготовке лётчиков без отрыва от производства. (   Читать дальше...   )Производство: СССР / Госкинпром ГрузииЖанр: боевик, драма, мелодрама, комедия, приключенияРежиссер: Леонард (Лео) ЭсакияАктеры: Таиса Савва, Акакий Кванталиани, Шота Нозадзе, Л. ТотадзеСубтитры: отсутствуютПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6EDDD27615E59ADDAED654160628A6840758D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781873   (70142) от 25.02.2025
 
 Последняя ночь (1936) WEBRip [H.264/720p]
@@ -6,7 +86,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70142.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69889.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69637.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69176.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69045.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68755.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68444.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68316.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67896.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67718.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67312.jpg" />
 </div>
 
 
@@ -303,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67056.jpg" />
 </div>
 
 
@@ -330,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66197.jpg" />
 </div>
 
 
@@ -356,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65360.jpg" />
 </div>
 
 
@@ -382,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65254.jpg" />
 </div>
 
 
@@ -409,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65245.jpg" />
 </div>
 
 
@@ -436,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65241.jpg" />
 </div>
 
 
@@ -462,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65234.jpg" />
 </div>
 
 
@@ -488,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64915.jpg" />
 </div>
 
 
@@ -514,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64860.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64857.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64753.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64599.jpg" />
 </div>
 
 
@@ -604,85 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC353AA864A05E0BD96EB7B4A8D48D6AB43F23A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821510   (64011) от 02.10.2025
-
-Беня Крик / Карьера Бени Крика (1926) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64011.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам «Одесских рассказов» Исаака Бабеля.
-Одесский бандит Беня Крик, решив взять реванш, убивает налетчиков, которые по его мнению его предали, и затем поджигает местную тюрьму. Воры, покинувшие тюрьму, теперь становятся членами банды. После революции Беня продолжает активную политическую жизнь, выдавая свою банду за красноармейский полк. Возобновляются пьянки, (   Читать дальше...   )Производство: СССР / ВУФКУ (Одесса)Жанр: драма, криминал, немое киноРежиссер: Владимир ВильнерАктеры: Матвей Ляров, Юрий Шумский, А. Надемский, Иван Замычковский, Сергей Минин, Анна Горичева, А. Вабник, Теодор Брайнин, Георгий Астафьев, Александр СашинСубтитры: русские (интертитры)Продолжительность: 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB1F2D05AF5A80432E3AA71F55E86C33CA053B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821528   (64008) от 02.10.2025
-
-Крик тишины (1981) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64008.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком таежном поселке на берегу Байкала погибает местный егерь Колчин. Прибывшие в поселок следователи пытаются разгадать причины трагического происшествия.Производство: СССР / МосфильмЖанр: криминал, детективРежиссер: Арья ДашиевАктеры: Юрий Соломин, Буда Вампилов, Борис Щербаков, Олег Видов, Алефтина Евдокимова, Вадим Курков, Валерий Малышев, Цырен Шагжин, Михаил Елбонов, Любовь ГермановаСубтитры: отсутствуютПродолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3592CC6BAECF254DA05B6BF5341BE3A02015EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821555   (63981) от 02.10.2025
-
-Остров Колдун (1964) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брат и сестра Даня и Валя переезжают с мамой в северный приморский городок и сразу становятся участниками увлекательного, но опасного приключения.Производство: СССР / МосфильмЖанр: драма, приключенияРежиссер: Татьяна ЛукашевичАктеры: Юрий Бондаренко, Таня Демушкина, Раиса Куркина, Юра Лешов, Николай Волков, Алексей Зайцев, Ирина Журавель, Сергей Бобров, Анатолий Дудоров, Борис ЮрченкоСубтитры: отсутствуютПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC6A140D8D27B13A47EECC7A5CDD2CE6897B688
 ```
 
 https://mybot314.ru/tekegram_catalog/

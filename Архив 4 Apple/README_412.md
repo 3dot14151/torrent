@@ -1,3 +1,55 @@
+###  Публикация: 1327400   (374633) от 25.09.2019
+
+Translatium 9 v9.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Translatium - мощное приложение для перевода для macOS.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2019Разработчик: Quang LamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AEC7089B458711E06CC3EAD190B4B1A0C1A2FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327367   (374632) от 25.09.2019
+
+BookMacster 2.9.15 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374632.jpg" />
+</div>
+
+
+###  Подробнее
+
+BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие "мертвых" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: Sheep SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8FC8F809981C12FC83A489639F256DEC4416E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327552   (374631) от 25.09.2019
 
 QLab Pro 4 v4.5.1 [En]
@@ -6,7 +58,7 @@ QLab Pro 4 v4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374631.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Video Editor MovieMator Pro 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374630.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Lattice 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374626.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ PopClip 2019.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374625.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Mate Translate 6.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374624.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ Sublime Merge Build 1118 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374623.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ WebVideoHunter Pro 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374622.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Grids for Instagram 5.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374616.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ TG Pro (Temperature Gauge Pro) 2.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374516.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ MacClean 3 v3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374510.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ TechSmith Snagit v2019.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374509.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ TunesKit Screen Recorder 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374508.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ iExplorer 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374432.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ ProFind 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374405.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ Invisor - Media File Inspector 3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374403.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ Topaz Gigapixel AI 4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374381.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ Sublime Text 3 (3152) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374342.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ Separation Studio 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374324.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ iMazing 2.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374238.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ VueScan Pro 9.5.90 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374227.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ Alfred Powerpack 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374225.jpg" />
 </div>
 
 
@@ -577,7 +629,7 @@ iStat Menus 6 v6.50 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374169.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374163.jpg" />
 </div>
 
 
@@ -633,7 +685,7 @@ Sublime Text 3.2.1 (Build 3210 Dev) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374001.jpg" />
 </div>
 
 
@@ -645,63 +697,6 @@ Sublime Text не является свободным или открытым п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58B096C7974D3495F7C8489C4B7A46C0CC55A8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327453   (373987) от 25.09.2019
-
-Adobe Illustrator CC 2019 v23.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Illustrator CC – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях – цифровой графики, иллюстраций и печати – при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений.
-
-Представляем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9B87A947120819937138A26ED076F7ACE58E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069478   (373982) от 04.11.2016
-
-SnapNDrag Pro 4.1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373982.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapNDrag - органайзер, нарезка скриншотов, редактирование, шаринг.
-SnapNDrag - Небольшая утилита для создания скриншотов. SnapNDrag позволяет делать снимок экрана всего одним нажатием кнопки, и сразу перетащить готовый результат в другое приложение для дальнейшей работы с ним.
-
-SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если на первом месте стоит качество, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2016Разработчик: Yellow Mug SoftwarПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2E7F221F67B37C97AF193EE1F6030A25BE9D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

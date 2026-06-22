@@ -1,3 +1,60 @@
+###  Публикация: 1083708   (273484) от 16.12.2016
+
+Марк Тюфо | Апокалипсис (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Zombie Fallout».
+
+Эпидемии, подобной этой, человечество еще не знало. Пока население США все больше погружается в панику, медицинские лаборатории отчаянно пытаются изобрести новое, действительно работающее лекарство против беспощадного вируса H1N1. И когда это все-таки удается, вакцину безо всяких исследований и испытаний сразу запускают в массовое (   Читать дальше...   )Жанр: Боевая фантастика, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38AFE2E31E9C56B126A0DF08BE240926BFBFCA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337548   (273450) от 11.11.2019
+
+Джо Аберкромби | Немного ненависти (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Эпоха безумия» из цикла «Земной Круг»
+
+В Адуе наступают новые времена.
+(   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПеревод: Владимир ИвановФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A34C76F4843A5B4DE7C241611EBF5F0AB9100CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188766   (273350) от 03.12.2017
 
 Ольга Хусаинова | Быть ведьмой (2017) [FB2]
@@ -6,7 +63,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273350.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273288.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273287.jpg" />
 </div>
 
 
@@ -92,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273279.jpg" />
 </div>
 
 
@@ -121,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273276.jpg" />
 </div>
 
 
@@ -150,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273174.jpg" />
 </div>
 
 
@@ -178,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273109.jpg" />
 </div>
 
 
@@ -204,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272977.jpg" />
 </div>
 
 
@@ -230,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272894.jpg" />
 </div>
 
 
@@ -258,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272867.jpg" />
 </div>
 
 
@@ -286,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272823.jpg" />
 </div>
 
 
@@ -314,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272628.jpg" />
 </div>
 
 
@@ -342,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272560.jpg" />
 </div>
 
 
@@ -368,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272553.jpg" />
 </div>
 
 
@@ -397,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272546.jpg" />
 </div>
 
 
@@ -425,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272474.jpg" />
 </div>
 
 
@@ -452,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272321.jpg" />
 </div>
 
 
@@ -478,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272245.jpg" />
 </div>
 
 
@@ -506,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272239.jpg" />
 </div>
 
 
@@ -534,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272237.jpg" />
 </div>
 
 
@@ -560,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272150.jpg" />
 </div>
 
 
@@ -588,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272131.jpg" />
 </div>
 
 
@@ -614,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272121.jpg" />
 </div>
 
 
@@ -642,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272077.jpg" />
 </div>
 
 
@@ -655,58 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A16ABB01B788B0BAB5F240D369FF69CA14187E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084011   (271991) от 17.12.2016
-
-Уильям Гибсон | Цикл «Трилогия Синего муравья» [3 книги] (2015-2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейс Поллард – своего рода рыночный эксперт, она зарабатывает на жизнь, консультируя рекламные и маркетинговые агентства. Ее услугами пользуются ведущие игроки рынка: Поллард обладает уникальным чутьем на дизайн торговых марок и знаков. Об обратной стороне ее способностей знают только родственники и личный психиатр. Кейс страдает от уникального расстройства психики: (   Читать дальше...   )Жанр: Зарубежная фантастика, КиберпанкФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02A6602F03EF77D97595B47B26E7BE36BB21823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266001   (271974) от 30.11.2018
-
-Кристина Юраш | Заказное влюбийство (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271974.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как финансовая крыса загнала меня в угол, я решила по примеру других шарлатанов открыть салон на дому и взывать к высшим силам. Глухонемые высшие силы случайно услышали меня, выбросив в Кронваэле и обозвав Импэрой. Теперь мне придется назвать имя наследника престола, выбрав его из восьми кандидатов, за 66 дней. Если я этого не сделаю, мне крышка! Финансовая (   Читать дальше...   )Жанр: Детективное фэнтези, Любовное фэнтези, Юмористическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6311BD33BF9389F27F8E422BFD829D864CDA5D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

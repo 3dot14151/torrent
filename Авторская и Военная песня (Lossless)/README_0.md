@@ -6,7 +6,7 @@
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736371.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Военно-Морской флот России  (2013) [FLAC|Lossless]<�
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735538.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725593.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702868.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - День победы (2010) [FLAC|Lossless] <Военные песни>
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_700344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700344.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681828.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681770.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_681769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681769.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679910.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679909.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679907.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_679895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679895.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672131.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670499.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659585.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655243.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647463.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633296.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - 22-ое июня Песни военных лет 1941-1943 (2010) [FLAC|Lo
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_627132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627132.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625540.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602444.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599726.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594303.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583734.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575745.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560769.jpg" />
 </div>
 
 

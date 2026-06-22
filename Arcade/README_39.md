@@ -1,3 +1,55 @@
+###  Публикация: 1085389   (173726) от 21.12.2016
+
+OmniBus (2016) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра OmniBus - это игра с суперсовременным физическим движком, посвящённая самому мощному автобусу во вселенной, который не может ни остановиться, ни замедлиться из-за причин, непостижимых для обычного человеческого разума. Этому автобусу предстоит выполнять самые разные поручения, не заваливаясь на бок и не переворачиваясь даже на самых безумных скоростях.Тип издания: LicenseРазработчик: Buddy Cops, LLCЖанр: Arcade, Racing, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8905952B3F890CD6EF417447EE308F93EB6760C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827002   (173449) от 20.10.2025
+
+Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year Edition]
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зомби напали на ваш дом, и ваш единственный способ выжить — посадить арсенал из растений! Будучи вооруженным иноземными растениями, истребляющими зомби, вроде горохострела и вишневой бомбы, вам потребуется очень быстро мыслить и сажать растения еще быстрее, чтобы любой ценой не дать зомби дойти до вашего дома. Заходящее солнце, ползучий туман и бассейн вкупе с пятью (   Читать дальше...   )Тип издания: RepackРазработчик: PopCap GamesЖанр: Стратегии, Выживание, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E04385706A0F4CC835BD98E66BC4136092253E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827085   (173448) от 20.10.2025
 
 Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
@@ -6,7 +58,7 @@ Plants vs. Zombies 2: It’s About Time (2013) [Multi] (1.7.2.9) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173448.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Paleo Pines (2023) [Ru/Multi] (1.1.26) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173321.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172196.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172184.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Freaky Trip (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171479.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171466.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0.6.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170870.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.0.0.14718) License CODEX [The
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170694.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170083.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.9.1.0) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170035.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169912.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ X-Force Under Attack (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169633.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169460.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169278.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168843.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168061.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Thunder Tier One (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168024.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Vengeance of Mr. Peppermint (2023) [En] (226) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167584.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166310.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166170.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165823.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165354.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164703.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164059.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Elasto Mania Remastered представляет собой обновленну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACE59C410569F38084FC06BB7B888A5AD16F91AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673698   (164025) от 02.11.2023
-
-Hamster on Rails (2023) [Ru/Multi] (1.0.44.0) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hamster on Rails – приключение с хомяком-строителем, специализирующимся на создании железных дорог. Предстоит путешествовать между мирами, исследуя их особенности и пользуясь полезностями, добывая ресурсы, минералы и кристаллы. Материалы помогут создавать безумные железные дороги в опасных частях территории, а также решать головоломки, на чём и сфокусирован игровой (   Читать дальше...   )Тип издания: LicenseРазработчик: Virtual Arts StudioЖанр: Гонки, Стратегия, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664307A4AB81DBA4DECE9B459D4118ACEEF45B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302744   (163955) от 18.12.2019
-
-Dead or Alive 6 (2019) [Ru/Multi] (1.18/dlc) Repack =nemos= [Digital Deluxe Edition]
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead or Alive 6 — это новейший зрелищный трёхмерный файтинг со стремительными и увлекательными боями. Эта игра разработана Koei Tecmo Games, обладает потрясающей графикой, позволяет зрелищно и весело биться на многоуровневых аренах. Это серия файтингов класса AAA, разрабатываемая студией Team NINJA, принадлежащей Koei Tecmo Games.Тип издания: RepackРазработчик: KOEI TECMO GAMESЖанр: Arcade (Fighting), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28663A5EC99C7FA903EB58B8E1118880A30D4899
 ```
 
 https://mybot314.ru/tekegram_catalog/

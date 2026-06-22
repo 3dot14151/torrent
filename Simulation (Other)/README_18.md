@@ -1,55 +1,3 @@
-###  Публикация: 1674751   (160727) от 06.11.2023
-
-Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parking Tycoon: Business Simulator - стратегия, погружающая в мир управления автомобильными парковками. С самого начала вы получаете в свое распоряжение огромный участок земли, на котором создаете шумную парковочную империю. Вы начинаете свой путь со стратегического планирования, строительства и постоянной модернизации, чтобы ваши парковки не только привлекали клиентов, (   Читать дальше...   )Тип издания: SceneРазработчик: GeekonЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836540FCE4123DF51CC1568AD77D25D72C570801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406858   (156559) от 18.12.2021
-
-Secret Government (2020) [Ru/Multi] (1.0.6.3) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Secret Government — игра в жанре глобальной стратегии о тайном обществе, которое сотни лет незримо правит человечеством. Вы возглавите не какую-то отдельную страну, а Братство, - организацию, которая манипулирует всем миром. Вы будете рассылать своих агентов в различные государства. Внедряться в институты управления, чтобы выкачивать ресурсы и захватывать все больше (   Читать дальше...   )Тип издания: LicenseРазработчик: GameTrekЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, КитайскийЯзык интерфейса: Русский, Английский, Немецкий, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE749D7A03F655072E9EA1D61D7998D8F7995B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194674   (154770) от 25.12.2017
 
 EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
@@ -58,7 +6,7 @@ EMERGENCY 20 (2017) [Ru] (4.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154770.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.5.766.8713/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153711.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Autonauts (2019) [Ru/Multi] (140.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153673.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151887.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151113.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146547.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.47) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146339.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ The Kindeman Remedy (2023) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142953.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138133.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136781.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Operation Steel Tide (2002) [Ru] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134668.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.32/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133633.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133272.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132872.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Zipp's Café (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132858.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131921.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Destroyer: The U-Boat Hunter (2023) [Ru/Multi] (1.0/dlc) Scene Rune [Supporter B
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129699.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129002.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127903.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ The Fabulous Fear Machine (2023) [Ru/Multi] (1.0.28) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126541.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Buried Alive: Breathless Rescue (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126385.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.4.0.r49909/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125933.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125543.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124815.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A328C51436DAAEB0CE3216921726A49CF9D9F7F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689453   (124704) от 02.01.2024
+
+Islanders (2019) [Ru/Multi] (1.04) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Затягивающая и очень атмосферная стратегия, созданная в стиле 3D платформера с элементами многочисленных головоломок. Весь игровой процесс представлен в виде градостроительного симулятора в очень минималистическом стиле. Нам предстоит развивать своё уникальное государство на совершенно вымышленных и очень красочных островах. Каждая такая локация генерируется случайным (   Читать дальше...   )Тип издания: LicenseРазработчик: Coatsink, GrizzlyGames, Stage Clear StudiosЖанр: Казуальные игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Немецкий , Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий , Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACAB0E0C015408F0B1BCB71A472AE03FD1CAEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690714   (123858) от 08.01.2024
+
+Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите на себя роль Квеллы, начинающей влиятельной особы, которая хочет стать независимой от своего презренного босса. Booze Masters: Freezing Moonshine - это исследовательское приключение, смешанное с экономической игрой, большой дозой абстрактного юмора и большим количеством выпивки. Под руководством гениального самогонщика вы научитесь создавать такие алкогольные (   Читать дальше...   )Тип издания: LicenseРазработчик: AsmodevЖанр: Simulation, Building, ExplorationЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79B27E7DB927003C1CF9E0E550BD0206E81ECE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

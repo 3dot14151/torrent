@@ -1,3 +1,107 @@
+###  Публикация: 1483800   (1006630) от 15.07.2021
+
+Дикая Португалия / Wild Portugal (2019) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006630.jpg" />
+</div>
+
+
+###  Подробнее
+
+У края европейского континента встречаются теплый средиземноморский климат и холодное течение. Длина береговой линии в этом раю - целых 800 километров, а обрывистые берега стали домом для невероятных диких животных и растений, как загадочных, так и знакомых. Вместе они раскрывают странный и многообразный мир дикой Португалии. Стаи волков здесь выслеживают стада диких (   Читать дальше...   )Производство: Германия, Light & Shadow GmbHЖанр: Документальный, флора, фаунаРежиссер: Кристиан БаумейстерПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B605F1D1C1F1993AB7B4B823B4282FDED7F8229D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483846   (1006494) от 16.07.2021
+
+Шамбор: четыре времени года / Chambord, quatre saisons (2019) HDTVRip [H.264] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006494.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самом сердце региона Центр - Долина Луары раскинулись угодья площадью 5 440 гектаров, изобилующие дичью. Настоящее звериное царство. Здесь можно встретить самые разнообразные биотипы. В прудах и лесах, а также вдоль берегов реки Коссон кипит жизнь. В центре этого заповедного уголка высится замок Шамбор, самый величественный и живописный из замков Луары. Он был (   Читать дальше...   )Производство: Франция, TV5MONDE Europe HDЖанр: Документальный, флора и фаунаРежиссер: Лоран ШарбонньеПеревод: ОтсутствуетСубтитры: Русские (неотключаемые, Hiventy)Продолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661EFECE681A34FA71E1077EFCF101C1C554B965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486499   (1004720) от 31.07.2021
+
+Дикий Амстердам (Город глазами кота) / De Wilde Stad (Wild Amsterdam) (2018) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-путешествие по Амстердаму в компании его жителей-животных. Кот Фриц проводит необычную экскурсию по своему любимому городу и раскрывает его секреты, незаметные для обычных туристов. Такого Амстердама вы еще не видели. Кроме 180 национальностей, его «население» составляет десять тысяч видов животных и растений. Фриц знакомит зрителей со своими земляками, среди (   Читать дальше...   )Производство: Нидерланды, EMS FilmsЖанр: Документальный, природа, флора, фауна, путешествияРежиссер: Марк ВеркеркПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBACC0855A93949BB2A10D270C29348056B30A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359103   (1002956) от 07.08.2021
+
+Город глазами кота / Wild Amsterdam (2018) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм раскрывает все тайны культового динамичного города глазами его живых обитателей. Эта история, «рассказанная» котом Фрицем, напоминает нам, что город существует не только для людей. Миллионы других, порой незаметных нам жителей, приспосабливаются к улицам, каналам, кирпичным и железобетонным зданиям и чувствуют себя здесь также комфортно (или не очень), как (   Читать дальше...   )Производство: Нидерланды, EMS FilmsЖанр: Документальный, природа, флора, фаунаРежиссер: Марк ВеркеркПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E8D624BF42F1036202C1C45E929D3421EBE952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350712   (1002934) от 07.01.2020
 
 Национальный парк Серенгети / Serengeti (2011) BDRemux [H.264/1080p] [AVO]
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002934.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002813.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002673.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. Водопой: Африканский Оазис для Животных /
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002030.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC. Звери в Миниатюре / Super Small Animals (2017) WEB-DL [H.264
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001749.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC. Тигры: Охота на браконьеров / Tigers: Hunting the Tr
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001437.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC. Мир Природы. Миниатюрные Чудеса / Nature's Minia
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001415.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001147.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999347.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ BBC: Мир природы. Последний Гризли Райской До�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998315.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991802.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987954.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985341.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983361.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982115.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980400.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978294.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977563.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976087.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975382.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974281.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968575.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71A5EFBB8E490379999F3D31787891F0CAF695F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359142   (966070) от 10.02.2020
-
-Времена года в дикой природе Америки / America's Wild Seasons (2019) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезон 1, серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966070.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Американские дикие сезоны» - это знаковый документальный четырёхсерийный фильм, о американской дикой природе запечатленной в течение одного года. На земле, в воздухе и под водой, изменяющиеся условия создают особую повествовательную нить, как каждый дикий житель сталкивается с проблемами жизни и смерти.Производство: США, MBM TV & Tamarin ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Джефф МоралесПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE79A8EC880339D6C542F59821E8E9CB1FE156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359209   (964997) от 11.02.2020
-
-Неразгаданные тайны грибов (2019) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество на протяжении всего своего существования соприкасается с миром грибов, где царят иные, неведомые нам законы. Ученые не раз выдвигали теорию, что грибы — это не флора, а фауна. А некоторые из них утверждают, что грибная общность — это настоящая цивилизация со своим коллективным разумом, управляющая всем миром.Производство: Россия, ООО Телекомпания "Кетцаль"Жанр: Документальный, познавательный, научно-популярныйРежиссер: Александр СидоровЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76507DBCB3D598EF5CB171BB789EAE6DB259DF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359428   (964003) от 12.02.2020
-
-Ночь на Земле / Night on Earth (2020) WEBRip [H.265/1080p] [10-bit] (серии 1-6) [EN / RU Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сериал показывает уникальные кадры ночного мира дикой природы. Когда заходит солнце, просыпается новый мир. Новые технологии открывают чудеса планеты в совершенно новом свете. По всему земному шару мы обнаруживаем скрытую сторону величайших в мире ландшафтов и животных.Производство: Великобритания, Plimsoll Productions, NetflixЖанр: Документальный, природа, флора, фаунаРежиссер: Самира УайлиПеревод: отсутствуетСубтитры: 29 языков, русские в том числеПродолжительность: серии x ~00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686C8EE6694AA1A37C8105C3F0DB32A451289330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359800   (961809) от 14.02.2020
-
-Формулы жизни / Discovering Life’s Formulas (2010) WEB-DLRip [H.264/720p-LQ] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Математическому порядку подчиняется вся жизнь дикой природы – уверены авторы этой документальной познавательной передачи из Южной Кореи. Именно точной науке чисел и закономерностей мы обязаны тем, что имеем шансы понять живую природу и проникнуть в ее тайны. На примере Африки, ее растительности и животного мира зрителям предлагается постичь математические принципы (   Читать дальше...   )Производство: Южная Корея / Educational Broadcasting SystemЖанр: Документальный, фауна, флораРежиссер: Kim Hyung-joon, Mun Hyun-sikПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 2 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C498D9267C8E8DFA362B35F77C1625C09E56FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1675150   (160367) от 08.11.2023
+
+Ход конем (1962) DVDRip [H.264/1080p] [handmade upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатилетний Алёшка Лёвшин (Борис Кузнецов) хочет стать высококлассным трактористом, но его не допускают к учёбе из-за возраста. Тогда он меняется документами со старшим товарищем — прицепщиком Колькой Лопатиным (Савелий Крамаров), мечтающим о беззаботной жизни в городе.
+В итоге Колька связался со стилягами, а Алёшка получает диплом с отличием, однако всё равно (   Читать дальше...   )Производство: СССР, МосфильмЖанр: комедияРежиссер: Татьяна ЛукашевичАктеры: Анатолий Папанов, Татьяна Пельтцер, Юрий Белов, Михаил Пуговкин, Савелий Крамаров, Станислав Чекан, Борис Кузнецов, Афанасий Кочетков, Виктор Хохряков, Николай БарминПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0520C102CC5663ED14BB3B23344ACFBCD61D672F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675083   (160344) от 08.11.2023
 
 Кокаин / Blow (2001) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +33,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160344.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160119.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160109.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160094.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160072.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160058.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160054.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159426.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159196.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159194.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159192.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159165.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159122.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159060.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158020.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ Firehouse - Видеоколлекция от ALEXnROCK (2017) WEBRip [H.264/720
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157389.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157380.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156894.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156677.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156164.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155519.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155168.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155155.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155010.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154989.jpg" />
 </div>
 
 
@@ -652,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35BAB3D5B15E42E442AB365FD1347A1F024EA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269941   (154772) от 20.12.2018
-
-Владимир Кузьмин - О чем то лучшем Live (2004) от ALEXnROCK WEBRip
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый лучший концерт русского рокера! Издатели оригинального DVD напортачили с видео и загубили напрочь звук. Видео почистил от шума и звук вставил с CD версии концерта. Всем любителям творчества Кузьмина и настоящего, крутого рока, рекомендую! Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01. 17 лет
-02. Еще вчера
-03. Когда меня ты позовешь?
-04. Я не Казанова(   Читать дальше...   )Жанр: RockПродолжительность: 02:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3376B0CB78E6E8EFA8986DC54FE808EEE2EDE4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1505254   (236737) от 26.10.2021
+
+MacCleanse 10 v10.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита для комплексной очистки кэша, удаления лог-файлов и очистки системы от мусора. MacCleanse в считанные минуты проделает все операции, на которые бы потребовалось несколько часов ручной работы. Она умеет удалять приложения и неиспользуемые языковые пакеты, очищать кэш, удалять лог файлы и cookies, стирать историю посещенных веб-страниц, находить и удалять старые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: © Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2694334816007056596FDAD43911CDCFD4D05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455983   (236729) от 21.03.2021
+
+aText 2.37 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236729.jpg" />
+</div>
+
+
+###  Подробнее
+
+AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 20.03.2021Разработчик: Tran Ky NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3851E024339CECC785206F3EEF3D8272B0267E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641137   (236725) от 21.06.2023
 
 VueScan Pro 9.8.07 ARM/Intel [Multi/Ru]
@@ -6,7 +58,7 @@ VueScan Pro 9.8.07 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236725.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ TrashMe 3 v.3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236713.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ TinkerTool System 7 v7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236694.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Allavsoft Video Downloader Converter 3.25.7.8568 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236660.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ File List Export 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236659.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Bartender 4 v4.0.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236658.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Sublime Merge 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236657.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Typora for Mac 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236643.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Display Maestro 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236623.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ GraphicConverter for Mac 12.0.2 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236622.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Nevercenter CameraBag Photo 2023.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236605.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ iShot Pro-ScreenShot Recording 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236592.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Lungo 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236590.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ QLab 5.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236584.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Omni Recover 3 v3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236582.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Posterino 3 v3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236577.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Nevercenter CameraBag Pro 2023.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236574.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Yate 6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236570.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ DRmare Tidal Music Converter 2.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236556.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ FinalShot 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236555.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ MenuBar Stats 3 v3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236551.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Smart Disk Image Utilities 2.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236542.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Advanced Duplicate Cleaner 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236528.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Performance Index 64 Pro 4.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236524.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ Performance Index 64 Pro 4.2.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C2A33EB30AD39FFF17A37D4F865FC0631F3A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456552   (236520) от 22.03.2021
-
-Acorn 7 v7.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
-Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2021Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D227C2EF39EE52DD46BF15F838774B1CF06E3C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609129   (236517) от 02.02.2023
-
-ProFind 1.21.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48856FC93E1521A7B4E4E83666C063DA8B8F95C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

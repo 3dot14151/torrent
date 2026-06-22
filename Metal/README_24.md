@@ -1,3 +1,119 @@
+###  Публикация: 1110499   (852280) от 03.03.2017
+
+Bungler - The Nature Of Being New (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finders Keepers, Takers Leavers (02:55)
+02. Ex Wheels (02:32)
+03. Double Glare (02:58)
+04. Rotting Fruit (Is for the Birds) (03:08)(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F7CB9F31BAD708BB8A19EFD1EBF0773F3DE2D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110506   (852268) от 03.03.2017
+
+Vitja - Digital Love (2017) [MP3|320 Kbps] <Metalcore, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scum (02:47)
+02. D(E)ad (03:57)
+03. No One as Master No One as Slave (04:25)
+04. Roses (03:10)(   Читать дальше...   )Жанр: Metalcore, ProgressiveПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EFE1181E495BF08A33E7E2EC25DED85AB616D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110699   (852172) от 03.03.2017
+
+Warbiff - Pig's Parliament (2017) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852172.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Declaiming War… Blessed for What?
+2. Eternal Violence
+3. Pig's Parliament
+4. Face Your Enemies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD926BFD5E3944ECC8D7FEEE3C2194D84B34708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110512   (852170) от 03.03.2017
+
+Trayce - Miragem (2017) [MP3|320 Kbps] <Nu Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nascente (02:11)
+02. Queda Livre (04:41)
+03. Domadores (04:19)
+04. O Culto (03:33)(   Читать дальше...   )Жанр: Nu Metal, Groove MetalПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219CFBDA3F549BD5B441E649535500FDB19B19D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110503   (852161) от 03.03.2017
 
 Our Hollow, Our Home - Hartsick (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
@@ -6,7 +122,7 @@ Our Hollow, Our Home - Hartsick (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852161.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Within The Ruins - Halfway Human (2017) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852030.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Emmure - Look At Yourself (2017) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852023.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sinister - Syncretism (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851919.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Andromida - 3 альбома + 3 EP (2016-2020) [MP3|320 Kbps] <Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851889.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ Infant Annihilator - The Elysian Grandeval Galeriarch (2016) [MP3|320 Kbps] <Tec
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851842.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Judas Priest - Battle Cry (2016) Live / Bootleg [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850299.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ The Ghost Inside - Aftermath (2020) Single [MP3|320 Kbps] <Metalcore, Melodic Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850161.jpg" />
 </div>
 
 
@@ -232,7 +348,7 @@ Trivium - What the Dead Men Say (2020) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850084.jpg" />
 </div>
 
 
@@ -261,7 +377,7 @@ Katatonia - City Burials (2020) [MP3|320 Kbps] <Doom Metal, Depressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849889.jpg" />
 </div>
 
 
@@ -290,7 +406,7 @@ SpellBlast - Nineteen (2014) [MP3|320 кб/с] <Rock, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849114.jpg" />
 </div>
 
 
@@ -319,7 +435,7 @@ Axenstar - Far From Heaven (2003) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849111.jpg" />
 </div>
 
 
@@ -348,7 +464,7 @@ Hellshaker - The Contract (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849108.jpg" />
 </div>
 
 
@@ -377,7 +493,7 @@ Battlesword - Banners Of Destruction (2016) [MP3|320 кб/с] <Death Metal,Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848997.jpg" />
 </div>
 
 
@@ -406,7 +522,7 @@ Dead Territory - Mind Of Damnation (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848995.jpg" />
 </div>
 
 
@@ -435,7 +551,7 @@ Path Of Destiny - Dreams in Splendid Black (2016) [MP3|320 кб/с] <Symphonic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848986.jpg" />
 </div>
 
 
@@ -464,7 +580,7 @@ The Algorithm - Brute Force (2016) [MP3|320 кб/с] <Progressive Metal, Electro
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848785.jpg" />
 </div>
 
 
@@ -493,7 +609,7 @@ The Ocean - Pelagial (2013) Limited Edition [MP3|320 кб/с]<Progressive Metal 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847736.jpg" />
 </div>
 
 
@@ -522,7 +638,7 @@ Persefone - Aathma (2017) [MP3|320 Kbps] <MDM, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846753.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ Doro - Love's Gone To Hell (2016) EP [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844921.jpg" />
 </div>
 
 
@@ -580,7 +696,7 @@ Tommy Vitaly - Indivisible (2017) [MP3|320 Kbps] <Power Metal, Neoclassical Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844851.jpg" />
 </div>
 
 
@@ -609,7 +725,7 @@ Moonsorrow - Jumalten Aika (2016) 2CD Limited Edition [MP3|320 кб/с] <Folk Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843491.jpg" />
 </div>
 
 
@@ -623,122 +739,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3E86A502B1994C36E37D9C1E89D9B83A2CF47E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112446   (843303) от 08.03.2017
-
-Victorius - Heart of the Phoenix (2017) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Warriors
-02. Hero
-03. End of the Rainbow
-04. Die by My Sword(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7445FA9DC187D2778A3908B773A61FDBDE6684C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112203   (843300) от 08.03.2017
-
-Fen - Winter (2017) Deluxe Edition [MP3|320 Kbps] <Atmospheric Black Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843300.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. I (Pathway)
-2. II (Penance)
-3. III (Fear)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-RockПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78EFD947777DE799DD724D24D2E56CABCAB191AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112443   (843290) от 08.03.2017
-
-Cellador - Off The Grid (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sole Survivors
-02. Break Heresy
-03. Shadowfold
-04. Wake Up the Tyrant(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C12AC0D625E06EDF8796CEE57B82C202993F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112372   (843191) от 08.03.2017
-
-Earthists. - Dreamscape (2017) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamscape (04:01)
-02. Footprints (04:20)
-03. Absolutely Zero (03:24)
-04. Resonating Light (ft. Ichika) (04:02)(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E35D8FA64DF9482147DA18B790CE355CD358B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

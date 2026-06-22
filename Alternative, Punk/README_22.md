@@ -1,3 +1,32 @@
+###  Публикация: 1404864   (489405) от 27.08.2020
+
+Seether - Si Vis Pacem, Para Bellum (2020) [MP3|320 Kbps] <Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead And Done
+02. Bruised And Bloodied
+03. Wasteland
+04. Dangerous(   Читать дальше...   )Жанр: Post-GrungeПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46144A97D924D28C0AD231A1A3DDAA4AB1B3B1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937240   (489265) от 14.09.2015
 
 Brutto - Родны Край (2015) [MP3|320 кб/с]<Punk Rock>
@@ -6,7 +35,7 @@ Brutto - Родны Край (2015) [MP3|320 кб/с]<Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489265.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Brutto - 2 Альбома, 5 Синглов (2014-2015) [MP3|320 кб/с]<Punk R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487203.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gotye - 7 релизов (2003-2012) [MP3|320 кб/с]<Indie/Electronic/Downtemp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486662.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Pinghost - Palingenesis (2020) EP [MP3|320 Kbps] <Progressive Metalcore, Post-Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485821.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Volatile Ways - Condemned to Life, Burdened to Death (2020) [MP3|320 Kbps] <Beat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485723.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Clt Drp - Without the Eyes (2020) [MP3|320 Kbps] <Garage Punk, Electroclash, Syn
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485465.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Dave Matthews Band - Away from the World (2012) Deluxe Edition [MP3|~245 кб/с
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480743.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ David Byrne & St. Vincent - Love This Giant (2012) [MP3|320 кб/с]<Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480620.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Celldweller - Blackstar (Original Score) (2015) [MP3|320 кб/с]<Industrial, Al
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479680.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ Green Day - Revolution Radio (2016) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478926.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ Dj Make Illusional a.k.a Project Oxid - 13 релизов (2004-2012) [MP3|320 �
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476183.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Blue Stahli - Antisleep Vol. 04 (2017) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475862.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Eskimo Callboy - The Scene (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475744.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ The Dead Weather - Dodge & Burn (2015) [MP3|320 кб/с]<Alternative Rock, Garag
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475671.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Shinedown - Threat To Survival (2015) [MP3|320 кб/с]<Alternative Metal, Hard 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475274.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Capture (ex-Capture the Crown) - Lost Control (2019) [MP3|320 Kbps] <Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475198.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Deli Girls - BOSS (2020) [MP3|320 Kbps] <Synth Punk, Digital Hardcore, Electro-I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475159.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Marilyn Manson - We Are Chaos (2020) [MP3|~245 Kbps (V0)] <Alternative Metal, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474756.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ NIRVANA - Nevermind (1991) [MP3|320 kbps]<Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474686.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Dangerkids - Collapse (2013) [MP3|320 кб/с]<Rap Rock / Alt. Rock / Post-Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474665.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ Cortez The Killer - Car Crash Music (2009) EP [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473295.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Thousand Thoughts - The First Wave (2020) EP [MP3|320 Kbps] <Alternative Rock, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473081.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Yellowcard - Yellowcard (2016) [MP3|320 Kbps] <Pop Punk, Alt.Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473052.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Modern Day Babylon - The Ocean Atlas (2015) EP [MP3|320 кб/с]<Progressive Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471324.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Simple Plan - Get Your Heart On (2012) [MP3|320 кб/с]<Pop-Punk / Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469750.jpg" />
 </div>
 
 
@@ -730,35 +759,6 @@ Simple Plan - Get Your Heart On (2012) [MP3|320 кб/с]<Pop-Punk / Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2B7723474B2801E669106B24948D39228624862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320626   (469274) от 19.08.2019
-
-Tash Sultana - Notion (2016) EP [MP3|320 Kbps] <Psychedelic rock, alternative rock, reggae rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synergy
-02. Gemini
-03. Notion
-04. Jungle(   Читать дальше...   )Жанр: Psychedelic rock, alternative rock, reggae rockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6835EB6BA9AEC93D8C44A7626BC2FDA1A9A064BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

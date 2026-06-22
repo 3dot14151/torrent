@@ -1,3 +1,55 @@
+###  Публикация: 1550341   (592488) от 10.05.2022
+
+Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 408-458 (2022) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разбивка текста сказок на ночи происходила на последнем этапе их обработки, когда они попадали в руки компилятора, составлявшего очередной сборник «Тысячи и одной ночи». При отсутствии материала на нужное количество «ночей» составитель пополнял его из письменных источников, заимствуя оттуда не только мелкие рассказы и анекдоты, но и длинные рыцарские романы.Жанр: Зарубежная классика, Сказки, НовеллыПродолжительность: 03:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D77D636B41EDE92A4572CA1EEEBD18D3B5145C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550637   (592103) от 11.05.2022
+
+Эрих Мария Ремарк | Тени в раю (2019) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1944 год. После долгих скитаний по нацистской Германии и Европе, немецкий журналист Роберт Росс, казалось бы, наконец вытянул свой счастливый билет и оказался в тихой и безмятежной Америке. Но, как оказалось, без денег и с сомнительными документами, не так-то просто обустроиться в новой жизни. В этом безупречном и прекрасном мире он по-прежнему остается никому не (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 14:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946A8698D456B1AA8019F2B4A088614DDB6CFF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550631   (592101) от 11.05.2022
 
 Эрнест Хемингуэй | Праздник, который всегда с тобой (2020) [MP3, Сергей Чонишвили]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592101.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591639.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591569.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590223.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587696.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586474.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585790.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584635.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583966.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583702.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583696.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582819.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582465.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581061.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579593.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579533.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579483.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579478.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579423.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579421.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575778.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575752.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575679.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574693.jpg" />
 </div>
 
 
@@ -638,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E91B1EA61475A24116DC6EEE5E1E61862D9CEDD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043079   (574663) от 15.08.2016
-
-Александр Островский | Богатые невесты (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьеса «Богатые невесты» была опубликована на страницах журнала «Отечественные записки» ровно 135 лет назад, в феврале 1876 года.
-Попав в зазеркалье сытой и обеспеченной жизни, трудно поверить, что где-то существует другая. Общее желание быть в ногу со временем больших денег и удовлетворения ВСЕХ потребностей не оставляет надежды не заразиться стремлениями большинства. (   Читать дальше...   )Жанр: Пьеса, комедияПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B97BE14AD09DA72D69067F267E2A36D11F2ED07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554928   (574010) от 01.06.2022
-
-Виктор Астафьев | Звездопад (1980) [MP3, Олег Борисов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть Виктора Астафьева «Звездопад» напоминает исповедь. Читателю видится немолодой уже, зрелый человек, который заглянул в свое прошлое и увидел в нем сквозь кровавые военные картины блики первой любви, самой чистой, беззаветной, незабываемой. В этой повести много автобиографического. Главный герой «Звездопада» Михаил тоже сибиряк, воспитывался в детском доме, (   Читать дальше...   )Жанр: Классика, РадиоспектакльПродолжительность: 01:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D08F3A83F39907AC53F448BEDEE5E3A414C405
 ```
 
 https://mybot314.ru/tekegram_catalog/

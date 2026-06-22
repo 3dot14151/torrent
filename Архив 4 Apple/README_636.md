@@ -1,3 +1,56 @@
+###  Публикация: 1518319   (156337) от 19.12.2021
+
+Tap Forms Organizer 5 v5.3.23 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tap Forms Organizer простое в использовании, абсолютно настраиваемое и очень мощное приложение. Tap Forms Organizer поможет вам отслеживать всю наиболее важную информацию вашей жизни. Tap Forms Organizer - настраиваемое приложение базы данных, оно разработано, чтобы удовлетворить Ваши уникальные потребности на работе, дома или в движении.
+Используйте Tap Forms Organizer (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 Tap Zapp Software Inc.Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648C0F4372106EDD4B69252CD170490C8E99C39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270528   (156336) от 19.12.2018
+
+Path Finder 8.3.7
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4652FEC05FFAE61C6B89A497237DC0FE05C55A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258255   (156323) от 19.12.2018
 
 DxO PhotoLab 2 2.1.0 build 14 [Multi]
@@ -6,7 +59,7 @@ DxO PhotoLab 2 2.1.0 build 14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156323.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Resolutionator 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156295.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156270.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ GlueMotion 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156234.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ Scrollow 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156222.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ Geekbench 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156215.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156211.jpg" />
 </div>
 
 
@@ -199,7 +252,7 @@ iReal Pro 2021.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156183.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ AirFoil+Airfoil Satellite 5.10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156165.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ Viper FTP 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156150.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ Music Tag Editor 5.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156133.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ iCompta 6 v.6.0.60 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156132.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11629 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156117.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ EdgeView 3 v.3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156085.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ Live Home 3D Standart 3.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156002.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155991.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ Disk Xray 2.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155990.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ Loopback 2.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155981.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ EtreCheck Pro 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155960.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ Deflection 5.15.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155955.jpg" />
 </div>
 
 
@@ -549,7 +602,7 @@ GraphicConverter 11 v11.1.2 (build 4216) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155944.jpg" />
 </div>
 
 
@@ -575,7 +628,7 @@ Master of Typing - Мастер Печати на Китайском  3.2.2 [Mul
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155938.jpg" />
 </div>
 
 
@@ -601,7 +654,7 @@ The Clock - The Best World Clock 4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155930.jpg" />
 </div>
 
 
@@ -628,7 +681,7 @@ FSNotes 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155927.jpg" />
 </div>
 
 
@@ -639,59 +692,6 @@ FSNotes - это менеджер текстовых заметок для macOS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3351F511C99EA0640E4CF81D6600D826122D464F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346942   (155922) от 21.12.2019
-
-Scherlokk - Files finder 4 v4.1.6 (build 41602) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scherlokk является утилитой для быстрого поиска одного файла для точного и надежного поиска каждого файла, который соответствует критериям поиска. Музыка, изображения, закладки, документы и т.д., можно найти быстро и легко. Поиск может быть сделано в любой папке и на любом диске в том числе на съёмных носителях (pendrives, карты памяти, USB-диски), сетевой диск (AFP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E29825B95F3F0E34F71EC0FEA020CC2EEBB328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518323   (155916) от 19.12.2021
-
-FxFactory Pro 7.2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155916.jpg" />
-</div>
-
-
-###  Подробнее
-
-FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
-Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 Noise Industries, LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B24B458AF838D87FC66EC5AAEF4B72EB867213
 ```
 
 https://mybot314.ru/tekegram_catalog/

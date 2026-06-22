@@ -6,7 +6,7 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114170.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109859.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107356.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107132.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105470.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105116.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105089.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105061.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105008.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ji Jia Shou Shen: Baolie Feiche 2 | Screechers Wild 2! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104978.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры!
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104977.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, де�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104673.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103862.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100618.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68608.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67417.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67388.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67333.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66931.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65653.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65480.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65144.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64911.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62814.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62742.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62564.jpg" />
 </div>
 
 

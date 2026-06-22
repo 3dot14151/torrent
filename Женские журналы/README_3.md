@@ -1,3 +1,29 @@
+###  Публикация: 1361537   (954221) от 20.02.2020
+
+Журнал | Elle Canada №3 (март 2020) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle — французский женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01363F46089E02ECC8679FCFCC6B88751A53E6B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361699   (954217) от 20.02.2020
 
 Журнал | Elle España №3 (март 2020) [PDF] [Es]
@@ -6,7 +32,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954217.jpg" />
 </div>
 
 
@@ -24,6 +50,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749771   (953037) от 26.01.2014
+
+Журнал | Cosmopolitan [Украина] №2 (февраль 2014) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_953037.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Cosmopolitan" – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4826976D14CC7DD46732CBF06FCA19632E3D4D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361769   (952434) от 21.02.2020
 
 Журнал | Elle [France] №45 (ноябрь 2019) [PDF][Fr]
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952434.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952404.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952399.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952362.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952354.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952348.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951329.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951230.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951082.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948318.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948316.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947438.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947437.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947433.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947432.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947326.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942915.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942911.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942809.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941233.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940923.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940116.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940114.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BF4D6EB2E46EABB87CFF92B76E9F2470107BE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860385   (939031) от 17.01.2015
-
-Журнал | Женские секреты №2 (Февраль 2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939031.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Женские секреты» — популярный журнал для самостоятельных, настоящих женщин, которые занимают активную жизненную позицию. Основные рубрики журнала охватывают большую часть интересов современной женщины: взаимоотношения, мода, косметика, здоровье, спорт и многое другое..
-Дайждест самых главных женских секретов.Жанр: женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75142396186F77B4EE1FF5FFFFAFF47A9647119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860522   (938989) от 17.01.2015
-
-Журнал | Домашний очаг №1 [Украина] (январь 2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938989.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Домашний Очаг» — украинское издание всемирно известного журнала Good Housekeeping. Это добрый и профессиональный советчик, домашняя энциклопедия для женщин. Секрет его успеха в том, что каждая читательница может найти здесь полезную информацию.Жанр: женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81778478B16EB7CC34E1936536B015D0FB218B63
 ```
 
 https://mybot314.ru/tekegram_catalog/

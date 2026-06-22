@@ -1,3 +1,55 @@
+###  Публикация: 993021   (723527) от 05.06.2016
+
+Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражнений для ног
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723527.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ТРЕНИРУЙТЕСЬ ГДЕ ХОТИТЕ, КАК ХОТИТЕ И КОГДА ХОТИТЕ!». В спортзале или в парке, с гимнастическим оборудованием или даже без гирь и штанг и т.д.  Теперь вы можете тренировать ноги (бёдра, ягодицы и икры), выбирая тренировочные программы различной длительности и сложности.  Есть ли у вас всего несколько минут или несколько часов, доступен ли вам целый спортзал или только (   Читать дальше...   )Тип издания: Пиратка (Paid features Unlocked)Релиз состоялся: 01.04.2016Разработчик: Passion4Profession AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FE33A51D5D7E4FD2458124067670F3212D0935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993015   (723523) от 05.06.2016
+
+Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрое и эффективное упражнение для повышения упругости ягодиц, не требующее спортивного снаряжения. Можете выполнять это упражнение, когда и где вам это удобно. Идеальное решение для женщин, которые хотят вернуть себе форму перед летним отпуском.  Вы когда-либо думали о том, что тренировки могут из монотонного занятия превратиться в развлечение?  Благодаря этому (   Читать дальше...   )Тип издания: Пиратка (Paid features Unlocked)Релиз состоялся: 01.04.2016Разработчик: Passion4Profession AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5D4C1000F5992D98D6D29B158C12DA12F730BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993027   (723517) от 05.06.2016
 
 Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
@@ -6,7 +58,7 @@ Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723517.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723362.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722934.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ GlassWire для Android (Data Usage Privacy) 1.0.50r [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722276.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Balance BY Pro 6.0.203 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721822.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721328.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ iMuscle 2 v1.9 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720144.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ AdAway 4.3.6 и 5.0.6 Beta [Ru] - Блокировщик рекламы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716445.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716050.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ MScopesPro for USB Camera v1.28 [En/Rus] - запись видео с внешн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715874.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714536.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714408.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Infinite Design v3.4.21 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714310.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712176.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711768.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711608.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711569.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ MyTV v2.0.0-beta+1244 [Ru] - приложение для просмотра ТВ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711053.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Paper Camera v4.4.231 [Ru/Multi] - фотографии в виде рисунк
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711049.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707675.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Audiomack v5.7.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707516.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Persona: Бьюти-камера v1.3.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706699.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Remotix VNC RDP Remote Desktop v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706318.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ SURE Universal Remote v4.11.90 [Ru/Multi] - Универсальный пуль�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706313.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ SURE Universal - это универсальное решение дистанц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EA249820B206AE9742A91D163C348BE6B3F9394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895150   (702880) от 04.05.2015
-
-USB Camera Standard 2.1.2 [En] - запись видео с внешней веб камеры
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это Android приложение для отображения и записи видео с внешней USB камеры, которая подключена к смартфону или планшетному устройству через USB хост.Тип издания: ПираткаРелиз состоялся: 19.04.2015Разработчик: Infinitegra, Inc.Поддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE173B154117130E85A4E06E92C7AC42CE18880D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402382   (701582) от 14.08.2020
-
-Vocaberry  v2.7.3 [Ru] - научиться петь 0+ (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите научиться петь или развить и поддержать уже имеющиеся навыки? Технология Vocaberry позволяет в игровой форме и режиме реального времени определять и отображать точность попадания в ноты. Множество интересных и разнообразных упражнений и уроков помогут вам развить чувство ритма, голос, музыкальность и навыки вокала, бесплатно научит петь караоке. Приложение (   Читать дальше...   )Тип издания: Пиратка (Mod)Релиз состоялся: 05.07.2020Разработчик: adhocappПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E664303A71712D22D4314C251689384D5545F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

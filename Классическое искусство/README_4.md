@@ -1,3 +1,29 @@
+###  Публикация: 423167   (281590) от 17.12.2011
+
+Классическое искусство - Художник Boris Vallejo [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая коллекция работ Бориса Вальехо в стиле фэнтези. Он, безусловно, наиболее яркий художник этого направления. Именно он несколько лет назад сделал фантастическую живопись не просто комиксовой, а частью настоящего искусства, многие его работы уже успели стать классикой.Формат: JPGРазрешение файлов: от 460x525 до 3505x7087
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016C4CD830E699142C8484DFE530F5DD5A62F5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501786   (258605) от 26.05.2012
 
 Репродукции картин - Художник Jose Miguel Roman Frances [JPG]
@@ -6,7 +32,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258605.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145109.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144732.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131875.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90717.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89480.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89310.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89289.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89257.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78014.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65786.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30617.jpg" />
 </div>
 
 

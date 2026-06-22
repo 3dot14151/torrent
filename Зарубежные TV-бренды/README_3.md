@@ -1,3 +1,29 @@
+###  Публикация: 1443709   (1024478) от 25.03.2021
+
+History Channel: Древние пришельцы / Ancient Aliens (2020) WEBRip  [H.264/720p-LQ] [VO] (сезон 16, серии 1-3 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно ли, что разумные формы жизни посетили Землю тысячи лет назад, принеся с собой технологии кардинально повлиявшие на ход истории и развития человечества? Теория "древних пришельцев", опубликованная в 1968 году в бестселлере Эриха фон Деникена "Колесницы богов", пошатнула представления людей об общеизвестном прогрессе человечества. Древние (   Читать дальше...   )Производство: США, Prometheus Entertainment, A&E Television Networks, LLC., History ChannelЖанр: Документальный, научно-популярный, уфологияРежиссер: Кевин Барнс, Дэвид СильверПеревод: Одноголосый закадровый, любительский (FilmPlay)Субтитры: Английские (только 2-я серия), русскиеПродолжительность: серии x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F04F7BD2C44015BC4670EAA42C181118F98BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458339   (1023966) от 28.03.2021
 
 Трагедия близнеца Титаника. Крушение Британника / Titanic's Tragic Twin. The Britannic Disaster (2016) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023966.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023953.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Это Слейд / It's Slade (1999) TVRip [EN]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023609.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Маленькие гиганты / Tiny Giants (2014) UHD BDRemux [H.265/2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023603.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022909.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022873.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022205.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022204.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022166.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021870.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ BBC. Уродливая красота / Ugly Beauty (2009) DVB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021259.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ BBC. Идеальная планета / A Perfect Planet (2021) UHD BDRip [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020535.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Discovery. Автомир Майка Брюера / Mike Brewer's World of Cars 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020200.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019720.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019566.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ BBC. Шпион в снегах: Тайны снежных обитателей 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018896.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018888.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ PBS: Природа. Природа секса / Nature. The Nature of Sex. Sex 
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018697.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017185.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017178.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016207.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Animal Planet. Неизведанная Мексика / Wild Mexico (2014) HDTV
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014747.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014617.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ BBC: Шкала времени. Кто убил Сталина? / Time watch. Wh
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014263.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013940.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8710E6BEFE0C9513DDDB0D63B6DFA1A4E341F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473572   (1013450) от 30.05.2021
-
-Discovery: Nasa и SpaceX: путешествие в будущее / NASA and SpaceX: Journey to the Future (2020) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперты из SpaceX и NASA готовы навсегда изменить область исследования космоса. Заглянем за кулисы команд инженеров SpaceX, сотрудников НАСА и ученых, готовящихся к коммерческому полету на Международную космическую станцию.Производство: США / Storied Media Group for Science ChannelЖанр: Документальный, космосПеревод: Профессиональный двухголосыйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F7E33E43B6B554FCB1FE7EC149F7697309041D
 ```
 
 https://mybot314.ru/tekegram_catalog/

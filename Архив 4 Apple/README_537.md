@@ -1,3 +1,57 @@
+###  Публикация: 1512212   (233472) от 24.11.2021
+
+iShowU Instant (Advanced) 1.4.9  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF481F65FB79071BA97BD5288200FBDDCFAE33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627565   (233466) от 20.04.2023
+
+Things 3 v3.17.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2023Разработчик: Cultured Code GmbH & Co. KGПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6415A836A0A80E31748BFF9ED4737DC3B281E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512518   (233437) от 25.11.2021
 
 Magic Sort List 3.3.8 [En]
@@ -6,7 +60,7 @@ Magic Sort List 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233437.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Find Any File (FAF) 2.3.2 b8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233422.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ AltTab 6.60.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233395.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ TunesKit Audio Capture 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233381.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Dato 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233369.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233293.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ Multitouch 1.26.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233284.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ Amadeus Pro 2.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233264.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ CADintosh X 8.8.4 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233256.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ SQLPro for SQLite 2023.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233235.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Acorn 7 v7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233223.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233222.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Clipboard Manager 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233215.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ PullTube 1.8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233208.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Screenium 3 v3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233206.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ Task Office 8.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233188.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ GrandTotal 8.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233180.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ Reader for Mac 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233124.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ CleanShot X 4.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233077.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ MediaInfo for Mac 23.06 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233047.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ Hides 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233037.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ Feeder 4 v.4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232950.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ CleanShot X 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232943.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232941.jpg" />
 </div>
 
 
@@ -633,59 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5C2D1C2F5DF99924EFCC5A21667DF02BB4FF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541727   (232908) от 03.04.2022
-
-Speech 1.9.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speech объединяет все функции синтезатора речи macOS в единый удобный интерфейс. Доступно множество языков: выберите один из более чем 40 голосов и языков. Перетащите или вставьте текст в речь и начните читать/воспроизводить. Вы можете изменить в любое время голос и скорость речи. Нажмите на слово для воспроизведения с определенной точки текста.
-Экспортируйте текст (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2022Разработчик: © HugyAppsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998632DDE58A3CD89FCBBBFF31B47F2E24C7CC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635142   (232802) от 24.05.2023
-
-PDF Expert 3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232802.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - редактор PDF. Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому. Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.05.2023Разработчик: © 2015-2023 Readdle Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CA4BEDDA1D1FDB764CFAE603E033912D846168
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1395949   (752035) от 12.07.2020
+
+Тайная жизнь тасманийского дьявола / Secret Life of the Tasmanian Devil (2016) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тасманийские дьяволы - это настоящие задиры животного мира: злющие, бесстрашные и всегда готовые к битве. А ещё они славятся необычайной прожорливостью. Но несмотря на то, что они находятся на вершине пищевой цепи, эти хищные сумчатые находятся на грани вымирания из-за смертельной болезни, которую они передают друг другу через укусы. Этот фильм - лишь небольшая часть (   Читать дальше...   )Производство: Великобритания, Blink FilmsЖанр: Документальный, природаПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 2 х ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DD0816D26AE41D08F3B7C0062892695373AEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281586   (751962) от 08.02.2019
+
+Наши любимые собаки / Our Favorite Dogs (2016) HDTVRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие породы традиционно ассоциируются с понятием "английский стиль", и как предпочтения британцев менялись с годами? Сегодня мы узнаем о самых популярных породах собак - и о том, почему же британцы души не чают в некоторых из них.Производство: Великобритания, Ricochet Ltd.Жанр: Документальный, природа, флора, фаунаРежиссер: Эмма УолшПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A189F8BB24FE32DD75211E19BAA5D831E8E89022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857211   (749853) от 23.05.2016
+
+Дикая Азия: Существа оттепели / Wild Asia: Creatures of the Thaw (2010) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимы в Северо-Восточной Азии настолько холодные, что пресная вода замерзает. Многие существа мигрируют в это время. Но те, что остаются, разработали сложные стратегии, чтобы пережить суровые зимы и воспользоваться коротким теплым летом в этом регионе.
+На этом увлекательном диске показаны: сибирский кликун, молодые розовые лососи, бурые лягушки, хохлатый зимородок (   Читать дальше...   )Жанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2451C6CF7780882D68768FF954370C65E0DC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216499   (749314) от 31.03.2018
+
+Магия болот / Magie der Moore (2015) BDRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заснеженные и сокрытые туманом болота, прозрачные озера и ревущие водопады, глубокие пещеры и живописные поселки, альпийские пейзажи и дикие животные - все это в новом фильме Жана Хафта, под расслабляющую музыку Сабольч Кови.Производство: Германия, Nautilusfilm, Polyband, Bayerischer Rundfunk (BR)Жанр: Документальный, природа, релаксация, флора, фаунаРежиссер: Жан ХафтПеревод: Одноголосый закадровый, профессиональныйСубтитры: русские, немецкие, немецкие (SDH)Продолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9735AD18AA0A323C986A67AFCF574804BD568E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216381   (749089) от 31.03.2018
 
 Времена года / Les Saisons (2015) BDRemux [H.264/1080p]
@@ -6,7 +111,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749089.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746554.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746550.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745829.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743733.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ IMAX. Жизнь глубин (На глубине) / Into the Deep (1994) BDRem
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743505.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742351.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742334.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742239.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741805.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741300.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740198.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739104.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739023.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738749.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738414.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738053.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736800.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735836.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732697.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732465.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731947.jpg" />
 </div>
 
 
@@ -563,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1C6C13DFCA39570DF4EAC205D90B2C6108C7225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530866   (727722) от 12.02.2022
-
-Животный мир Скалистых гор / Wild Rockies (2015) WEB-DL [H.264/1080p] (серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикие Скалистые горы протянулись почти на 5000 км через международные границы, достигнув тысяч футов в небе - это больше, чем просто массивные горы, они чудовищные. Горы перенесут вас в некоторые из уникальных экосистем этой обширной горной цепи и познакомят вас с животными, от диких лошадей в пустынной долине Оканаган, до медведей-гризли, отгоняющих лосося из рек, (   Читать дальше...   )Производство: Канада, Whistlestop Productions INC, Arcadia EntertainmentЖанр: документальный, флора, фаунаРежиссер: Джон БановичПеревод: двуголосый профессиональныйСубтитры: английскиеПродолжительность: 5x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE24147FBEA08C82ADC277A67E3F67A1ABB2F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531069   (726602) от 13.02.2022
-
-Заповедники (2018-2019) HDTV [H.264/1080i] (фильмы 1-8)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем насладиться живописной природой и понаблюдать за животными в их естественной среде обитания. Мы расскажем о работе инспекторов заповедников, с риском для жизни сражающихся с браконьерами, а также о том, как энтузиасты спасают животных и птиц, чтобы снова вернуть их в дикую природуПроизводство: Россия, первый твчЖанр: документальный, познавательный, природа, путешествияРежиссер: Тамара ПронинаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 8x ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112028E3606DA2929A4C82329363570AB4DE0882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713182   (723625) от 05.06.2016
-
-Удивительная Амазонка. Южная Америка / Faszination Amazonas (2012) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в джунгли Амазонки! Этот фильм увлечет вас в незабываемое путешествие по одному из самых экзотических уголков планеты. Река Амазонка течет среди самого большого в мире тропического леса. Это - целый зеленый мир, дающий приют сотням тысяч видов растений и животных. Окунись в жизнь тропиков, не выходя из дома!Производство: Германия, Los Banditos FilmsЖанр: Документальный, природаРежиссер: Бенжамин Айхер, Тимо ДжонПеревод: Одноголосый закадровый профессиональныйСубтитры: русскиеПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CC6D7EFD71D16CD3F90086F22C6D773B930E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218574   (721389) от 10.04.2018
-
-Дикий Север / Wild North (2015) WEB-DLRip [H.264/1080p-LQ] (Серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721389.jpg" />
-</div>
-
-
-###  Подробнее
-
-От пышных лесов на юге через горы и ледники вдоль разрезанной береговой линии Норвегии до арктических островов Шпицбергена и Баренцевого моря - таков дальний север Европы. Выжить здесь могут лишь те, кто разгадал тайну природы. Фауна Скандинавии скрытна и незаметна. Сотни лет охоты и рыбалки окончательно подорвали доверие к людям, поэтому подобраться к животным невероятно (   Читать дальше...   )Производство: Дания, Норвегия, Loke Films, NaturbilderЖанр: Документальный, фауна, флораРежиссер: Арне Наевра, Адам ШмедесПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: Английские, Английские (SDH)Продолжительность: 3 х ~ 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865487E12C402C8AD2992D7A7BC118012307C9F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

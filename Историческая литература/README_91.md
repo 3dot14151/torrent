@@ -1,3 +1,109 @@
+###  Публикация: 1270673   (155661) от 20.12.2018
+
+А. М. Плеханов, А. А. Плеханов (сост.) | ВЧК. 1917-1922. Энциклопедия (2013) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155661.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ВЧК. 1917—1922. Энциклопедия» — систематизированное научно-справочное издание, в котором аккумулированы современные знания о Всероссийской чрезвычайной комиссии по борьбе с контрреволюцией, саботажем и преступлениями по должности при СНК РСФСР.
+
+Оно дает толкование терминов (понятий), раскрывающих основные направления деятельности органов и войск ВЧК: борьба с экономическими (   Читать дальше...   )Жанр: История, политология, документалистика, публицистика, биографияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7221CEED2486ECA96984EDFFEA3FA4CAD16D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968318   (155489) от 23.12.2015
+
+Эшли Вэнс | Илон Маск. Tesla, SpaceX и дорога в будущее (2015) [FB2, PDF, DOCX]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155489.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге "Илон Маск. Tesla, SpaceX и дорога в будущее" автор представляет независимый и разносторонний взгляд на жизнь и достижения самого яркого предпринимателя Кремниевой долины. Вэнс провел более 50 часов в беседах с Маском и опросил около 300 человек, чтобы рассказать невероятную историю основания великих компаний PayPal, Tesla Motors, SpaceX и SolarCity (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B2C967EBBC58203F8F3AB912B724D1CF683A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500273   (155387) от 21.12.2020
+
+Подборка книг | «Белое движение» [1920-2012] [FB2, PDF, DjVu, DOC, TXT]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бе́лое движе́ние (также встречалось «Белое дело», «Белая идея») — военно-политическое движение разнородных в политическом отношении сил, сформированное в ходе Гражданской войны 1917—1923 годов в России с целью свержения советской власти. Включало в себя представителей как умеренных социалистов и республиканцев, так и монархистов, объединённых против большевистской (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2, DOC, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA9021101596E9DE9E07C4CF784A450F804D951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347309   (154148) от 22.12.2019
+
+Ф. Анулов | Вооруженное восстание (1930) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154148.jpg" />
+</div>
+
+
+###  Подробнее
+
+В марксистско-ленинской литературе неоднократно подчеркивалось огромное значение правильной военной подготовки, организации и проведения вооруженного восстания пролетариата. Работа т. Анулова посвящена конкретному разбору этих вопросов, на опыте главным образом вооруженных восстаний российского пролетариата в 1905 и 1917 гг. Рассматривая вооруженное восстание как (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D3B0628C3A407AC9FDAC0A83E4D702347F13FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086607   (152798) от 24.12.2016
 
 Л. М. Сурис (ред.) | Политический сыск, борьба с террором. Будни охранного отделения. Воспоминания (2016) [PDF, FB2, EPUB]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152798.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152537.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152415.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152380.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152376.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152095.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151973.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151470.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151090.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150385.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149436.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148822.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148676.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147845.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147658.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147593.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147563.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147523.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147121.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146944.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146633.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145904.jpg" />
 </div>
 
 
@@ -573,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88299E2AA924FA81493FE07A1183255D2C38D05C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969744   (145718) от 28.12.2015
-
-Сесил Битон | Зеркало моды (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сесил Битон – культовый английский фотограф, автор портретов монархов, звезд экрана и сцены. Он превосходно рисовал, создавал костюмы и декорации к фильмам и театральным постановкам, много путешествовал, снимал страны и людей, писал статьи и мемуары. Книга «Зеркало моды» имела огромный успех, ее не раз переиздавали и переводили на другие языки. Она поистине уникальный (   Читать дальше...   )Жанр: История модыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C03F9BFB7ECC15B4BB943D53DF936BA1CBA7DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348072   (145545) от 26.12.2019
-
-В. М. Мирошевский | Освободительные движения в американских колониях Испании от их завоевания до войны за независимость [1492-1810 гг.] (1946) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателя книга представляет посмертное издание труда Владимира Михайловича Мирошевского (1900—1942), крупного советского общественного деятеля и ученого, отдавшего всю страсть своего сердца, все силы своего ума, всю, до последнего вздоха, жизнь служению родине и науке.
-
-С юношеских лет В. М. Мирошевский выдвинулся на партийной большевистской (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F10A149FFC4FB35F437F268A28C08299D25FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087575   (145064) от 28.12.2016
-
-Дж. Бернал | Мир без войны (1960) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагая эту книгу вниманию советского читателя, я не претендую на то, чтобы удивить его чем-либо потрясающе новым, так как новое в мире является отчасти отражением героических достижений советского народа. Я надеялся исчерпывающим образом показать, что советский народ использовал знания и изобретательность человеческого ума для созидания и улучшения своего благосостояния, (   Читать дальше...   )Жанр: История, политология, экономика, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B00DC59A849EA700BD2BED551B5208ACCA0948B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348386   (144934) от 27.12.2019
-
-Ю.П. Супруненко | Москва подземная. Крона и корни великой тайны (2011) [PDF, FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного российского писателя, путешественника, кандидата географических наук Ю.П. Супруненко приглашает в путешествие по малоизученным, а порой и неведомым районам Москвы и Московской области подземной части столицы и региона. Именно с ней связано большинство легенд и загадочных историй, уходящих корнями в глубокую древность. Известны и современные предания, (   Читать дальше...   )Жанр: Историография, АрхитектураФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C4E54F05936DE6110CF9667276D2E6C7B48E8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

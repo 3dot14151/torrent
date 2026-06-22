@@ -1,3 +1,29 @@
+###  Публикация: 1087815   (141907) от 29.12.2016
+
+Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кайл Катарн, наёмник Альянса Повстанцев, давно знал, что его отца убили имперские прихвостни. Но он понятия не имел, что его отец был джедаем. Однако вскоре Кайл узнаёт, что существует некая Долина Джедаев, которая может наделить всякого Силой. Конечно, Ситы тоже положили на неё глаз. Ведь, чтобы обрести Силу, надо долго медитировать, нужны годы тренировки, а тут (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasArts EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5A8D26887C6035DE00925F01E6BF2119E4E2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195525   (141415) от 29.12.2017
 
 Transmissions: Element 120 (2016) [Ru] (1.06) Repack Other s
@@ -6,7 +32,7 @@ Transmissions: Element 120 (2016) [Ru] (1.06) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141415.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Catalyst [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140917.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Crypt of the Serpent King (2016) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139675.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138422.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Chameleon / Хамелеон [Ru] (RePack) 2005 | R.G.Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138306.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Delta Force Anthology / Антология Отряд Дельта (1998-2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137372.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137346.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136739.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Bioshock [En] (Steam-Rip/1.1) 2007 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135110.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ F.E.A.R. 3 [Ru/En/Multi9] (Steam-Rip/16.0.20.1060) 2011 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135057.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134338.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Monstrum (2015) [En] (1.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134037.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133607.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Forgive Me Father (2022) [Ru/Multi] (1.4.4.60) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133585.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133569.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Half-Life (1998) [Ru/En] (12833965) Repack dixen18 [25th Anniversary Update]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133563.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Dead Island. Game of The Year Edition [Ru/En/Multi8] (Steam-Rip/1.3.0) 2012 | R.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133330.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133259.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132823.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Singularity [Ru/En] (L/1.1) 2009
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132375.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131221.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131194.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130631.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Global Operations [Ru] (RePack) 2002 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130114.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ Clive Barker's Undying (2001) [En] (1.1hf) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129343.jpg" />
 </div>
 
 
@@ -671,32 +697,6 @@ Clive Barker's Undying (2001) [En] (1.1hf) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489AFE8D2ADB407327D9802A9651E2D079974574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824535   (128839) от 15.10.2025
-
-Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the Year Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение знаменитого ролевого шутера, заслужившего высокие оценки прессы и признание игроков. В команде с тремя соратниками по сети или же вдвоем с другом в старом добром режиме разделенного экрана отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову. Выберите героя, как следует снарядите его - по традиции в вашем распоряжении (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Экшены, ШутерыЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38613B5884CA6DCBE237A71289130D6586BB4C52
 ```
 
 https://mybot314.ru/tekegram_catalog/

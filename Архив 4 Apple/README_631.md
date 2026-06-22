@@ -1,3 +1,55 @@
+###  Публикация: 1599123   (160224) от 22.12.2022
+
+Default Folder X 5.7.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7019EB37D3E1E91AF8985183D7A4D7836885FF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599093   (160222) от 22.12.2022
+
+Tipard Mac Video Converter Ultimate for Mac 10.2.22 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите скачать видео с YouTube, Vimeo и других веб-сайтов по обмену видео на Mac? Вам нужно копировать и конвертировать DVD / видео в любые популярные форматы видео, такие как MP4, FLV, AVI? Вы хотите преобразовать 4K видео в 4K / 1080p, конвертировать 2D видео в 3D-формат? Или хотите повернуть, или улучшить качество видео, чтобы получить неожиданный визуальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2022Разработчик: © 2022 Tipard StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC08D056E52A0952BD47A096963F0105AA950FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599167   (160220) от 22.12.2022
 
 Aiseesoft Audio Converter for Mac 9.2.18 [Multi]
@@ -6,7 +58,7 @@ Aiseesoft Audio Converter for Mac 9.2.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160220.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Aiseesoft Mac Blu-ray Player 6.6.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160208.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Amadeus Pro 2.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160207.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ VueScan Pro for Mac 9.8.21 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160206.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ TunesKit AceMovi Video Editor 4.9.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160200.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ iCalamus 2 v.2.3 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160191.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160189.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ iStatistica 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160187.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ TunesKit Screen Recorder 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160185.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ OmniFocus Pro 3.14.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160184.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ VideoProc Converter 4K 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160181.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ OnlySwitch 2.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160176.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ DearMob iPhone Manager 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160136.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ iStatistica Pro 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160134.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ VideoProc Converter 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160120.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Luminar Neo 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160110.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Eon Timer 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160106.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Adobe Media Encoder for Mac 2024 v.24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160091.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Aiseesoft HEIC Converter 1.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160063.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Sublime Text Dev Build 4147 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160036.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Yate 6.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159960.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Dropshare 5 v.5.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159957.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ QLab 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159945.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Valentina Studio Pro 13.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159940.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ Valentina Studio - это идеальный инструмент управле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F646E6373C2854061B79C4F69F6BE6A3A711B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675855   (159931) от 10.11.2023
-
-Video Converter X2 for Mac 1.2.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
-Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965BC874B3E95F5BC2659AF312D0E32BF4F877A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675636   (159919) от 10.11.2023
-
-Aiseesoft Mac Video Converter Ultimate for Mac 10.5.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2023Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74B8EB0AF2DD0679F8B3F4815068CE8F1688F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

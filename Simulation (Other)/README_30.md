@@ -1,55 +1,3 @@
-###  Публикация: 1715048   (35895) от 28.11.2024
-
-Pacific Drive (2024) [Ru/Multi] (1.8.2/dlc) Repack dixen18 [Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pacific Drive - это атмосферное автомобильное приключение на выживание в зоне отчуждения. Здесь вы не найдете привычных гоночных трасс, но зато на вас будут поджидать сверхъестественные опасности, которые заставят вас сильно напрячься. Единственный шанс на спасение - ваша машина, которую придется укреплять и улучшать на протяжении всей игры. Придется искать ресурсы (   Читать дальше...   )Тип издания: RepackРазработчик: Ironwood StudiosЖанр: Экшены, Приключенческие игры, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3C23BEEAFA37B6973DB8F883A3BFF9FEC69D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763049   (35768) от 29.11.2024
-
-Luma Island (2024) [Ru/Multi] (1.19219) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в увлекательное приключение на остров Лума, в одиночку или с вашими друзьями и близкими. Постройте ферму своей мечты, освойте профессии, соберите магических Лумов, найдите сокровища и разгадайте тайны острова. Начните удивительное путешествие в старом, уютном трейлере и постройте настоящее поместье, которое можете с гордостью назвать своим домом.Тип издания: RepackРазработчик: Feel Free GamesЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFD6829D0A124385CB0A41859853A7BA4E9841D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748894   (35761) от 29.11.2024
 
 Satisfactory (2019) [Ru/Multi] (1.0.1.0/dlc) Repack dixen18
@@ -58,7 +6,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.1.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35761.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Half Billion: Love Choice (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35661.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.004r) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35596.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35544.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ DON'T SCREAM (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35376.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.25849S/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35263.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Icarus (2021) [Ru/Multi] (2.2.31.130582/dlc) Repack seleZen [Complete the Set]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35257.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35199.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35039.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34851.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34826.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34817.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Sun Haven (2023) [Ru/Multi] (1.7.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34758.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Primateria (2023) [Multi] (2.17.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34749.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34518.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34020.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Autopsy Simulator (2024) [Ru/Multi] (Build 153 413) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34005.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33909.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33795.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33486.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Oxygen Not Included (2019) [Ru/Multi] (647408/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33348.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.3.311/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33153.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32962.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32930.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73E86D4532018A2E044F3999413ACE3028613D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373403   (32892) от 27.12.2024
+
+The Universim (2018) [Ru/Multi] (1.2.0.48225) License GOG [Collector's Edition]
+
+>>След.
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32892.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Universim, симулятор бога, в котором успех вашей цивилизации зависит от грамотного управления планетой и собственным гневом. Ваши забавные человечки научились добывать огонь! Не успеете вы оглянуться, как они начнут строить деревни, затем города, затем впечатляющие приспособления, высасывающие из земли все соки, а затем, вероятно, и космические корабли, которые (   Читать дальше...   )Тип издания: LicenseРазработчик: Crytivo GamesЖанр: Simulation, Strategy, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEC6260B44E924C06DDD14878377231CC9A3E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484033   (32577) от 30.12.2024
+
+Transport Fever 2 (2019) [Ru/Multi] (35924.0/dlc) License GOG (обновляемая)
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transport Fever 2 – классический симулятор транспорта, продолжающий традиции серии, в котором вам предстоит построить собственную транспортную бизнес-империю. Откройте для себя совершенно новый мир, управляя транспортными маршрутами на суше, воде и в воздухе. Добейтесь прогресса, и путь к успеху гарантирован.Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulator, StrategyЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F039D84C029D02D9A633EFE630A94B249E489A54
 ```
 
 https://mybot314.ru/tekegram_catalog/

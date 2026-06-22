@@ -1,3 +1,110 @@
+###  Публикация: 1692736   (122324) от 17.01.2024
+
+BatchOutput PDF 3.1.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122324.jpg" />
+</div>
+
+
+###  Подробнее
+
+BatchOutput PDF упрощает вашу жизнь, автоматически распечатывая файлы PDF из папок на вашем компьютере. И это единственный инструмент для автоматизации печати PDF-файлов для Mac.
+Создавайте «горячие» папки для различных настроек печати и помещайте свои PDF-файлы в эти папки. BatchOutput PDF сделает все остальное автоматически, сэкономив вам время и хлопоты, связанные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2012-2020 Zevrix SolutionsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C549FFBD5B56BA4A33CAE0FF977991DFA89300E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692943   (122264) от 18.01.2024
+
+Disk Drill Enterprise 5.4.1426 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Enterprise - самое популярное приложение для восстановления данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
+После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 508 Software, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A77F6B7EF1D4D455CB7E56300B2350F4000C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692988   (122210) от 18.01.2024
+
+WiFi Explorer 3 Pro 3.6.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122210.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2012-2020 Intuitibits LLCПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D84F622202E2589D90A4A2FFFB9A48844F49BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692897   (122193) от 18.01.2024
+
+Numi 3.32 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Numi - необычный калькулятор, который «общается» с вами на обычном языке - понимает единицы измерения, слова и имеет очень простой интерфейс. Numi может работать с валютами и различными единицами измерения. Чтобы конвертировать одну валюту в другую, нужно ввести сумму строку перевода в нужную валюту, например, $9 в евро — ответ показывается справа автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.04.2023Разработчик: © 2024 Dmitry NikolaevПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB481CEE0CCD703C6A84639D9E47C47B96CA3D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692841   (122186) от 18.01.2024
 
 Eassiy Data Recovery for Mac 5.1.16 [Multi]
@@ -6,7 +113,7 @@ Eassiy Data Recovery for Mac 5.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122186.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ NCH Express Scribe Pro for Mac 13.00 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122169.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122165.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ News Headlines 4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122156.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Greeting Card Shop v.4.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122152.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ WiFi Explorer 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122149.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ Wizard 2 for Mac 2.0.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122148.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ Aiseesoft Mac FoneLab for Android 5.0.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122146.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ Apeaksoft Android Toolkit 1.2.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122145.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ MetaRename for Mac 1.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122136.jpg" />
 </div>
 
 
@@ -274,7 +381,7 @@ MetaVideo for Mac 1.1.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122135.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ Beyond Compare 5 for Mac 5.0 beta [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122019.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ Desktop Aquarium Wallpapers 2.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121898.jpg" />
 </div>
 
 
@@ -354,7 +461,7 @@ Weather Dock 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121876.jpg" />
 </div>
 
 
@@ -380,7 +487,7 @@ PhotosRevive for Mac 2.1.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121858.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ FoneDog Toolkit for Android on Mac 2.1.12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121850.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ One Chat Pro - All In One Messenger 4.9.95 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121842.jpg" />
 </div>
 
 
@@ -458,7 +565,7 @@ JaSFTP for Mac 13.8[En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121838.jpg" />
 </div>
 
 
@@ -484,7 +591,7 @@ n-Track Studio Suite 10.0.0 ARM [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121827.jpg" />
 </div>
 
 
@@ -511,7 +618,7 @@ n-Track Studio Suite 10.0.0 Intel [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121825.jpg" />
 </div>
 
 
@@ -538,7 +645,7 @@ Finder Windows 1.5.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121710.jpg" />
 </div>
 
 
@@ -564,7 +671,7 @@ Marked 2 - Markdown Preview 2.6.33 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121692.jpg" />
 </div>
 
 
@@ -576,110 +683,6 @@ Marked 2 — универсальный превью-инструмент для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2DE3E15BF17659A86446C83DBE75C53E690272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693903   (121598) от 22.01.2024
-
-Sketch 99.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch - это инструмент для векторного дизайна для Mac с акцентом на дизайн экрана. Он используется главным образом дизайнерами экрана, которые создают веб-сайты, значки и пользовательские интерфейсы для настольных и мобильных устройств. Мощные и простые в использовании инструменты Sketch для начинающих и профессионалов отрасли позволяют дизайнерам сосредоточиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © 2023 Sketch B.V.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF051E04187E4E94642CF697A884CEE8A609FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693886   (121481) от 22.01.2024
-
-2Do for Mac 2.8.5 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121481.jpg" />
-</div>
-
-
-###  Подробнее
-
-2Do делает реальным совершенно иной подход к управлению задачами. Благодаря чрезвычайно простому интерфейсу, и универсальному и гибкому набору мощных функций, программа позволяет сосредоточиться на том, что наиболее важно для вас: вашей жизни. 2Do невозможно использовать неправильным образом и, в отличие от других программ, он не заставляет вас придерживаться определенной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © 2009 - 2024 Beehive InnovationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ACC5ED081F9CAFE3A533729DDB151A91C070C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693804   (121437) от 22.01.2024
-
-TrashMe 3.5.6 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121437.jpg" />
-</div>
-
-
-###  Подробнее
-
-TrashMe — мощный деинсталлятор с другими замечательными полезными инструментами для очистки вашего Mac. Вы, наверное, когда-нибудь думали, что для удаления приложения достаточно переместить его в корзину? Это не совсем так, так как останется много файлов, созданных приложением (временные файлы, кеши, настройки…).Тип издания: macOS SoftwareРелиз состоялся: 05.01.2024Разработчик: © 2009-2024 JibappsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Француский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794ECF041FF71789BF664C3396ABACDFBCD7C87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694011   (121353) от 23.01.2024
-
-Lunar Pro for Mac 6.5.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lunar управляет той же яркостью, которую вы можете изменить с помощью физических кнопок монитора, даже на M1. В отличие от другого программного обеспечения, которое только имитирует изменение яркости путем добавления черного наложения на ваш экран, Lunar использует DDC (канал данных дисплея) для отправки команд, таких как set brightness to 30% или switch input to (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.01.2024Разработчик: © 2024 LunarПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B188CD3D19D0664204B1A28C6406E653FC6DE72
 ```
 
 https://mybot314.ru/tekegram_catalog/

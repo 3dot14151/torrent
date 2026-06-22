@@ -1,3 +1,55 @@
+###  Публикация: 1652779   (206366) от 13.08.2023
+
+Baby Storm (2023) [Multi] (2.12.4) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присматривайте за непредсказуемыми детьми, устраивающими хаос в детском саду! Поддерживайте порядок, бегайте, прибирайтесь и кормите своих подопечных, чтобы побить рекорд, а затем перейти на другой уровень или даже на другую планету! Играть можно как одному, так и в режиме совместной игры на четверых игроков! Вам предстоит заботиться о детях, очарование которых может (   Читать дальше...   )Тип издания: LicenseРазработчик: Baby CorpЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Английский, Немецкий, Итальянский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Итальянский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0DCE2FB4DB2E1BC05112668795529034899DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830692   (205629) от 27.10.2025
+
+Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultimate Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mortal Kombat 11 – продолжение культовой серии файтингов Mortal Kombat, в котором игроков ждут широкие возможности кастомизации бойцов благодаря новой системе Custom Character Variations. Новый графический движок переместит вас в гущу боев, заставляя буквально прочувствовать каждую ломающуюся кость и вылетающие из обрит глаза. В Mortal Kombat 11 представлены классические (   Читать дальше...   )Тип издания: RepackРазработчик: NetherRealm Studios, QLOCЖанр: Экшен, ФайтингЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3714EDFD2580FC0C3B3C9186B6EF5EEA86BB26D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602572   (204407) от 06.01.2023
 
 The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
@@ -6,7 +58,7 @@ The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204407.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.1.0.56) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203785.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202569.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202372.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Void Scrappers (2022) [Multi] (1.32) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202346.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202291.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Neon Abyss (2020) [Ru/Multi] (1.5.0.0src.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202170.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ RC Cars (2002) [Ru/Multi] (1.0.138) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202068.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Funtasia (2022) [Multi] (0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201063.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.1.5.208/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201056.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Super Trunko Go (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200937.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ LEGO Pirates of the Caribbean: The Video Game (2011) [Ru/Multi] (1.0) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200889.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Life of Delta (2023) [Ru/Multi] (2.1.1) License GOG [Support Adventures Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200841.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Godstrike (2021) [Ru/Multi] (2023.02.13) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200536.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Boom Blaster (2020) [Ru/Multi] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200508.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Solomon Snow: First Contact (2023) [Multi] (1.1.413) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198838.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198136.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197555.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Batora: Lost Haven (2022) [Ru/Multi] (rc14 shipping 3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197459.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ We Love Katamari REROLL+ Royal Reverie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197330.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197007.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197001.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196854.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196789.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4C0D0278BC1B630B714CD39685EA12D9F246229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641173   (196785) от 21.06.2023
-
-SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (1.0.4) Repack dixen18
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте за Спанч-Боба и его друзей, и покажите злобному Планктону, что преступления оплачиваются еще меньше, чем работа у Мистера Крабса. Хотите спасти Бикини Боттом от толп ползучих машин с помощью своих могучих пузырей? Конечно, хотите! Готовы к прыжку с тарзанки? Почему бы и нет? Мечтаете вступить в войска в совершенно новом многопользовательском режиме? Битва (   Читать дальше...   )Тип издания: RepackРазработчик: Purple Lamp StudiosЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641944   (196633) от 25.06.2023
-
-Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безумный экшен с видом сверху, в котором вы будете играть за Николу Тесла, человека, лабораторию которого уничтожили страшные монстры легендарного Лавкрафта… Сюжет игры вращается вокруг противостояния изобретения Лавкрафта и Николы Тесла. Долгое время ученый сидел в своей лаборатории и изготавливал самые разные штуки, включая и мощное энергетическое оружие. Но внезапно (   Читать дальше...   )Тип издания: LicenseРазработчик: 10tons LtdЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
 ```
 
 https://mybot314.ru/tekegram_catalog/

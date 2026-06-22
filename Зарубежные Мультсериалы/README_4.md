@@ -1,3 +1,107 @@
+###  Публикация: 1453774   (1023111) от 02.04.2021
+
+Кармен Сандиего / Carmen Sandiego (2021) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-8 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о неуловимой и гениальной преступнице экстра-класса, которая путешествует по всему миру, пытаясь с помощью хитроумных планов похищать разные драгоценности. На пути ее вечно оказываются агенты из В.А.Л.З., членом которого раньше была сама Сандиего.Производство: США / Netflix Studios, Houghton Mifflin Harcourt PublishingЖанр: Мультфильм, боевик, детектив, приключения, семейныйРежиссер: Кевин Дарт, Йос Хамфей, Кенни ПакПеревод: Профессиональный многоголосый(NewStation)Субтитры: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6FBE6FD8616FC3C8E109086552D927032F45DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453776   (1023098) от 02.04.2021
+
+Кармен Сандиего / Carmen Sandiego (2021) WEBRip (сезон 4, серии 1-8 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о неуловимой и гениальной преступнице экстра-класса, которая путешествует по всему миру, пытаясь с помощью хитроумных планов похищать разные драгоценности. На пути ее вечно оказываются агенты из В.А.Л.З., членом которого раньше была сама Сандиего.Производство: США / Netflix Studios, Houghton Mifflin Harcourt PublishingЖанр: мультфильм, боевик, детектив, приключения, семейныйРежиссер: Кевин Дарт, Йос Хамфей, Кенни ПакПеревод: Профессиональный многоголосый(NewStation)Субтитры: нетПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E224368D80225516015E4C4797FC5BCB438D22AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460299   (1022563) от 05.04.2021
+
+DOTA: Кровь дракона / Dota: Dragon's Blood (2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прославленный драконий рыцарь Дэвион посвятил жизнь борьбе с бедами мира. После встречи с могущественным древним эльдвурмом и с благородной принцессой Мираной, у которой есть своя тайная миссия, Дэвион оказывается в эпицентре событий куда более масштабных, чем он мог себе представить.Производство: США / Netflix Animation, ValveЖанр: Мультсериал, фэнтези, боевикРежиссер: Эшли МиллерПеревод: Дублированный (Невафильм)Субтитры: Русские (forced, full), английские (forced, SDH)Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF67092094BA1AC91D57888D0DE2FFE3593094A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461215   (1022044) от 08.04.2021
+
+Тихоокеанский рубеж: Тёмная зона / Pacific Rim: The Black (2021) WEB-DL [H.264/720p] (Сезон 1, Серии 1-7 из 7) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно из морских пучин восстали гигантские чудовища, но встретили сопротивление егерей — специально разработанных роботов. Время прошло. Теперь монстры наводнили Австралию, и жителям всего континента приходится эвакуироваться. Два подростка — брат с сестрой Тейлор и Хейли — остались, чтобы найти пропавших родителей. Они обнаруживают старого егеря и учатся (   Читать дальше...   )Производство: США, Австралия / Legendary PicturesЖанр: мультфильм, фантастика, боевикРежиссер: Хироки Хаяси, Джэ Хонг КимАктеры: Гидеон Адлон, Кэлам Уорси, Эрика Линдбек, Виктория Грэйс, Энди МакФи, Александра МакДональд, Джейсон Спайсэк, Леонардо Нам, Камрин ДжонсПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8108773527F75E989CC0244C786AB6DFBFC890B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461213   (1022028) от 08.04.2021
 
 Тихоокеанский рубеж: Тёмная зона / Pacific Rim: The Black (2021) WEB-DL [H.264/1080p-LQ] (Сезон 1, Серии 1-7 из 7) NewStation
@@ -6,7 +110,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022028.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022026.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021509.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019171.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018367.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018132.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017400.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017397.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017349.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017216.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016983.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016962.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016699.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016555.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015844.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015600.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015569.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014759.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014742.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014490.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ LEGO Ниндзяго: Мастера кружитцу / Lego Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014430.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012463.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ The Guardians of the Galaxy вернулись на третий сезон в M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D40C84B2F702DD99FDC27E90D1EBBD33A5F1B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477567   (1010927) от 15.06.2021
-
-Шоу Тома и Джерри / The Tom and Jerry Show (2021) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-78 из 78)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые истории соперничества кота Тома и мышонка Джерри. Том упорно гоняется за Джерри и каждая новая уловка хитрого кота изобретательней предыдущей, но мышонок дает достойный отпор своему сопернику, не теряя возможности сделать ему между прочим какую-нибудь пакость. Погоня началась! Любимые кот и мышка каждого человека, Том и Джерри, вернулись в совершенно новых (   Читать дальше...   )Производство: США / Slap Happy Cartoons, Turner Entertainment, Warner Bros. AnimationЖанр: мультфильм, короткометражка,  комедия, приключения,  семейныйРежиссер: Даррел Ван Ситтерс, Дэн РутАктеры: Стефен Стэнтон, Грэй Гриффин, Рик Зефф, Джои Д’Аурия, Кэт Суси, Элисин Паккард, Дэниэл Росс, Крис Эджерли, Сэм Квасман, Рэйчел МакФарлейн  и др.Перевод: ДублированныйСубтитры: АнглийскиеПродолжительность: ~00:07:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F998DD608117E378C451FF7DDACB5A186E0D14A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478264   (1010472) от 18.06.2021
-
-Тресе: Защитница города / Trese (2021) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальный мир Манилы заполоняют темные сверхъестественные силы. Александре Тресе предстоит спасти город от надвигающейся катастрофы.Производство: Филиппины, Сингапур, BASE EntertainmentЖанр: фэнтези, боевик, детектив, для взрослыхРежиссер: Дэвид Хартман, Джей Олива, Тим ДиварАктеры: Лиза Соберано, Шэй Митчелл, Джон Джон Брионес, Стивен Блум, Карлос Аласраки, Мэнни Хасинто, Эрик Бауза, Даррен Крисс, Данте Баско, Саймон Дела КрусПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD07F76C28063D78EC6125A64D7B59B6086756A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478263   (1010451) от 18.06.2021
-
-Тресе: Защитница города / Trese (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальный мир Манилы заполоняют темные сверхъестественные силы. Александре Тресе предстоит спасти город от надвигающейся катастрофы.Производство: Филиппины, Сингапур, BASE EntertainmentЖанр: фэнтези, боевик, детектив, для взрослыхРежиссер: Дэвид Хартман, Джей Олива, Тим ДиварАктеры: Лиза Соберано, Шэй Митчелл, Джон Джон Брионес, Стивен Блум, Карлос Аласраки, Мэнни Хасинто, Эрик Бауза, Даррен Крисс, Данте Баско, Саймон Дела КрусПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792F0B064572E7AB6EDDDD790ABF2A914AD4589D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478265   (1010431) от 18.06.2021
-
-Тресе: Защитница города / Trese (2021) WEB-DLRip  (сезон 1, серии 1-6 из 6) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальный мир Манилы заполоняют темные сверхъестественные силы. Александре Тресе предстоит спасти город от надвигающейся катастрофы.Производство: Филиппины, Сингапур, BASE EntertainmentЖанр: фэнтези, боевик, детектив, для взрослыхРежиссер: Дэвид Хартман, Джей Олива, Тим ДиварАктеры: Лиза Соберано, Шэй Митчелл, Джон Джон Брионес, Стивен Блум, Карлос Аласраки, Мэнни Хасинто, Эрик Бауза, Даррен Крисс, Данте Баско, Саймон Дела КрусПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBFBE1D9A1BD96D3CE4DD860E424247EC87D13C
 ```
 
 https://mybot314.ru/tekegram_catalog/

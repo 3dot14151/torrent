@@ -1,3 +1,56 @@
+###  Публикация: 1649103   (231271) от 26.07.2023
+
+OmniReader Pro for Mac 2.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231271.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E482A85EEB2BDB63EC0CC81CB18A4FD895EC7720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649092   (231255) от 26.07.2023
+
+FontLab 8 v.8.2.0.8533 beta [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231255.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
+По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2023Разработчик: © 2023 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEAE02B4BF97A90F7916DB1F3CB01381A4C761F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649265   (231249) от 26.07.2023
 
 Magic Disk Cleaner 2.2.3 [En]
@@ -6,7 +59,7 @@ Magic Disk Cleaner 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231249.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ AI Transcription 1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231243.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ MetaImage  2.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231206.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ System Toolkit 6.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231202.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ MetaVideo 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231198.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ AI Photo for Mac 1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231192.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ MacMagic 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231174.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Wondershare UniConverter for Mac 15.0.0 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231160.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Data Guardian 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231149.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ Ghost Buster Pro 2.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231143.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Pixelmator Pro 3.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231139.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ AI Transcription 1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231124.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Cardhop 2.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231117.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ Keep It 2.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231114.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ Color Wheel 7.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231105.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ Contacts Journal CRM 3.3.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231092.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ Luminar Neo 1.12.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231080.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ Integrity Plus 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231077.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ Scrutiny 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231068.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ MetaRename for Mac 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231058.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Integrity Pro 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231055.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ Chain Timer 9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231032.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ Alarm Clock Pro 15 v.15.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231022.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ Yoink 3.6.85 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231019.jpg" />
 </div>
 
 
@@ -624,59 +677,6 @@ Yoink представляет собой посредника, который �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDA968533FC2FC64715C14AD152F01E6A6BFFFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649426   (231011) от 27.07.2023
-
-Dynamic Wallpaper Engine 15.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Wallpaper Engine позволяет использовать живые обои на рабочем столе/экранной заставке. Он предоставляет тысячи живых обоев в Мастерской, потребляя при этом как можно меньше системных ресурсов. Это движок обоев для Mac.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2023Разработчик: © 2020 WHBALZAC IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E006FE1D302D93865FC1692FFED7043AB76FB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648537   (231009) от 23.07.2023
-
-Adobe InCopy 2022 18.3 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
-Adobe InCopy  входит в состав Creative Cloud. Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2022Разработчик: © Adobe SystemsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A872C428F06CD040BC2C756A4E08BC1C396708
 ```
 
 https://mybot314.ru/tekegram_catalog/

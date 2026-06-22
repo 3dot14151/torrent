@@ -6,7 +6,7 @@ Belinda Carlisle - Once Upon a Time in California (2025) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5353.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Helloween - Giants & Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5346.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sweet Freedom - Blind Leading The Blind (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5337.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Who - Live At The Oval 1971 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5326.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Evocatus - Inevitable Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5319.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Rory Block - Heavy On The Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5318.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rising Steel - Legion Of The Grave (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5317.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dragonsfire - Rebirth of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5316.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5181.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Knox Evercrest - Unwritten Game (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5150.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Carolyn Jones - All in divine timing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5134.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Knox Vortex - Darling I Don’t Mind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5123.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David Rose - Be a Gentleman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5117.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eric Gales - A Tribute To LJK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5116.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Liora Stedman - Spirit of Cobalt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4931.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Luna Artisan - Ego Rush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4929.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Soundset City - Beyond Lounge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Loun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4831.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Nick Manzer - Through The Veil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4791.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nelson Bragg - Melodie de Nelson: A Pop Anthology (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4790.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4789.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4787.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4785.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4781.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4777.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Makiisma - The Heart Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4770.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ghosts of Sunset - California Girl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4769.jpg" />
 </div>
 
 

@@ -1,211 +1,3 @@
-###  Публикация: 1562273   (507898) от 10.07.2022
-
-PixaMotion - аниматор фото и редактор-синемаграфов 1.0.5 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507898.jpg" />
-</div>
-
-
-###  Подробнее
-
-PixaMotion - создавайте живые фотографии, живые обои, движущиеся фоны и темы с анимационными эффектами с помощью фотоаниматора PixaMotion. Создавайте удивительные короткие видео с помощью видеоредактора PixaMotion. Приложение PixaMotion - это «новый взгляд на редактор изображений», позволяющее «на ходу» создавать потрясающие живые фотографии. PixaMotion - это мощное (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 28.06.2022Разработчик: Imagix AI Private LimitedПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CB6E4FA9103CEDF8F02DCD2AE05B485BF44615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562985   (507047) от 11.07.2022
-
-Termux 0.118 Mod by Идите Лесом + Plugins [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Termux - представляет собой полноценный эмулятор терминала Linux со всеми его возможностями. С Termux вы можете почувствовать себя владельцем самого настоящего карманного компьютера на Linux.  Среди основных функций приложения: оболочки bash и zsh, редактирование файлов через nano и vim, полноценный доступ и управление серверами через ssh, компилирование кода с помощью (   Читать дальше...   )Тип издания: Оригинал + МодификацииРелиз состоялся: 12.01.2022Разработчик: Fredrik FornwallПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583348517EED380830CC40C27689F40B21FD752E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562973   (507043) от 11.07.2022
-
-Parallel Space - Multi Accounts 4.0.9177 Mod by derrin, KirIif', GuanYinLite [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallel Space - является приложением, которое может запустить несколько копий одного приложения в одно и то же время на разных аккаунтах. Нажмите на "+" в интерфейсе и выберите приложение, которое вам требуется клонировать. Второй аккаунт не будет влиять на основной аккаунт.Тип издания: Pro + Pro-Lite + ModРелиз состоялся: 31.03.2022Разработчик: LBE TechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C81C6504C938971FC8052B4AE3A0E26C8B341A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562919   (507037) от 11.07.2022
-
-NetShare Pro 1.99 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507037.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetShare Pro - Позволит превратить ваше Android устройство, в точку доступа WiFi. Поделитесь своим подключением к интернету (моб. данные или WiFi) с другими устройствами с помощью WiFi Direct. После подключения устройства к точке доступа, откройте приложение и активируйте разрешение VPN.Тип издания: Premium + Mod (RUS)Релиз состоялся: 24.01.2022Разработчик: NetShare SoftwaresПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E34529AF2FA8E4998542A214710A8E03F8F553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563162   (506212) от 12.07.2022
-
-Lite RSS Pro 2.5.2 Mod by solokot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lite RSS - это простая, быстрая и легкая программа чтения / чтения RSS. Читайте все ваши новости rss / feed в одном месте. Вход не требуется, просто добавьте ваши RSS-каналы. Вы также можете добавить веб-сайты для быстрого доступа к ним.Тип издания: ProРелиз состоялся: 27.05.2022Разработчик: Greenstream AppsЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80198979ECAE2A8FBEE17BDE22E0ED14E50610AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563144   (506211) от 12.07.2022
-
-AppSales: Скидки и распродажи приложений 12.0 Mod by KirIif' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506211.jpg" />
-</div>
-
-
-###  Подробнее
-
-AppSales: Скидки и распродажи приложений - ещё одно отличное приложение предназначенное помогать пользователям совершать самые выгодные и удачные покупки программ с различных площадок. AppSales важен регион пребывания человека, ведь она так же отслеживает снижения цен и прочие предложения для определённых территорий. Так что лучше не полениться и заполнить всю необходимую (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 02.05.2022Разработчик: ts-appsЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FB8E5F2E567C3DB5B403929ED288757A82A63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563505   (504462) от 14.07.2022
-
-Opera GX: Браузер для геймеров 1.5.9 Mod by The_Sem100Dan4ik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная геймерская версия браузера Opera. В ней реализованы уникальные функции, такие как ограничение использования ресурсов ЦП, оперативной памяти и сетевого трафика, помогающие играть и просматривать веб-страницы с максимальным удобством. Уникальный дизайн Opera GX вдохновлен играми и игровым железом. Браузер выполнен в том же стиле, что и браузер (   Читать дальше...   )Тип издания: Lite-ModРелиз состоялся: 21.05.2022Разработчик: OperaЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BC8CF0BFE28B1CA1543BAEBCB9A80E02E3D82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563600   (504364) от 14.07.2022
-
-CastItAll Premium 3.2.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504364.jpg" />
-</div>
-
-
-###  Подробнее
-
-CastItAll Premium - развлекательного свойства приложение, что предлагает пользователям функцию трансляции видеофайлов на различные «умные» устройства, Проект так же поддерживает и качественную потоковую передачу, являясь при этом лишь связующим звеном, для более простого и быстрого подключения и создания сети в случае необходимости. Apple TV, Xbox One, Samsung Smart (   Читать дальше...   )Тип издания: Paid (Куплено в Google Play)Релиз состоялся: 24.01.2022Разработчик: Kaan TasЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630C81B22315888A608811E22C8608B07507DF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933969   (504001) от 03.09.2015
 
 GO SMS Pro v6.32 [Ru]
@@ -214,7 +6,7 @@ GO SMS Pro v6.32 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504001.jpg" />
 </div>
 
 
@@ -240,7 +32,7 @@ CamCard - Business Card Reader 7.52.7.20220714 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503512.jpg" />
 </div>
 
 
@@ -266,7 +58,7 @@ Phone Master - Защита приложений 5.3.2.00001 Mod by artemscine [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503431.jpg" />
 </div>
 
 
@@ -292,7 +84,7 @@ Battery Guru: Battery Health 1.9.29.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503423.jpg" />
 </div>
 
 
@@ -318,7 +110,7 @@ Call Master v5.4.0.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503086.jpg" />
 </div>
 
 
@@ -344,7 +136,7 @@ uTorrent Pro 3.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503044.jpg" />
 </div>
 
 
@@ -370,7 +162,7 @@ Genius Scan Plus - PDF сканер 7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502479.jpg" />
 </div>
 
 
@@ -396,7 +188,7 @@ Simple Gallery v6.23.13 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502211.jpg" />
 </div>
 
 
@@ -422,7 +214,7 @@ The Weather Channel 10.54.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501456.jpg" />
 </div>
 
 
@@ -448,7 +240,7 @@ GnaCAD 2.11.55 Mod by IWIITI [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500505.jpg" />
 </div>
 
 
@@ -474,7 +266,7 @@ Image Converter / Конвертер изображений 9.0.25 Mod by Rahul 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500501.jpg" />
 </div>
 
 
@@ -500,7 +292,7 @@ GIF Maker and Editor v1.6.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498374.jpg" />
 </div>
 
 
@@ -529,7 +321,7 @@ ZArchiver Pro 0.8.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498299.jpg" />
 </div>
 
 
@@ -555,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497357.jpg" />
 </div>
 
 
@@ -581,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492143.jpg" />
 </div>
 
 
@@ -607,7 +399,7 @@ Spy Video Recorder Camera / Шпионская видео камера v3.0.0 Pr
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491782.jpg" />
 </div>
 
 
@@ -633,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486555.jpg" />
 </div>
 
 
@@ -667,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486286.jpg" />
 </div>
 
 
@@ -680,6 +472,218 @@ It is important to say the tongue twister out loud. Try to memorize the text by 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398513   (484699) от 29.08.2020
+
+Smart YouTube TV v6.17.720 Stable [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484699.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube клиент для медиа-боксов и ТВ на базе Android. В настоящее время множество девайсов имеют проблемы с YouTube. Цель приложения - исправить этот недостаток. Стабильный релиз ориентирован на большинство пользователей. Начните с нее. Она содержит четыре лаунчера: Pro Main, Pro Alt, Lite Main и Lite Alt. В обоих Pro есть поддержка АФР и 60фпс. В Lite этого нет, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24.08.2020Разработчик: Yuriy LyskovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5AB7F7CDCC07D22EE68749DD3E0818C84C5471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396115   (482597) от 30.08.2020
+
+Mi Control Center v3.7.9 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытайте мощный Центр управления и настройте его так, как вам нравится. Mi Control Center изменит способ использования телефона. Отделите ваши быстрые настройки от уведомлений. Проведите пальцем вниз от строки состояния, чтобы прочитать свои уведомления, или проведите с правой стороны, чтобы управлять настройками устройства и выполнять различные действия. Триггерные (   Читать дальше...   )Тип издания: Пиратка (открыт Pro) + ModРелиз состоялся: 27.08.2020Разработчик: Treydev IncПоддерживаемая ОС: Android 5.0-9.0Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CB12926833F6079373D0A9B15D4F8C18FDC28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566616   (480368) от 30.07.2022
+
+Bookmark Folder 5.1.6 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480368.jpg" />
+</div>
+
+
+###  Подробнее
+
+** Введение **
+Вы когда-нибудь хотели переключить браузер при просмотре веб-сайта?
+Например, используйте Chrome для рабочего времени, используйте Firefox для личного времени, используйте Opera для учебного времени ...
+Это приложение может систематизировать все ваши закладки, и вы можете выбрать запуск браузера для каждой закладки.(   Читать дальше...   )Тип издания: FullРазработчик: TossyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC5CAAE0A352B7F7134B6F45130BD6798E8726C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566625   (480276) от 30.07.2022
+
+Head Model Studio 1.1.11 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисуйте лучшие портреты с помощью Head Model. Детально изучайте лица от простых плоскостей до сложной геометрии. Это лучшее приложение для Android для изучения и изучения лиц в деталях. Поднимите свои эскизы на новый уровень.Тип издания: PremiumРазработчик: Wes CПоддерживаемая ОС: Android 5.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABCD7BA0BC29F026313ABBC1283265714570C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566632   (480266) от 30.07.2022
+
+Экорше: Портретная Анатомия 1.7.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_480266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экорше — это портативная художественная мини-студия с подробной анатомической моделью головы человека.
+Для создания живых и правдоподобных портретов знание анатомии незаменимо. Экорше — приложение для изучения анатомии специально для художников, скульпторов и других представителей искусства.Тип издания: ProРазработчик: Kirill ChikalinПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5264C03FBC968563343823276E07343D87F50640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385465   (479968) от 30.07.2022
+
+Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение обеспечивает автономную базу данных с более чем 70000 распиновкой электронных компонентов. Чипы, транзисторы, диоды, триаки, микропроцессоры и многое другое. Распаковка компонентов выполняется быстро и не требует доступа в Интернет для поиска. Более 23000 различных контактов с большим количеством эквивалентов.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 22.07.2022Разработчик: Adriano MoutinhoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D425E4D839036B93FCD81A2B0A0A4DF658BD359F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227749   (479954) от 30.07.2022
+
+Ventusky: Прогноз погоды v20.1 Mod by Сіtrus, qwerty [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 29.07.2022Разработчик: InMeteoПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDAB936E8E82F3D62BA13BA989B0755DD8E8478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244628   (479568) от 02.09.2018
+
+VPN Max by Aeronliru v100.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение VPN Max by Aeronliru это мод приложения Samsung Max для Android - бесплатное мобильное приложение с функциями "Экономия трафика" и "Защита конфиденциальности" для управления передаваемыми данными, экономии интернет-трафика и защиты Wi-Fi подключений. Приложение Samsung Max пришло на смену Opera Max. Samsung Max позволяет экономить трафик, (   Читать дальше...   )Тип издания: Пиратка (Mod без рекламы и т.п.)Релиз состоялся: 31.08.2018Разработчик: SamsungПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF55CB20746FE06B154532F3864D4350048B7A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

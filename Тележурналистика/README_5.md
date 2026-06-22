@@ -1,3 +1,107 @@
+###  Публикация: 1461757   (1021619) от 11.04.2021
+
+Чудо техники с Сергеем Малозёмовым (11.04.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фастфуд с роборуками вместо людей, беспилотник вместо доставщика еды и отплата заказа с помощью лица: какие еще новации появились в ресторанах? Маска-очиститель воздуха: как работает устройство и стоит ли своих денег? Нужно ли менять аккумулятор в смартфоне, если села батарейка? Продлит ли это жизнь гаджету? Стоит ли пытаться сделать это самостоятельно или лучше (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACE9DCCF349BE1D0DB7C989E244958B12F338E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462984   (1020852) от 16.04.2021
+
+По следу монстра (16.04.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилых людей несложно одурачить. Этим часто пользуются всякие проходимцы. Но далеко не каждый вор или мошенник готов ради добычи убить человека. Тем ужаснее казались действия маньяка, орудовавшего в Свердловской области. Убийца открыл настоящую охоту на пожилых людей. Несчастных забивал до смерти молотком ради побрякушек и, если повезет, небольших накоплений. Как (   Читать дальше...   )Производство: Россия | "Киностудия Лига"Жанр: Документальный, криминал, расследованиеПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B578A07AF283403240238C4E7C7692C8BA8B1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463110   (1020672) от 17.04.2021
+
+Живая еда с Сергеем Малозёмовым (17.04.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вредные пищевые привычки: как с ними бороться и что делать, чтобы не переедать? Чем полезна овсянка и какую лучше выбрать при покупке — дорогую органическую или самую дешевую? С какого возраста можно включать грибы в рацион детей? Рецепт недели — овощные розы.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B4C780F23885096B6FC410BCACFDE5F0B15EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463367   (1020500) от 18.04.2021
+
+Чудо техники с Сергеем Малозёмовым (18.04.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из России с любовью и технологиями: летающий мотоцикл, дрон-такси, надувная баня и робосемья — отечественные разработки, которые покоряют мир. Новинка недели: надувные мотосани, на которых можно ездить и плыть? Проверка чудо-товаров: выполняют ли рекламные обещания переносной компактный газовый гриль и гаджет для самостоятельной проверки зрения? Правда ли, что магнитное (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA16B675D513484B81F33D1CA0E27993259922D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463289   (1020289) от 19.04.2021
 
 Следствие вели... (17.04.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020289.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019645.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019499.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019472.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019322.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018443.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018280.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018083.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018068.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016510.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015987.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015794.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015457.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014846.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014426.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013561.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Happy End. Фильм о сериале (2021) WEBRip [H.264/1080p-LQ]
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013370.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013298.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013261.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013239.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012438.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012394.jpg" />
 </div>
 
 
@@ -568,115 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58F49998FF6455298B1E1E7E2A4A195A6ECA334E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478435   (1010343) от 19.06.2021
-
-Живая еда с Сергеем Малозёмовым (19.06.2021) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010343.jpg" />
-</div>
-
-
-###  Подробнее
-
-02:02 Томатный, морковный, тыквенный, сельдереевый, свекольный: какую пользу здоровью приносят овощные соки? Правда ли, что периодически нужно питаться только ими, тем самым очищая организм, и к каким последствиям это может привести?
-11:49 Сколько мяса и какого можно есть без особого вреда для здоровья и чем чревато переедание этого продукта?
-13:33 "Фанаты еды" (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: Отсутствуют
-
-Видео: AVC/H.264, 1280x720, 1555 Kbps
-Аудио: AAC, 2 ch, 128 KbpsПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5248D517C213FF0EC8DFA13EE161157B3523C8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478508   (1010310) от 19.06.2021
-
-По следу монстра (19.06.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010310.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Улан-Удэ в 2011-м рыбаки нашли убитой школьницу, над которой перед смертью долго издевались. Пока сыщики отрабатывали подозреваемых, обнаружили еще одну мертвую девочку. Почерк преступлений был идентичен. Неужели в столице Бурятии появился маньяк? Сколько времени понадобилось следователям, чтобы вычислить убийцу? И кем себя возомнил безжалостный монстр?Производство: Россия | "Киностудия Лига"Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB02AC9E9FE9ED661C1EBA979AAD593DEB5078F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207887   (1010252) от 19.06.2021
-
-Двойная порция / Super Size Me (2004) DVDRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скандальное документальное расследование о роли сети ресторанов быстрого питания "МакДональдс" в ожирении американцев. Режиссер Морган Сперлок поставил эксперимент на себе: в течение месяца он три раза в день ел в "МакДональдсе". Причем, исключительно популярные порции "Supersize" (двойная порция). В результате Морган набрал 12 кг, его (   Читать дальше...   )Жанр: Документальный, драма, комедияРежиссер: Морган СперлокАктеры: Морган Сперлок, Др. Дэрил Исаак, Lisa Ganjhu, Др. Стивен Сигел, Бриджет Беннетт, Эрик Роули, Марк Фентон, Александра Джемисон, John Banzhaf, Др. Дэвид СэтчерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240E51DF1D23A2B1BCDCBDEA1EE02576FEA62535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478615   (1010156) от 20.06.2021
-
-Чудо техники с Сергеем Малозёмовым (20.06.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последнее время стало модно лечить огромное количество болезней с помощью специальных тайпов. Почему же на них сейчас пошла такая мода и их используют даже от ожирения. В чудо техники Сергей Малозёмов обещает с этим всем разобраться. И действительно ли эти тейпы настолько полезны. Ведь это обычные разноцветные пластыри. Нужно ли покупать средства, с помощью которых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BC34CDBCC7CAF58B9B060D29CC3405E30BFDCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

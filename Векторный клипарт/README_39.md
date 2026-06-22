@@ -1,3 +1,31 @@
+###  Публикация: 1182983   (312349) от 12.11.2017
+
+Векторный клипарт - Cards with ribbons [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Карты с ленточками
+15 AI + prewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA53E8159B00BB04D799DB472A56E69E8D0B21AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183006   (312210) от 12.11.2017
 
 Векторный клипарт - Creative Christmas Trees Set 8 [AI]
@@ -6,7 +34,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312210.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312209.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312195.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Calendar New Year 2020 design template [AI]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311149.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309957.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309954.jpg" />
 </div>
 
 
@@ -174,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308558.jpg" />
 </div>
 
 
@@ -202,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308440.jpg" />
 </div>
 
 
@@ -230,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308435.jpg" />
 </div>
 
 
@@ -258,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308434.jpg" />
 </div>
 
 
@@ -286,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308431.jpg" />
 </div>
 
 
@@ -314,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308429.jpg" />
 </div>
 
 
@@ -342,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308335.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308333.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308327.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308238.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307397.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305931.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305417.jpg" />
 </div>
 
 
@@ -538,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305302.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305273.jpg" />
 </div>
 
 
@@ -594,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305171.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304660.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304647.jpg" />
 </div>
 
 
@@ -674,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303355.jpg" />
 </div>
 
 
@@ -687,34 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3039592CFB38B840E1B3727A1A4D7B0E78F9DFBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184163   (303333) от 16.11.2017
-
-Векторный клипарт - Wooden Christmas Backgrounds 12 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Деревянные Рождественские Фоны
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3396AE2F29461D515FFAAD396ABB60E0EE7E45C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

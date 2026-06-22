@@ -1,3 +1,55 @@
+###  Публикация: 1466043   (1018751) от 28.04.2021
+
+Андрей Синицын (сост.) | Назад в космос [сборник] (2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то люди не мыслили себе будущего без космических полетов, контактов с инопланетными цивилизациями и освоения удивительных миров в далеких звездных системах. Когда-то героями человечества были Гагарин и Армстронг, но по мере того, как перспектива покорения космоса отдалялась, росли и крепли новые авторитеты, предложившие людям новую реальность – реальность виртуального (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A481685BEAE8F50CF2B9F64920483D2AD2463B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466924   (1018212) от 01.05.2021
+
+Алан Мур | Иерусалим (2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нортгемптон, Великобритания. Этот древний город некогда был столицей саксонских королей, подле него прошла последняя битва в Войне Алой и Белой розы, и здесь идет настоящая битва между жизнью и смертью, между временем и людьми. И на фоне этого неравного сражения разворачивается история семьи Верналлов, безумцев и святых, с которыми когда-то говорило небо. На этих (   Читать дальше...   )Жанр: Современная зарубежная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C02F45912EB32402946E63DBB609F8654BF2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466849   (1018162) от 01.05.2021
 
 Владимир Сорокин | Доктор Гарин (2021) [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018162.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016709.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016378.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015758.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015749.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015748.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015717.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015613.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015551.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015234.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015131.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015062.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015056.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014758.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014428.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013983.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013741.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013634.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012721.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012709.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012399.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012253.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012241.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012191.jpg" />
 </div>
 
 
@@ -641,60 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15A6894D8407FF2F4DC07325B2FD97A615620C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475802   (1012120) от 08.06.2021
-
-Франсин Тун | Дочь ведьмы (2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бестселлер Sunday Times, Топ лучших романов 2020 года по версии Telegraph, Премия McIlvanney Prize 2020, Лонг-лист Highland Book Prize 2020.
-Среди сосен в темном лесу кто то бродит. Призрак, чужой или безмолвная тень женщины? Далеко в полях местные видели костры, находили камни, выложенные в круг. Говорят, это проделки ведьмы. Той самой ведьмы, что давным-давно ушла (   Читать дальше...   )Жанр: Триллер, УжасыПеревод: Елена Фельдман, Владимир НайденовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8135154FE692ADA461289AFC4F46C923778EF04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477899   (1010753) от 16.06.2021
-
-Лия Арден | Мара и Морок. 500 лет назад (2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предыстория к циклу «Мара и Морок».
-В прежние времена персонажи из сказок были реальны и встречались смертным едва ли не каждый день. Я много путешествовал, собирая легенды, слухи и даже откровенные небылицы о Марах и Мороках. Однажды я наткнулся на историю одной Мары, которая жила приблизительно за три сотни лет до исчезновения всех служительниц богини Смерти. Её (   Читать дальше...   )Жанр: Героическое фэнтези, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79C79ED695CFB800E13388F1C4FB58738DF8802
 ```
 
 https://mybot314.ru/tekegram_catalog/

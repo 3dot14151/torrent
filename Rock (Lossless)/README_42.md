@@ -1,3 +1,177 @@
+###  Публикация: 1505351   (804609) от 27.10.2021
+
+Wu Tenglers - Burning Century (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Beat of my heart (00:03:32)
+02 - One way ticket (00:04:03)
+03 - Burning Century (00:04:01)
+04 - Oxygen (00:03:42)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE92B30061B6285F9EC742C8F2377A09B7CBC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505219   (804608) от 27.10.2021
+
+Gruff - Swamp Tales (2021) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Haunted House (00:07:18)
+02 - Mother Road (00:05:11)
+03 - Rusty Train (00:05:23)
+04 - Kiss My Ass (00:04:52)(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49742209C0852ABD05DF52647E0CA35BC229F21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505222   (804558) от 27.10.2021
+
+Freeloader - Freeloader II (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Under the Influence of You (00:03:56)
+02 - Put Another Cross by the Side of the Road (00:02:39)
+03 - Lazy Days (00:02:43)
+04 - Gimme What's Left of Your Love (00:03:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14266D5B0B9B5669F72BC5130E10D980AEDA88BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505259   (804557) от 27.10.2021
+
+Seeg - Echoes (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echelon (00:05:22)
+02 - Hollow Light (00:05:12)
+03 - Wonderland (00:00:59)
+04 - Tree (00:04:46)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E7C847AB06D0F2367A199CA3047F862D45F613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505342   (804552) от 27.10.2021
+
+Aaron and the Lord - Aaron and the Lord (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stupid Game (00:03:50)
+02 - Heaven or Hyannis (00:04:12)
+03 - Helpful Visions (00:03:31)
+04 - This Love Ain't Dead (00:03:48)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC5568B5FE86A98AA44F7A6B11599A817092B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505401   (804541) от 27.10.2021
+
+The Barettas - All Is Fair In Love And Rock & Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alley (00:02:49)
+02 - Smoke-Filled Baretta (00:03:59)
+03 - Crooked Hearts (00:02:11)
+04 - I Bet You Look Good on the Dance Floor (00:02:56)(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEE86850D83DDA57ECC70188C498F2404496D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505262   (804540) от 27.10.2021
 
 September Son - Risen (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Desert Rock>
@@ -6,7 +180,7 @@ September Son - Risen (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Desert 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804540.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ Pink Floyd - Wish Yоu Were Неre (1975) Reissue, Remastered, 2017, Japanese Ed
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804232.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ Simone Cozzetto - Wide Eyes (2016) [FLAC|Lossless|image + .cue] <Neo Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803554.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - These Dreams - Rock Classics (1997) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803551.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ Brother Firetribe - Sunbound (2017) Japanese Edition [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803461.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ House Of Shakira - Sour Grapes (2016) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803372.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Glamkings Of Rock: The True Story Of Glam Rock (1994) 2CD [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803369.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ Galahad Electric Company - Soul Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803041.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ Drifting Sun - Forsaken Innocence (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803031.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ The Dead Already - Nymphalis Antiopa (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803029.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ Kepa - Divine morphine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803027.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ The Alan Parsons Project - Tales of Mystery and Imagination : Adgar Allan Poe (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802962.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ Chicago - Love Songs (2005) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802944.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ Robert Palmer - Sneakin' Sally Through The Alley (1974) Reissue, 1990 [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802863.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ Robert Fripp (ex-King Crimson) - The League Of Gentlemen-God Save The King (1985
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802851.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ Anubis - Homeless (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802747.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ Jeff Kelly - When the World Was Younger (2020) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802628.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ Circle Of Mud - Circle of Mud (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802619.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ National Radio Station - Pisco Sour In Arizona (2021) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802618.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ Davy Knowles - What Happens Next (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802615.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ Davy Knowles - What Happens Next (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D6E6F457A3999CF22598615E99B978DEB7D789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010772   (802551) от 25.04.2016
-
-Donavon Frankenreiter - Donavon Frankenreiter (2004) [FLAC|Lossless|tracks] <Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Matter    03:06
-02. Free (featuring Jack Johnson)    02:28
-03. On My Mind    03:07
-04. Our Love    02:28(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFE07410F9184858F329BBCF2CEC183407BDF24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010591   (802335) от 25.04.2016
-
-Eric Johnson - Seven Worlds (1998) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zap
-02. Emerald Eyes
-03. Showdown
-04. Missing Key(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28D8E2021A8A94D0996BCBA2F14E1E40FC2290B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010434   (802163) от 25.04.2016
-
-Primitive Instinct - One Man's Refuge (2012) [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Call    00:21
-02. Alter Ego    05:16
-03. Falling Down    05:53
-04. Breathing    07:18(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD795EA3198FDAFA0C2AC8FA2DB63B49C7AA6E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010594   (802119) от 25.04.2016
-
-Jimmy Page, John Paul Jones, John Bonham - Rock And Roll Highway (2007) [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything I Do Is Wrong
-02. Think It Over
-03. Dixie Fried
-04. Fabulous(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC247DC07A0762032DCAD4D0CB9129DAA551D060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120383   (801921) от 31.03.2017
-
-Starset - Vessels (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Symphonic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starset - американская рок группа, из Колумбуса, штата Огайо, играющая в стилях альтернативного, электронного и симфонического рока. Группа была образованна в 2013 году вокалистом группы Downplay. В этом же году они выпустили 2 сингла Carnivore и My Demons. Трек пользовался большой популярностью, песня забралась на 5 строчку в "Mainstream Rock" чарте, и (   Читать дальше...   )01. The Order (1:08)
-02. Satellite (3:59)
-03. Frequency (4:41)
-04. Die For You (5:17)(   Читать дальше...   )Жанр: Alternative Rock, Symphonic Rock, Hard RockПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD50BC73E42A74D498B58EC9E6124AC13A7644A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506040   (801808) от 29.10.2021
-
-Little Hag - Leash (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Whole World (00:04:15)
-02 - Cherry (00:03:59)
-03 - Blood (00:03:01)
-04 - Leash (00:03:07)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B958C3BB964C3D28F41CCFC1913985E9AD1597
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Dave Hole - Outside Looking In (2001) [FLAC|Lossless|image + .cue] <Blues Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153517.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tony Joe White - Closer To The Truth (1991) [APE|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153055.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Saturday Night Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152984.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jeff Liberman - Solitude Within (1975) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151822.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Son Henry - Glenn Highway Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151384.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ian Coldsteel Kenny - Coldsteel Blues, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151330.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kenny Wayne Shepherd - Dirt On My Diamonds, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151140.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jeff Liberman - Stream of Consciousness (2020) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151123.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mike Zito & Albert Castiglia - Blood Brothers:  Live in Canada (2023) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150499.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ JunkBelly - On the Inside (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues-Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150376.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Andy Lindquist - Dead in Your Lies (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149957.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bad Mileage - A Bridge Too Far (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149943.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Damon Smith's - A Boogie Woogie and Blues Christmas Album (2020) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149929.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jeff Liberman - Celebrate the Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149864.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jeffery Liberman - Then And Now (1996) 2CD [FLAC|Lossless|tracks+.cue] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149741.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Morgan Giosa - Feelin' Fine Today (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149420.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Andy Lindquist - Stone in the Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149405.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rag'n'Bone Man - Wolves (2016) EP [FLAC|Lossless|tracks + .cue] <Rhythm & Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149281.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Verity Band - 11 albums (2006-2019) [FLAC|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148605.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Doug Westberg - I Get the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148435.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stevie Ray Vaughan & Double Trouble - 5 х CD Collection (1983-1991) /Re-mastere
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148038.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Rev Brown - Bare In Change (1991) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146454.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144641.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ John Oscar Atkinson - Kingsnake Runnin' with the Devil (2020) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144602.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Nite Train with Thomasina Winslow - Cat on a Mission (2020) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144588.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Andy Lindquist - Heartbreak Inc (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144575.jpg" />
 </div>
 
 

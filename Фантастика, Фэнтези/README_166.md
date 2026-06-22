@@ -1,3 +1,111 @@
+###  Публикация: 1251406   (417364) от 01.10.2018
+
+Генри Лайон Олди | Беглец (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга романа-эпопеи «Блудный сын, или Ойкумена: двадцать лет спустя».
+
+Ойкумена на пороге войны. Три могучие цивилизации стягивают боевые флотилии к месту будущего сражения. Аскеты-брамайны, волки Великой Помпилии и Ларгитас, флагман технического прогресса – все готовы вцепиться друг другу в глотку. Причина раздора – маленький мальчик, чудо из чудес. Даже (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F19E13CC239107E2C185D3488773DF47072870B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325128   (416722) от 13.09.2019
+
+Уиндхэм Райдер | Бамблби (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416722.jpg" />
+</div>
+
+
+###  Подробнее
+
+1987 год. Бамблби скрылся от преследования в маленьком калифорнийском городке. Тем временем девушка по имени Чарли отчаянно нуждается в собственной машине и никак не может устроиться на работу. Когда она находит покореженный «фольксваген жук», то даже не может предположить, во что ввязалась. Теперь тяжело раненному и потрепанному Бамблби снова нужно скрываться, а (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADA554D478A140E3A53B790728F613A0DBD455E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325146   (416720) от 13.09.2019
+
+С. Джей-Джонс | Песнь теней (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Зимняя песнь».
+
+Прошло полгода с тех пор, как Лизель вернулась из Подземного мира, но забыть юного, прекрасного, непостижимого Короля гоблинов, разделившего с ней страсть душевную, телесную и музыкальную, девушке не удается… Она старается не оглядываться назад и жить своей жизнью. Однако страшные события и тревога за брата вынуждают ее вновь искать (   Читать дальше...   )Жанр: Зарубежное фэнтези, Любовное фэнтези, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47CFBC33EAD2EBC1A9E5D1BD2CFDFF37C65912A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325147   (416572) от 13.09.2019
+
+Уилло Дэвис Робертс | Девочка с серебряными глазами (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для большинства самым странным в Кэти были её серебряные глаза. Из-за этого многие относились к ней с недоверием. Но сама Кэти знала, что в ней было кое-что ещё более необычное. Она умела передвигать предметы силой мысли, и эта сила росла с каждым днём. Также Кэти понимала, о чём думают животные. Никто из её знакомых не мог делать ничего подобного. И судя по тому, (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3758DF672C3DC5B2DF7A279327936CAE53E5F454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325080   (416062) от 13.09.2019
 
 Рэй Брэдбери | 451 градус по Фаренгейту (2013) [FB2, EPUB]
@@ -6,7 +114,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416062.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416012.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415885.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415880.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415775.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415769.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415730.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415712.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415704.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415597.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415573.jpg" />
 </div>
 
 
@@ -301,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415336.jpg" />
 </div>
 
 
@@ -328,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414717.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414336.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414331.jpg" />
 </div>
 
 
@@ -410,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414202.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414126.jpg" />
 </div>
 
 
@@ -467,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414027.jpg" />
 </div>
 
 
@@ -495,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413748.jpg" />
 </div>
 
 
@@ -521,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413678.jpg" />
 </div>
 
 
@@ -550,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413625.jpg" />
 </div>
 
 
@@ -576,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413602.jpg" />
 </div>
 
 
@@ -587,116 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7D18E5B37D6E5F564E0CA74C94DE37CE33CCA65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412840   (413473) от 01.10.2020
-
-Джек Финней | Третий уровень [сборник] (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Финней (1911–1995) – знаменитый американский писатель-фантаст. Большая часть его рассказов и повестей, как и роман «Меж двух времен», написанный в 1970 году, посвящены времени и путешествиям в другие эпохи.
-
-Главное произведение писателя – «Меж двух миров» – выдержало огромное количество переизданий практически на всех языках мира. Автору удалось описать Нью-Йорк (   Читать дальше...   )Жанр: Классика фантастики, Научная фантастика, Попаданцы, Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5F6BAB019B9A4E0832A856AFF809F57476F28F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412782   (413468) от 01.10.2020
-
-Алексей Доронин | В двух шагах от вечности (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «На пороге вечности».
-
-2059 год. Человечество избежало ядерной войны. В мире построен рай для избранных. Права остальных стали муляжом, а свобода и равенство – фикцией. Простолюдинам старательно промывают мозги. И реальность часто неотличима от морока, а игра – от реальности. Но есть те, кто не смирился. И мир прогресса и высоких технологий оказывается (   Читать дальше...   )Жанр: Героическая фантастика, Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27720B120ACF542E93CCEF7120F2A251C57E424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412835   (413462) от 01.10.2020
-
-Иван Охлобыстин | Дом Солнца [сборник] (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413462.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой книге знаменитого писателя, актера, режиссера и сценариста представлены две очень разные, но равно яркие повести. В первой автор говорит о хиппи в СССР и рассказывает историю любви между лидером одной из групп «системы» и юной неофиткой из привилегированной советской семьи. Свобода, инакомыслие, красота и творчество молодых хиппи противостоят существующему (   Читать дальше...   )Жанр: Современная русская литература, Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607F2743331427DD662AFC90CFACB96C17A0D125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948335   (413334) от 19.10.2015
-
-Стивен Кинг и др. | Вечерний свет [Сборник] (2015) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Cemetery Dance», основанный в 1988 году 22-летним студентом университета Мэриленда Ричардом Чизмаром и впоследствии объединивший вокруг себя сотни тысяч фанатов хоррора и саспенса, отпраздновал свое 25-летие!
-
-За эти годы сомнительный любительский проект поднялся до уровня мейнстрима, солидного издания, на страницах которого обрели жизнь истории таких известных (   Читать дальше...   )Жанр: Ужасы и Мистика, Зарубежное фэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056F75D1AF2A5CDFC2AE1B71EFBB11797EB9EF49
 ```
 
 https://mybot314.ru/tekegram_catalog/

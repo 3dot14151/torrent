@@ -6,7 +6,7 @@ VA - Ретро FM представляет: Русская, Зарубежна�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576192.jpg" />
 </div>
 
 
@@ -50,7 +50,7 @@ VA - The Best Of Italo Disco - Живая классика (2012) [MP3|320 кб/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539946.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Die Coolen 80er (2004) [MP3|320 кб/с]<Pop, Dance, Oldes>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508601.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Testament Van De Sixties 1960-1969 (10CD) (2007) [MP3|320 кб/с]<Blues, F
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508448.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Wow That Was The 70's (1999) BoxSet 8CD[MP3|320 кб/с]<Pop, Rock, Oldes, 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506635.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497828.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484605.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483584.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ VA - Pure 60's ... (2012) Collection BoxSet 4CD[MP3|320 кб/с]<Pop, Rock, Olde
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480307.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adriano Celentano - Le storie di Adriano (2011) [MP3|320 кб/с]<Pop, Rock'n'Ro
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467072.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Русская Дискотека СССР (2012) [MP3|187-192 кб/с]<Pop
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466591.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Дискотека у патефона. Музыка 30-40 годов (Vol.
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448729.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - 80 Greatest Songs of All Times (2012) [MP3|320 кб/с]<Rock N Roll, Rock. 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440948.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439239.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429070.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427285.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - И Просится Сердце В Полёт... (Аэрофлоту - 75)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416179.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Золотой фонд. Кумиры прошлых лет 24 CD (1996-200
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409018.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - British Rock N' Roll Anthology (1956-1964) 5 CD's Box Set (2009) [MP3|320 �
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405485.jpg" />
 </div>
 
 
@@ -634,76 +634,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 564389   (402744) от 23.10.2012
-
-VA - Суперхиты дискотеки 90-х. Часть 4 (2012) [MP3|320 кб/с]<Pop, Eurodance>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_402744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Base- Happy Nation
-02. Corona - The Rhythm Of The Night
-03. Mr.President - Up'n Away
-04. Cappella - U Got 2 Let The Music
-05. Magic Affair - Omen III
-06. DJ BoBo - Keep On Dancing
-07. Ice MC - Russian Roulette
-08. Captain Hollywood - All I Want
-09. Ace Of Base - Don't Turn Around
-10. Yaki-Da - Pride Of Africa(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E5CC0C012881B09E0BADD02EEDD6F340778695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562725   (402710) от 23.10.2012
-
-Комиссар - Collection (2010) [MP3|256 кб/с]<Поп музыка>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_402710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 туман-туманище
-02 любовь - это яд (trimmermania.ver feat. Dj vig)
-03 ангел
-04 скорость (addicted2jersey.ver)
-05 что ж, ты лето
-06 песня зовет
-07 дрянь (club mix)
-08 телефон
-09 мне бы (fstar disco.ver)
-10 песня зовет (remix)(   Читать дальше...   )Жанр: ПопПродолжительность: 03:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7C9719526EB731CC825344D0CF6D1CA075A2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569232   (392377) от 02.11.2012
 
 В.Цой и группа Кино - Кино in Remix (2012) [MP3|320 кб/с]<Рок, Память>
@@ -712,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392377.jpg" />
 </div>
 
 
@@ -738,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390768.jpg" />
 </div>
 
 
@@ -769,7 +699,7 @@ VA - Золотые и редкие песни 70-80х  (2012) [MP3|256 кб/с]
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387058.jpg" />
 </div>
 
 
@@ -804,7 +734,7 @@ VA - Лучшая 100ка Ретро FM 8 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384914.jpg" />
 </div>
 
 
@@ -839,7 +769,7 @@ VA - Лучшие песни Ретро FM (2012) [MP3|256 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382592.jpg" />
 </div>
 
 
@@ -859,6 +789,64 @@ VA - Лучшие песни Ретро FM (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD3B80E9D0D05BC99BC347B410F15ADB9365AB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068676   (380447) от 01.11.2016
+
+Вадим Козин - Последний концерт (1995) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. О матери
+ 02. Над рекой
+ 03. Стан журавлиный
+ 04. День и ночь (по Киплингу)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA94C2D3BDF1AFA99C5E5ED0660CFE10AC34289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068634   (380273) от 01.11.2016
+
+Вадим Козин - К 100-летию со дня рождения (2003) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Любушка
+ 02 - Маша
+ 03 - Осень
+ 04 - Мой костер(   Читать дальше...   )Жанр: РетроПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3D18A4AD7E18E10B7003CF0129E979C4B605D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

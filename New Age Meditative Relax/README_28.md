@@ -1,3 +1,38 @@
+###  Публикация: 459899   (79120) от 29.02.2012
+
+VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Asher - Red desert (05:39)
+02. Prem Joshua - New kafi (06:17)
+03. Prem Joshua - Mango rain (07:10)
+04. James Asher - Further east (05:25)
+05. Chinmaya Dunster & Vidroha Jamie - Wandering way (04:24)
+06. Music from the World of Osho - Namaste (03:45)
+07. Al Gromer Khan - Agori dance (07:07)
+08. Ustad Usman Khan - Raga hansadhwani (08:57)
+09. Hariprasad Chaurasia - Indian folklore (10:03)
+10. Namaste - Gayatri mantra (09:01)(   Читать дальше...   )2001Жанр: New Age, Meditative, RelaxПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784719   (69538) от 12.03.2025
 
 Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
@@ -6,7 +41,7 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69538.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69537.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68805.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35831.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35206.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34414.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31975.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31954.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31951.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31934.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31903.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31845.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31567.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28780.jpg" />
 </div>
 
 
@@ -412,7 +447,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2131.jpg" />
 </div>
 
 
@@ -441,7 +476,7 @@ Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1784.jpg" />
 </div>
 
 

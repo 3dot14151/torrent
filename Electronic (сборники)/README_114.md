@@ -1,3 +1,90 @@
+###  Публикация: 1041460   (582528) от 09.08.2016
+
+VA - Hit Charts Allstars Festival (2016) [MP3|320 Kbps] <House, Progressive, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Melbourne Bounce Project & Gemeni  -  Melbournia Superstars (Extended Mix)  4:10
+002. Axwell & Shapov  -  Belong (Axwell & Years Remode)  6:00
+003. Ravitez & Afrojack Ft MC Ambush  -  System (Extended Mix)  5:18
+004. Angia  -  Sunshine (Original Mix)  4:45(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 10:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E76014DBCC2E5057C92D1D1BCFEF2DA62E992B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041571   (582525) от 09.08.2016
+
+VA - Beatport Trance Pack (08.08.) (2016) [MP3|320 Kbps] <Trance,  Progressive, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582525.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaimo K, Sarah Russell  -  Why Can't You Love Me (Original Mix)  6:50
+002. Amo R  -  Viracocha (False 9 Remix)  4:44
+003. U-Mount  -  Guard (Original Mix)  6:40
+004. Obi  -  Directions (Original Mix)  7:05(   Читать дальше...   )Жанр: Trance,  Progressive, Uplifting TranceПродолжительность: 12:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CC99A08A5137361324F34E6B757B0ADF933653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041546   (582478) от 09.08.2016
+
+VA - Sexy Deephouse Selection (2016) [MP3|320 Kbps] <Deep House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Nicoya - Lo Que Mueves [00:06:56]
+02. Shivana Faction - Prime Position [00:07:38]
+03. Spiced Boogie - Upscale [00:05:59]
+04. Unexpected Marvel - Plug and Play [00:06:35](   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 02:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57D22D1B082E11DD46093C2CB3041F454D8F960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041541   (582463) от 09.08.2016
 
 VA - Summer Hits 100 Empire (2016) [MP3|320 Kbps] <House, Progressive, Dance>
@@ -6,7 +93,7 @@ VA - Summer Hits 100 Empire (2016) [MP3|320 Kbps] <House, Progressive, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582463.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Neon Club House: Spring DJ Session (2019) [MP3|320 Kbps] <Club, Dance, Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582256.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Sense Of Trance #1-13 (2011) [MP3|320 kbps]<Trance>[обновляемая]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581588.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ VA - A World Of Trance (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581518.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ VA - Sexy Chillout Vol 1 (2016) [MP3|320 Kbps] <Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581475.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ VA - Mechanoids Carnival (2016) [MP3|320 Kbps] <Dubstep, Drumm and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581471.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ VA - The Best - In Music We Trust  Vol.5 (2016) [MP3|320 Kbps] <House, Trance, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581466.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ VA - Trance Desire Volume 51 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581112.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ VA - In Da Club Vol.53 (07.07.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581104.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ VA - Strong Sound Pressure (2016) [MP3|245-320 Kbps] <Club, Progressive, Funky, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580658.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ VA - Beatport Trance Pack (10.08.) (2016) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580650.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ VA - Ultimate Trance Sensation (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580648.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ VA - 100 Nowadays Points Cross (2016) [MP3|320 Kbps] <House, Tropical, UK Garage
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580642.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ VA - Philosophy Of Property Of The Trance (2016) [MP3|320 Kbps] <Trance,  Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580641.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ VA - Psychedelic Goa Trance Vol. 1 (2016) [MP3|320 Kbps] <Psychedelic, Psy Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580596.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ VA - Moment Follow Trance Lights (2016) [MP3|128-320Kbps] <Trаnсе, Еmоtіо
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580595.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ VA - High Rate Surround Destinations (2016) [MP3|206-320 Kbps] <Club, UK Garage,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580593.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ VA - Beatport Top 100 Deep House July (2016) [MP3|320 Kbps] <Deep House, House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580532.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ VA - Beatport Top 100 Techno July (2016) [MP3|320 Kbps] <Techno, Minimal Techno,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580474.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ VA - Drum & Bass - Gold Collection (2016) [MP3|320 Kbps] <Drill and Bass, Liquid
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580472.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ VA - Options Remake Of Tracks May -A- (2019) [MP3|320 Kbps] <House, Progressive,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580317.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ VA - Epic Trance (2019) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580316.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ VA - Armada Club Rising (2022) [MP3|320 Kbps] <House, Trance, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580016.jpg" />
 </div>
 
 
@@ -659,105 +746,6 @@ VA - Armada Club Rising (2022) [MP3|320 Kbps] <House, Trance, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6176B8E2F817EDB04F752E85A690760AFCEF3369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553747   (580015) от 28.05.2022
-
-VA - Armada Music: New Dance Now (2022) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Sunstroke (Disco Citizens Evolution Mix) (3:12)
-02. MUNTII - Matter Of Time (2:50)
-03. Signum - Beyond This Earth (Richard Durand Remix) (4:18)
-04. Bond - Focus (4:31)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D8571E6ED3D44E2CB9DD7CD7E736CEEEFB1433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360448   (579912) от 08.07.2011
-
-VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kbps]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Holland feat. Yana Kay - Tears In The Rain (Alex M.O.R.P.H B2b Woody Van Eyden Remix) (8:17)
-02. Ava Mea - In The End (Original Mix) (9:25)
-03. Jarah Damial - Incognata (Original Mix) (9:06)
-04. Rihanna - S & M (Dave Aude Club) (7:28)
-05. Calvin West - Children (5:32)
-06. Bassmonkeys Feat. Natasha Anderson - I 'll Show You Love (Bassmonkeys Club Mix) (6:56)
-07. Daniel Kandi & Phillip Alpha - If It Ain't Broke (Original Mix) (7:26)
-08. J Latif- I Wanna Go There (Stonebridge Club Mix) (6:21)
-09. DJ Danila ft Gosha - Let The Music (Belocca Remix) (7:02)
-10. Filo & Peri vs Ronski Speed - Propane (Original Mix) (6:33)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA82A305CF55C9FFF1687C7BEA097C74E1027E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360693   (579911) от 08.07.2011
-
-VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kbps]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albin Myers - Faking Love (Sebastien Drums & Rob Adans Remix) (6:03)
-02. Alice Deejay - Better Off Alone (Laidback Luke Remix) (5:03)
-03. Antoine Clamaran feat. Laurent Pautrat - Somebody Scream (Original Mix) (7:03)
-04. Armin Van Buuren feat. Nadia Ali - Feels So Good (Armin Van Buuren Club Mix) (6:26)
-05. Bella - Nobody Loves Me (Hardwell Remix) (6:03)
-06. Belmond & Parker - On The Move 2k11 (Club Mix) (6:17)
-07. Ben Preston feat. Max Fredrikson - Glorious 2011 (Cliff Coenraad Remix) (7:15)
-08. Cahill feat. Joel Edwards - In Case I Fall (Club Mix) (6:56)
-09. Cobra Starship Ft. Sabi - You Make Me Feel (Disco Fries Extended Mix) (5:31)
-10. Craig Connelly - Absolute Electric (Tritonal Club Mix) (7:50)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACEC25B4E2DB208502584DAA48928DCF1449A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

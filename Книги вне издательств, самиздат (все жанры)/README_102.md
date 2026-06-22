@@ -1,3 +1,111 @@
+###  Публикация: 953910   (344166) от 06.11.2015
+
+Карина Демина | Хозяйка большого дома (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война между двумя нечеловеческими расами — альвами и железными оборотнями — перекроила мир и отняла у Ийлэ не только семью, но и веру в людей. В ее доме поселился новый хозяин. Он из рода псов, которых Ийлэ ненавидит. Еще бы, ведь ей пришлось несколько месяцев терпеть их издевательства! Тем более подозрительными кажутся ей доброта и забота Райдо из рода Мягкого Олова, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670F8217FB41E04C5B5CCFD6E6BC5703402EBF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418886   (344101) от 26.10.2020
+
+Александр Гребенников  | Цикл «Пояс жизни» [2 книги] (2016-2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученым с далекой планете Гея, удалось путем воздействия на группу генов, отвечающих за старение организма, сделать свои тела бессмертными, что, в конечном итоге, привело к непоправимым последствиям. Сама природа отомстила людям за грубое вмешательство в естественный баланс, лишив их репродуктивной функции. Бессмертие, как оказалось, вовсе не означает вечную жизнь. (   Читать дальше...   )Жанр: Космическая фантастика, ПриключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49959C0F51C382FEF9873F5B94D5E0BB4053B6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411850   (343941) от 26.10.2020
+
+Илья Зубец | «Легенда Хэнсинга» [3 книги] (2018-2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Легенда Хэнсинга» книги 1-3.
+
+Серия книг про величайшего вора, контрабандиста и наемника в Хэнсинге... Гигантском городе в мире, который только начал осваивать огнестрельное оружие и электричество. В мире, где все еще живы старые мифы и легенды.Жанр: Боевая фантастика, Детективная фантастика, Стимпанк, Городское фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90FE570C307199A45351520EA428CB7C2EF42BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419143   (343717) от 26.10.2020
+
+Валерий Гуминский | Цикл «Найденыш» [5 книг] ((2019-2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять книг цикла «Найденыш».
+
+Его род почти полностью истреблен в клановой войне, у него не осталось родителей, нет братьев и сестер. Но еще жив Патриарх рода, о существовании которого он даже не подозревал, как и не подозревал о том, что за ним ведется охота. С самых малых лет, попав под опеку тайного шпионского ордена, мальчик готовился стать боевым волхвом, так (   Читать дальше...   )Жанр: Боевое фэнтези, Альтернативная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EEE8D377A2C5A84E386200DCF3681E6C79B8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580816   (342031) от 25.11.2012
 
 Станислав Сергеев | И снова война [2012] [FB2]
@@ -6,7 +114,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342031.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341823.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341721.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341518.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341508.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341072.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341063.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341061.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341059.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340893.jpg" />
 </div>
 
 
@@ -274,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340887.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340725.jpg" />
 </div>
 
 
@@ -326,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340716.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340701.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340697.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340494.jpg" />
 </div>
 
 
@@ -431,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340321.jpg" />
 </div>
 
 
@@ -457,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340090.jpg" />
 </div>
 
 
@@ -484,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339713.jpg" />
 </div>
 
 
@@ -511,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339709.jpg" />
 </div>
 
 
@@ -538,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339702.jpg" />
 </div>
 
 
@@ -564,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339353.jpg" />
 </div>
 
 
@@ -575,110 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41DAA1EF826E813DD6C4127052A1014DECAB8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419517   (339339) от 28.10.2020
-
-Тайниковский | Цикл «Эволюция Кинга» (10-11 книги) [2 книги] (2020) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я стал еще сильнее. Теперь, в моих жилах течет кровь самого Бога света - Люмминоса, а значит созданиям тьмы не выстоять против меня. Новые друзья и враги. Еще больше приключений и тайн. Все это вы найдете в новой книге о приключениях трейсера Кинга - Архаонт.Жанр: ЛитРПГ, Попаданцы в магические миры, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057C228A57F3027D9A020C4DD3DBAD48E0717E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330759   (338988) от 11.10.2019
-
-Ричард  Лаймон | Рассказы. Часть 2 (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Лаймон (1947–2001) — известный американский автор, пишущий преимущественно в жанре ужасов, автор более 60 рассказов и 30 романов, среди которых «Подвал», «Ночь без конца», «Остров» и многие другие, ставшие мировыми бестселлерами. Сборник представляет собой наиболее полное собрание рассказов Ричарда Лаймона на русском языке.Жанр: Фантастика, Фэнтези, Мистика, УжасыПеревод: Мария Савина-Баблоян, Андрей Вадимович Новиков, Андрей Осминин, Владимир И. Малахов, Кирилл Петрович Плешков, СноуФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09896EF7CB8FFB6CE2F98E9074C065EF34E63131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330629   (338986) от 11.10.2019
-
-Джезебел Морган | Иди через темный лес (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ты найдешь у сестры соколиные перья, смирись - её уже не спасти. Не пытайся её защитить, не втыкай иглы и ножи в оконную раму - они все равно не помогут. А когда она исчезнет - шагни вслед за нею в Навь. Иди, иди же ей на помощь, иди через темный лес. И кто знает, что ты в нем найдешь.Жанр: Фэнтези, Мистика, Попаданцы в магические мирыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7710972165294259DB4523989F3547EE9041FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330717   (338982) от 11.10.2019
-
-Ричард  Лаймон | Рассказы. Часть 1 (2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Лаймон (1947–2001) — известный американский автор, пишущий преимущественно в жанре ужасов, автор более 60 рассказов и 30 романов, среди которых «Подвал», «Ночь без конца», «Остров» и многие другие, ставшие мировыми бестселлерами. Сборник представляет собой наиболее полное собрание рассказов Ричарда Лаймона на русском языке.Жанр: Фантастика, Фэнтези, Мистика, УжасыПеревод: Дмитрий Павленко, Амет Кемалидинов, Дмитрий Епифанов, Андрей Осминин, Игорь Варивода, Николай ГусевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C213382ED39B88C42122BEE7BF3EF2C9CB2C7FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

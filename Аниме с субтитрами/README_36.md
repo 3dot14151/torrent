@@ -1,3 +1,29 @@
+###  Публикация: 1118802   (811081) от 26.03.2017
+
+Okusama ga Seitokaichou! Plus! / My Wife is the Student Council President+! / Моя жена - президент учсовета! Плюс! [2016, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Студия Seven / セブンЖанр: комедия, эттиРежиссер: Сасаки ТокиёсиПеревод: AOS (лирика Shaman Anime)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 8 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1808A1BFEFB251A1217A76EDDF758545323194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118765   (810740) от 26.03.2017
 
 Ганц (фильм) | Gantz O | Gantz:O [2016, Movie] BDrip 1080p 10bit raw
@@ -6,7 +32,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810740.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Hoozuki no Reitetsu (2017) | Хладнокровный Ходзуки [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809724.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Nora to Oujo to Noraneko Heart | Nora, Princess, and Stray Cat | Нора, пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809716.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809622.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809405.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Komori-san wa Kotowarenai! / Komori-san Can't Decline / Безотказная �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809274.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Pan de Peace! / Хлеб мира! [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809158.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / This Art Club Has a Problem! / У этог
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809146.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Nerima Daikon Brothers / Братья Нэрима Дайкон [2006, TV, 12 ep
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809043.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Tenamonya Voyagers / Те еще странники [1999, OVA, 4 ep.] DVDRip Hi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809034.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808878.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Eldlive / Эль Драйв [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808735.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808024.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807858.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Nurse Witch Komugi-chan R / Медсестра-волшебница Комуги
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807101.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Garo: Honoo no Kokuin | Гаро: Печать пламени [2014, TV, 24] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806461.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Saenai Heroine no Sodatekata | Saekano | Как воспитать из обыч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806458.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806153.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Magi: The Kingdom of Magic / Magi 2 / Маги 2 [2013, TV, 25 эп.] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805812.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Chiruran: Nibun no Ichi / Чируран пополам [2017, TV, 12] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805011.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Trickster: Edogawa Ranpo "Shounen Tanteidan" yori / Обманщик: Клуб �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804787.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804164.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Otaku no Video / Фильм об отаку 1982 и 1985 [1991, OVA, 2 из 2] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803841.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Tytania | Титания [2008, TV, 26 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803711.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Shounen Maid / Парень-горничная [2016, TV, 12 + SP] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803448.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Shounen Maid / Парень-горничная [2016, TV, 12 + SP] BDRip 1080p 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E93D88748A55EDC08F34B820EFCABAEED5162596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010373   (803417) от 24.04.2016
-
-Uchuu Senkan Yamato 2199: Hoshi-Meguru Hakobune | Odyssey of the Celestial Ark | Космический линкор Ямато 2199: Одиссея небесного ковчега [2014, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803417.jpg" />
-</div>
-
-
-###  Подробнее
-
-2199 год. Космический линкор Ямато покидает планету Искандер выкрав на ней устройство необходимое для спасения Земли. Но на половине пути их перехватывает боевой линкор Гатлантиса, под командованием Горана Дагума. Свирепый командующий требует немедленной сдачи экипажа. Обременённые возложенной на них миссией земляне, вынуждены искать выход из столь опасной ситуации. (   Читать дальше...   )Производство: студия XebecЖанр: приключения, фантастикаРежиссер: Bessho Makoto, Izubuchi YutakaПеревод: TargonЯзык субтитров: #1: Английский; #2: Японский; #3: РусскийПродолжительность: 1 эп. по 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1802631D54E99A01232724C065F30208DB50C12F
 ```
 
 https://mybot314.ru/tekegram_catalog/

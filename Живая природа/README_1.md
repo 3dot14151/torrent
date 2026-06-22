@@ -1,3 +1,107 @@
+###  Публикация: 1606396   (1044502) от 21.01.2023
+
+Подводный мир Окаванго / Underwater Okavango (2012) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный взгляд на невероятное разнообразие животного и растительного мира в нетронутых водах реки Окаванго на севере Ботсваны. Вы будете поражены местной флорой и фауной, превосходящей любую другую пресноводную экосистему. Подводный оператор Бред Бестельник живет на Окаванго всю жизнь и много лет исследует сложную систему каналов и бассейнов этой реки. Хищная (   Читать дальше...   )Производство: Великобритания, Earth-Touch, Igloo PostЖанр: документальный, природа, флора, фаунаРежиссер: Грэм ДуэйнПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA3D39EB2575A35413DCD1647BEAD9663694186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606389   (1044497) от 21.01.2023
+
+Насекомые — гении стратегии / Insects, Geniuses Strategy (2021) HDTVRip (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044497.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом документальном фильме рассказывается о мире насекомых, напоминающем мир людей своими искусными методами выживания, где они сражаются за то, чтобы прожить еще один день и сохранить свое потомство. Также впервые будут раскрыты загадочные места обитания таракановых ос, богомолов и платяной моли.Производство: Южная Корея, EBS introducesЖанр: документальный, природа, флора, фаунаРежиссер: Со ДжунПеревод: одноголосый профессиональный (CLS Media)Субтитры: отсутствуютПродолжительность: 2x ~00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B3C4BD7BAD9CF92D162CD1E60FC4EEFF2F09E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606679   (1044309) от 23.01.2023
+
+Игры животных / Animals at Play (2019) HDTVRip (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всём мире природы молодые животные проводят большую часть своего времени в игре. От кошек, обожающих погоню, до шимпанзе, умеющих решать головоломки. Новые исследования показывают, что игра лежит в основе почти всего, чему учатся животные. Игра - это гораздо больше, чем просто веселье. Она имеет фундаментальное значение для развития животного, а в некоторых случаях (   Читать дальше...   )Производство: Великобритания, Offspring Films, ZDF, BBCЖанр: документальный, природа, флора, фаунаРежиссер: Ден ПероунПеревод: многоголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF327D8C1DB4C6556CF6FB20663D6CCC23C5D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606681   (1044292) от 23.01.2023
+
+Лошади / Horses (2020) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни одно другое животное не повлияло на нашу жизнь так сильно, как лошадь. Вся наша история неразрывно связана с этим непарнокопытным. В этом документальном фильме показаны отношения, которые выходят далеко за рамки наших представлений. Хотя использование лошадей резко сократилось с начала промышленной революции, наши сердца по-прежнему бьются в унисон; когда мы смотрим (   Читать дальше...   )Производство: Испания, PavoЖанр: документальный, природа, флора, фаунаРежиссер: Альберто Хосе Редондо ВиллаПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6804789524D225FB6014F8F297B013FCA12139CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607705   (1043956) от 27.01.2023
 
 Дайвинг с крокодилами / Diving with Crocodiles (2010) HDTVRip
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043956.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043938.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043857.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043797.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043756.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043591.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043568.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043566.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043557.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042657.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042592.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042541.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042539.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042507.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041843.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041638.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041465.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041387.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040839.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040340.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039580.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039146.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E8B703B96FA0238D8122EA0D85C1183766936EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440271   (1038721) от 17.01.2021
-
-Земля ночью в цвете / Earth at Night in Color (2020) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночные драмы животного мира при луне, открывающие новые озарения и никогда ранее невиданные формы поведения. Сверхчувствительные новейшие камеры позволяют видеть в кромешной тьме как днём - узнайте новое о своих соседях по Планете.Производство: США / Offspring FilmsЖанр: документальныйАктеры: Том ХиддлстонПеревод: Одноголосый закадровый (ViruseProject)Субтитры: русские, украинские, английские, арабские, болгарские, чешские, китайские, датские, немецкие, греческие, эстонские, финские, французские, еврейские, хинди, венгерские, индонезийские, итальянские, японские, корейские, латвийские, литовские, малайские, голландские, норвежские, польские, португальские, словацкие, словенские, испанские, шведские, тамильские, телугу, (   Читать дальше...   )Продолжительность: ~00:30:00 серияРеклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377BE6A5A98D65F1A9BB6574F11F1E3E573A8FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440277   (1038720) от 17.01.2021
-
-Земля ночью в цвете / Earth at Night in Color (2020) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночные драмы животного мира при луне, открывающие новые озарения и никогда ранее невиданные формы поведения. Сверхчувствительные новейшие камеры позволяют видеть в кромешной тьме как днём - узнайте новое о своих соседях по Планете.Производство: США / Offspring FilmsЖанр: документальныйАктеры: Том ХиддлстонПеревод: Одноголосый закадровый (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~00:30:00 серияРеклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D30D9181D6008A07666144E292C275B6F8B7842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440266   (1038692) от 17.01.2021
-
-Земля ночью в цвете / Earth at Night in Color (2020) WEB-DL [H.264/2160p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночные драмы животного мира при луне, открывающие новые озарения и никогда ранее невиданные формы поведения. Сверхчувствительные новейшие камеры позволяют видеть в кромешной тьме как днём - узнайте новое о своих соседях по Планете.Производство: США / Offspring FilmsЖанр: документальныйАктеры: Том ХиддлстонПеревод: Одноголосый закадровый (ViruseProject)Субтитры: русские, украинские, английские, арабские, болгарские, чешские, китайские, датские, немецкие, греческие, эстонские, финские, французские, еврейские, хинди, венгерские, индонезийские, итальянские, японские, корейские, латвийские, литовские, малайские, голландские, норвежские, польские, португальские, словацкие, словенские, испанские, шведские, тамильские, телугу, (   Читать дальше...   )Продолжительность: ~00:30:00 серияРеклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C2BA8726899E252EEC8A471B420C051F7A14A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440786   (1038200) от 19.01.2021
-
-Тайное царство: Грибы, определившие наш мир / The Kingdom: How Fungi Made Our World (2018) WEB-DL [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всей сушей правит одно скрытое от глаз царство. Царство грибов. Их можно встретить не только в лесу – они повсюду: на наших ногах, в наших легких, чего бы вы не коснулись и куда бы вы не пошли. Окунитесь в мир неизведанных и могучих древних организмов.Производство: Канада, Real to Reel Productions, Smith & NashtЖанр: Документальный, природа, флора, фаунаРежиссер: Аннамария Талас, Симон МешПеревод: Двуголосый закадровый, профессиональный (1ТВЧ)Субтитры: АнглийскиеПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9C7F0B091AE3F305BB1530B7BBAF01E2CB5C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

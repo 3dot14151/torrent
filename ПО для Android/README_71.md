@@ -1,239 +1,3 @@
-###  Публикация: 1833966   (247828) от 02.11.2025
-
-ЯПлакалъ v2.129 Mod Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yaplakal.com — популярное информационно-развлекательное сообщество. Мы любим обсуждать интересные события и весело проводить время. Все материалы добавляют и оценивают пользователи. Работаем с 2004 года. Трижды лауреат Премии Рунета в категории "Сообщество Рунета". Официальное приложение для Android. У нас вы найдете: громкие мировые события, обсуждение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 02.11.2025Разработчик: Yaplakal.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029F9F284286BF656A4C315C4F253143CB252CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833978   (247822) от 02.11.2025
-
-Худеем дома за 30 дней v3.13 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько минут в день заменяют час в тренажерном зале. Весьма мощный инструмент с доступом к планам упражнений для похудения в домашних условиях. Содержит обширное количество тренировок с иллюстрациями. В наличии возможность создания своих комплексов упражнений. Позволяет вести статистику занятий.Тип издания: PremiumРелиз состоялся: 25.07.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1261C8C6F04177D020516C0974B5969592486B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833970   (247821) от 02.11.2025
-
-VRadio - Online Radio App v2.8.8 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое, минималистичное и функциональное интернет-радио для вашего телефона с возможностью трансляции на устройства в локальной сети. В наличии обширный каталог с множеством категорий. В наличии эквалайзер, таймер сна, поддержка записи аудиопотока и немало других полезных функций. В данном приложении можно менять темы оформления.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: Voulimiotis IoannisПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A725D0CD08C370BD57E0A122B42FEF58B2CFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833988   (247820) от 02.11.2025
-
-WeNote: заметки блокнот планер v6.50 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заметки стали проще. Ищете простой в использовании блокнот для быстрого создания заметок? Нужен удобный блокнот для списков дел и покупок? Наше бесплатное приложение и блокнот для заметок предоставляют все это без полноэкранной рекламы!Тип издания: Mod / PremiumРелиз состоялся: 02.11.2025Разработчик: Notes Notepad NotebookПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1612BF5F6A8906C5ED9EA9FEEF18FD4FB34D367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833969   (247814) от 02.11.2025
-
-Мои Дела: Деловой Органайзер v7.8.5 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планировщик задач «Мои Дела» станет незаменимым помощником для пользователей любых возрастов и социальных статусов! От подростка-до пенсионера, от школьника – до директора, эта программа готова поддержать вас при самом напряженном распорядке дня.
-Незаменимое сочетание календаря, ежедневника, планировщика, блокнота и напоминаний делает планер «Мои дела» уникальным (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 01.11.2025Разработчик: My TasksПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE85B62D1B5C69691B59A7A4F51A007821C5D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833985   (247813) от 02.11.2025
-
-AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоторедактор - коллаж фото предлагает все, что вы хотите редактировать арт фото. Множество стильных эффектов, фильтров, монтаж, сеток и удаление объектов помогут вам создать привлекательный рисования, даже если вы никогда не редактировали фотографию раньше. превратить ваши фотографии в настоящие произведения искусства в стиле аниме с Аниме фото функция. Мультяшные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.11.2025Разработчик: InShot Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440191   (247754) от 06.06.2023
-
-Colorize it v2.1.1 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои старые черно-белые фотографии, раскрасив их с помощью искусственного интеллекта! "Colorize it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматической раскраски изображений в оттенках серого. Он отлично работает со всеми типами фотографий: полностью полутоновыми, тонированными сепией, частично (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 16.05.2023Разработчик: reAImagineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456369   (247706) от 08.06.2023
-
-Русский самогон 2 v5.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширенная версия приложения "Русский самогон".
-Основные выполняемые функции:Тип издания: Купленная версия с Маркета (Paid) и FreeРелиз состоялся: 13.02.2023Разработчик: Roma ShilovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D85A2E3922D76A4E0AE816BC600256954AE987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467995   (247583) от 14.06.2023
-
-МДС | Модель для Сборки - аудиокниги v19.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247583.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Модель для сборки» (сокращённо МДС) - культовая российская радиопередача. Одно из самых известных радиошоу в сегменте авторских программ. Впервые начала выходить на радио в 1995 году. МДС - радиопостановки произведений современной прозы в сопровождении электронной музыки. Приложение является каталогом крупнешего архива МДС mds-club.ru от фанатов с расширенными возможностями: (   Читать дальше...   )Тип издания: Free + AdFree (без рекламы)Релиз состоялся: 05.03.2023Разработчик: Anton BalashovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308A529EEBF4EA612BA1B39E8FCFBC6905D68149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197554   (247438) от 21.06.2023
 
 МТС Music v9.10.0 [Ru]
@@ -242,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247438.jpg" />
 </div>
 
 
@@ -271,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247381.jpg" />
 </div>
 
 
@@ -300,7 +64,7 @@ Kinoplay - просмотр фильмов онлайн 0.1.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247335.jpg" />
 </div>
 
 
@@ -326,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246967.jpg" />
 </div>
 
 
@@ -353,7 +117,7 @@ GPS АнтиРадар v37.0  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246953.jpg" />
 </div>
 
 
@@ -379,7 +143,7 @@ Hawk Map Pro v2.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246909.jpg" />
 </div>
 
 
@@ -406,7 +170,7 @@ Colorize Images v4.0.27 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245815.jpg" />
 </div>
 
 
@@ -432,7 +196,7 @@ Strava: бег и велоспорт 264.11 Lite-Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245298.jpg" />
 </div>
 
 
@@ -458,7 +222,7 @@ Wall Factory v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244666.jpg" />
 </div>
 
 
@@ -484,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244447.jpg" />
 </div>
 
 
@@ -513,7 +277,7 @@ Xmind: Mind Map & Brainstorm 1.9.7 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244143.jpg" />
 </div>
 
 
@@ -539,7 +303,7 @@ KinoHome 1.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243903.jpg" />
 </div>
 
 
@@ -565,7 +329,7 @@ Aurora Store 4.1.1 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243350.jpg" />
 </div>
 
 
@@ -592,7 +356,7 @@ Joy Walls - 4k Wallpapers App v1.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243216.jpg" />
 </div>
 
 
@@ -618,7 +382,7 @@ Gismeteo Lite 1.1.6 Mod by artpen, Grisha180288, Digika [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242666.jpg" />
 </div>
 
 
@@ -644,7 +408,7 @@ Camera Pro 3.4.0 Mod by vitaxa978 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242560.jpg" />
 </div>
 
 
@@ -670,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242224.jpg" />
 </div>
 
 
@@ -684,6 +448,245 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1EE14D9B82CAC6221C796BB221856812B75790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569404   (241889) от 12.08.2022
+
+GPS Waypoints Navigator v9.24 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой телефон в самый мощный GPS-навигатор для устройств на базе Android с помощью GPS-навигатора. Независимо от того, путешествуете ли вы к путевой точке в дикой местности, на море или в городе, GPS-навигатор путевых точек поможет вам найти путь.Тип издания: PaidРелиз состоялся: 9 авг. 2022 г.Разработчик: Disciple Skies SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624973   (241609) от 08.04.2023
+
+Визитница 7.75 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накопилось много визитных карточек? Поиск нужной визитки занимает много времени? Добавьте все ваши визитки в приложение "Визитница" просто сфотографировав их. Отсортируйте по категориям, добавьте метки и находите нужную визитку за считанные секунды!Тип издания: FullРелиз состоялся: 29.02.2020Разработчик: andreyamПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB2DD0EF3998139ACE31E7D063D04BA633E8906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524200   (241262) от 16.04.2022
+
+FullReader - читалка всех форматов книг v4.3.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241262.jpg" />
+</div>
+
+
+###  Подробнее
+
+FullReader — многофункциональное приложение для чтения электронных книг, просмотра PDF и DjVu файлов, журналов, комиксов, а также прослушивания аудиокниг и работы с документами на смартфонах и планшетах.Тип издания: Пиратка (Premium)Релиз состоялся: 15 апреля 2022 г.Разработчик: ITENSEПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5774CFFD74FBDE088943EAB117E23675716F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571442   (240089) от 21.08.2022
+
+ReVanced YouTube Music 5.17.51 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240089.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReVanced YouTube Music - мобильное приложение, в котором собраны песни и альбомы, загруженные на YouTube музыкантами, лейблами и обычными пользователями.Тип издания: ModРелиз состоялся: 15.08.2022Разработчик: snuser (ReVanced Team)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E668C437F6098DF9D879089903FE482A9ED399EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452773   (239625) от 24.04.2022
+
+CamSam PLUS v3.7.7 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239625.jpg" />
+</div>
+
+
+###  Подробнее
+
+CamSam PLUS - Система предупреждения о скорости и красном свете камеры!
+
+С CamSam PLUS вы получаете проверенные редакцией предупреждения о скорости камеры в режиме реального времени. Более 5 миллионов участников по всему миру ежедневно сообщают о вновь обнаруженных камерах скорости.Тип издания: Пиратка (Plus)Релиз состоялся: 1 марта 2021 г.Разработчик: Eifrig Media GmbHПоддерживаемая ОС: Android 4.4Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA15C4C07452774F622D0A24F3F16AA4DF550FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572653   (238896) от 27.08.2022
+
+Learn English - 6000 Essential Words 4.1.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстро пополняйте свой словарный запас с помощью самого эффективного метода: метода визуальной памяти с картинками и карточками.
+
+Это приложение подходит для начинающего, среднего и продвинутого уровней с более чем 6000 слов с картинками и произношением носителей языка. 10 основных тем, разделенных на 145 уроков со словарем по различным темам, значительно обогатят (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22 авг. 2022 г.Разработчик: PORO ENGLISHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2042236FA0A9B200FC97B9F4CD86F9A255DDCCB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572472   (238863) от 27.08.2022
+
+AntiBAG Тахограф 2.0.108 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тахограф в кармане!Тип издания: PaidРелиз состоялся: 19 июл. 2022 г.Разработчик: ZlojDalnoboy.PLПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410718   (238528) от 29.04.2022
+
+Медиатека: молитвы, библия, евангелие, требы v1.2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушать и читать Православную литературу с текстовой синхронизацией. Молитвослов, библия, евангелие, песнопения, акафисты, православные аудиокниги, молитвы. Слушайте 7 дней бесплатно! Читайте бесплатно всегда! Заказывайте Требы во многие храмы и монастыри прямо из приложения. Создано по благословению протоиерея Андрея Лемешонка.Тип издания: Пиратка / UnlockedРелиз состоялся: 27 апреля 2022 г.Разработчик: Audiolitera.ruПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573773   (237744) от 02.09.2022
+
+Magnifier Plus with Flashlight 4.5.3 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы устали читать этикетки с мелким шрифтом? Теперь Вы можете использовать свой телефон в качестве идеальной цифровой лупы!
+Приложение поддерживает увеличение на экране Вашего устройства, а также позволяет использовать вспышку для того, чтобы улучшить освещение или как фонарик.Тип издания: PremiumРелиз состоялся: 30 авг. 2022 гРазработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878537276714A4C9D772A42D8D3A6E1DBDC0EE2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

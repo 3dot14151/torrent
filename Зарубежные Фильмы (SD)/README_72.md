@@ -1,3 +1,133 @@
+###  Публикация: 615146   (978342) от 07.02.2013
+
+Потерпевший / Wrecked (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой очнулся в разбитом автомобиле, посреди каких-то джунглей. Машина разбита, у него сломана нога, вокруг несколько трупов, а в бардачке револьвер. Он ничего не помнит — как он здесь оказался и даже как его зовут. Вокруг глухой лес и никого нет. Сначала надо как-то выжить, а потом попытаться добраться до людей. А по пути еще и вспомнить что же произошло. А поскольку в багажнике еще и сумка полная денег, то еще спастись от людей, которые будут пытаться убить.Жанр: Триллер, Драма, Детектив, ПриключенияРежиссер: Майкл ГринспенАктеры: Эдриан Броуди, Каролин Давернас, Райан Роббинс, Адриан Холмс, Джейкоб Блэр, Марк МакКончиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016387C906589A6AAAFB9379404574730D771797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615163   (978300) от 07.02.2013
+
+Толстяк на ринге / Here Comes the Boom (2012) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель биологии в средней школе подрабатывает бойцом в смешанных боевых искусствах, пытаясь собрать деньги, чтобы сохранить школьную музыкальную программу.Производство: СШАЖанр: Боевик, КомедияРежиссер: Фрэнк КорачиАктеры: Кевин Джеймс, Сальма Хайек, Генри Уинклер, Грег Джерманн, Джо Роган, Гари Валентайн, Чарис Пемпенгко, Бас Раттен, Регги Ли, Марк ДеллаГротт и др.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A971AB07F9BBC3F676642DB94D2C5652B6A944A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614914   (978292) от 07.02.2013
+
+Замуж на 2 дня / Un plan parfait (2012) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изабель мечтает о свадьбе. Но на её семье лежит проклятие. Все первые браки неминуемо заканчиваются разводами. Поэтому, когда ее парень делает ей предложение, Изабель решает перехитрить судьбу. Она отыскивает первого попавшегося лузера, влюбляет его в себя и: вместо того, чтобы развестись, случайно влюбляется сама.Производство: Франция / Quad Productions, TF1 Films Production, Scope PicturesЖанр: мелодрама, комедия, приключенияРежиссер: Паскаль ШомельАктеры: Дайан Крюгер, Дэни Бун, Алис Поль, Робер Планьоль, Джонатан Коэн, Бернадетт Ле Саше, Этьен Шико, Лорэ Кэлами, Мэлонн Левана, Оливье КлавериПеревод: ДублированныйПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9906D3279C5CF28FFFC9DA687F6E478259E8CBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615173   (978267) от 07.02.2013
+
+Толстяк на ринге / Here Comes the Boom (2012) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель биологии в средней школе подрабатывает бойцом в смешанных боевых искусствах, пытаясь собрать деньги, чтобы сохранить школьную музыкальную программу.Жанр: Боевик, КомедияРежиссер: Фрэнк КорачиПродюсер: Тодд Гарнер, Кевин Джеймс, Марти П. ЮингАктеры: Кевин Джеймс, Сальма Хайек, Генри Уинклер, Грег Джерманн, Джо Роган, Гари Валентайн, Чарис Пемпенгко, Бас Раттен, Регги Ли, Марк ДеллаГротт и др.Перевод: ДублированныйПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6218906AB75BCE712F9B80418F1FD624564DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614857   (978253) от 07.02.2013
+
+Толстяк на ринге / Here Comes the Boom (2012) HDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель биологии в средней школе подрабатывает бойцом в смешанных боевых искусствах, пытаясь собрать деньги, чтобы сохранить школьную музыкальную программу.Жанр: Боевик, КомедияРежиссер: Фрэнк КорачиПродюсер: Тодд Гарнер, Кевин Джеймс, Марти П. ЮингАктеры: Кевин Джеймс, Сальма Хайек, Генри Уинклер, Грег Джерманн, Джо Роган, Гари Валентайн, Чарис Пемпенгко, Бас Раттен, Регги Ли, Марк ДеллаГротт и др.Перевод: ДублированныйПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF811383847EA11C79C712A02F15D1697DE7E7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974124   (978114) от 10.01.2016
 
 Стеклянный подбородок / Glass Chin (2014) WEB-DLRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978114.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978067.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978059.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977985.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977887.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977879.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977878.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977871.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977824.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977784.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977782.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977691.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977684.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977679.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977674.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977595.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977570.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977539.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977520.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977513.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977457.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:264D2C482B5E28EA3E8461591806FFF0ACBD1CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356584   (977456) от 31.01.2020
-
-Терминатор: Тёмные судьбы / Terminator: Dark Fate (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мексика. Милая девушка Даниэла Рамос, а для друзей просто Дани, вместе с братом приходит с утра работать на завод, но там выясняется, что их вскоре заменят автоматикой. И это не единственная угроза, которую представляют для девушки машины: тут же на неё нападает присланная из будущего и практически неубиваемая модель терминатора REV-9. Но на защиту Дани встает Грэйс (   Читать дальше...   )Производство: США, Китай, Paramount Pictures, Twentieth Century Fox, Skydance MediaЖанр: Фантастика, боевик, приключенияРежиссер: Тим МиллерАктеры: Линда Хэмилтон, Арнольд Шварценеггер, Маккензи Дэвис, Наталия Рейес, Гэбриел Луна, Диего Бонета, Алисия Боррачеро, Энрике Арсе, Стивен Кри, Ферран ФернандесПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full),  английские (Full, SDH)Продолжительность: 02:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF990A3624EC448E810967686C836532090500CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356453   (977449) от 31.01.2020
-
-Хорошие мальчики / Good Boys (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977449.jpg" />
-</div>
-
-
-###  Подробнее
-
-История троих друзей-шестиклассников, планирующих посетить крутую вечеринку. Но прежде они должны хорошенько подготовиться, чтобы не ударить в грязь лицом. Так начинается безумное путешествие по долине Сан-Фернандо, в котором надо вернуть наркотики, украсть пиво и починить сломанного дрона — все это нужно сделать, пока родители не вернулись домой.Производство: США / Good Universe, Point Grey Pictures, Universal PicturesЖанр: Комедия, приключенияРежиссер: Джин СтупницкиАктеры: Джейкоб Тремблей, Кит Л. Уильямс, Брэйди Нун, Молли Гордон, Мидори Френсис, Исаак Ванг, Милли Дэвис, Джош Барклай Карас, Уилл Форте, Mariessa PortelanceПеревод: ДублированноеСубтитры: Русские (полные, форсированные), английскиеПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B239D008EEDD8C203920CA1B18142CD883BF3922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356713   (977396) от 31.01.2020
-
-Хороший лжец / The Good Liar (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный мошенник Рой Кортни едва верит своей удаче, когда знакомится в сети с богатой вдовой Бетти Маклиш. Очаровав вдову и получив доступ ко всем ее ресурсам, Рой ловит себя на том, что она ему небезразлична.Производство: Великобритания, США, Германия | Bron Studios, New Line CinemaЖанр: драма, детективРежиссер: Билл КондонАктеры: Хелен Миррен, Иэн МакКеллен, Рассел Тови, Джим Картер, Марк Льюис Джонс, Лори Дэвидсон, Фил Данстер, Лусиан Мсамати, Йоуханнес Хёйкьюр Йоуханнессон, Тунджи КасимПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F673B8177DF6C35F6085245B310F106EB27CBB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437872   (977362) от 17.01.2012
-
-Город потерянных детей / La cite des enfants perdus / The City of Lost Children (1995) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалеко от гавани пропитанного сыростью и окутанного туманом мрачного Города потерянных детей, в замке на берегу моря живет страшный ученый по имени Кранк, преждевременно постаревший из-за полной неспособности спать. По приказу Кранка его подручные-циклопы похищают детей и затаскивают в мрачную лабораторию, где злодей-ученый превращает их сны в свои собственные. (   Читать дальше...   )Производство: Германия, Франция, ИспанияЖанр: Фантастика, Фэнтези, ПриключенияРежиссер: Марк Каро, Жан-Пьер ЖёнеАктеры: Рон Перлман, Жюдит Витте, Доминик Пинон, Даниэль Эмильфорк, Жан-Клод Дрейфюс, Женевьев Бруне, Одиль Мале, Мирей Моссе, Серж Мерлен, Рюфюс, Тикки Ольгадо, Джозеф Люсьен, Мапи Галан, Брик Бартелеми, Пьер-Квентин Фаэш, Алексис ПивоПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:45:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356381   (977339) от 31.01.2020
-
-На краю света / Les confins du monde / To the ends of the earth (2018) WEB-DLRip [H.264] [VO]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977339.jpg" />
-</div>
-
-
-###  Подробнее
-
-1945 год, вьетнамские джунгли. Робер Тассен — молодой солдат, единственный оставшийся в живых после столкновения с партизанами Хо Ши Мина. Очнувшись среди трупов в глубокой яме, он чудом выбирается наружу, а вот его брат остаётся в могиле. Робер желает отомстить повстанцам, но, близко познакомившись с юной вьетнамской проституткой, Робер влюбляется, и месть её соплеменникам (   Читать дальше...   )Производство: Франция / Les Films du Worso, Les Armateurs, Orange StudioЖанр: драма, военныйРежиссер: Гийом НиклуАктеры: Гаспар Ульель, Гийом Гуи, Lang Khê Tran, Жерар Депардье, Джонатан Кузини, Кевин Янссенс, Антони Палиотти, Франсуа Негре, Vi Minh Paul, Vianney DuburqueПеревод: Одноголосый любительский (datynet)Язык озвучки: Русский, ФранцузскийСубтитры: Русские, Французкие, Английские, НемецкиеПродолжительность: 01:38:45Реклама: Без рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B110CDCDAF96FBD7B5AFA49BFCC816F1EC0F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

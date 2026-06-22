@@ -6,7 +6,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025979.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025128.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025122.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024078.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023692.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023690.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MotoGP. Этап 01. Гран-При Катара. Гонка (28.03.2021) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023618.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022826.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022805.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022800.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ MotoGP. Этап 02. Гран-При Дохи. Гонка. (04.04.2021) WEBRip [
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022539.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021625.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021581.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021441.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021221.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MotoGP. Этап 03. Гран-При Португалии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020669.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020536.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MotoGP. Этап 03. Гран-При Португалии. Гонка (18.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020411.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020316.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020315.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020269.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020137.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019994.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019991.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019491.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019304.jpg" />
 </div>
 
 

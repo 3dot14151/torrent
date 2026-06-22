@@ -6,7 +6,7 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186405.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186387.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186263.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186262.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186256.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186250.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186248.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186240.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186234.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Robby Branham | Creating Volumetric Effects with Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186213.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Gnomon Workshop, Timucin Ozger | Controlled Building Demolition FX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186196.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Gnomon Workshop, Simon Littlejohn | Creating an FX Production Shot in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186187.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186171.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Udemy, Maamir Houssam Eddine | 3d visualization , 3ds max, V-ray, Ps: 3D render 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185808.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185748.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185711.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Creative Shrimp | 50 адских ошибок в 3D моделировании 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185704.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game / Вои
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185699.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Motion Design School | Blender Workout (2023) WEB-DL [AD] [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185683.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185226.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ ZartSchool, Татьяна Зубова | Портрет. Онлайн курс 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185162.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Kalachevaschool, Аксинья La Paloma | Дети в цифровой илл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185154.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Udemy, Eric Ebling | Master Houdini FX: Create Stunning Visual Effects rigs (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185139.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Skvot, Саша Богатов | Как разбудить креативнос�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185057.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Udemy, Nikolay Stanchev | Unreal Engine 5 The Complete Beginner's Cinematic Cour
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185026.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Professor Of How, Kishor |  Master 3D With Professor (2022) PCRec [Hindi]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184923.jpg" />
 </div>
 
 

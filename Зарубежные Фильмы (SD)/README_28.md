@@ -1,3 +1,133 @@
+###  Публикация: 1018187   (1030391) от 27.03.2023
+
+Догвилль / Dogville (2003) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030391.jpg" />
+</div>
+
+
+###  Подробнее
+
+1930-е годы. Спасаясь от гангстеров, юная Грэйс оказывается в городке Догвилль где-то в Скалистых горах. Местные жители нехотя соглашаются приютить беглянку, если она будет работать на них, но затем их запросы становятся непомерными, а страх разоблачения превращает обывателей в жестоких подонков. Постепенно Грэйс становится рабыней тихих обитателей Догвилля, убеждаясь, (   Читать дальше...   )Производство: Дания, Швеция, Великобритания, Франция, Германия, Нидерланды, Норвегия, Финляндия, ИталияЖанр: Триллер, драма, детективРежиссер: Ларс фон ТриерАктеры: Николь Кидман, Харриет Андерссон, Лорен Бэколл, Жан-Марк Барр, Пол Беттани, Блэр Браун, Джеймс Каан, Патришия Кларксон, Джереми Дэйвис, Бен Газзара, Филип Бэйкер Холл, Шаван Фэллон ...Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5C730CFE0BAE440F2E4C76B078DEFBD919242A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448841   (1030348) от 19.02.2021
+
+Девушка, подающая надежды / Promising Young Woman (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то Кассандра училась в университете и подавала большие надежды, но теперь живёт с родителями и работает в кофейне. Девушка скрывает от близких, что по вечерам посещает бары и другие увеселительные заведения, где, притворяясь сильно пьяной, ведёт охоту на падких до беззащитных женщин мужчин. Вымещая злость на противоположном поле, таким образом Кассандра мстит (   Читать дальше...   )Производство: Великобритания, США / FilmNation Entertainment, Focus Features, LuckyChap EntertainmentЖанр: Триллер, драма, криминалРежиссер: Эмиральд ФеннелАктеры: Кэри Маллиган, Бо Бёрнэм, Элисон Бри, Клэнси Браун, Дженнифер Кулидж, Лаверн Кокс, Крис Лоуэлл, Конни Бриттон, Адам Броди, Кристофер Минц-Плассе, Макс ГринфилдПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BBD2D0CFDDAF8A7626E13FE6C9CC3451327975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448186   (1030347) от 19.02.2021
+
+Падение / Falling (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стареющий отец не справляется с одинокой жизнью на ферме и переезжает в Лос-Анджелес в семью сына. Смогут ли отец и сын преодолеть боль, которую они всю жизнь причиняли себе и друг другу, и подняться над конфликтом двух точек зрения на мир?Производство: США / Perceval Pictures, Baral Waley Productions, Scythia FilmsЖанр: ДрамаРежиссер: Вигго МортенсенАктеры: Вигго Мортенсен, Лэнс Хенриксен, Сверрир Гуднасон, Лора Линни, Карина Баттрик, Ханна Гросс, Терри Чен, Ава Козель, Гэбби Велис, Брекен БарнсПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A322945F8F21E3D8F4BF8F77213818FEAE34D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448731   (1030338) от 19.02.2021
+
+Псих-расчленитель / Psycho Goreman (2020) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малолетние брат с сестрой из тихого пригорода Люк и Мими обнаруживают загадочный светящийся камень, с помощью которого можно управлять ужасающим монстром — генералом с другой планеты. Непривыкшая к отказам Мими забирает артефакт себе и нарекает инопланетного гостя Психом-расчленителем. Чудовище так хотело разрушить Вселенную, но теперь ему приходится повиноваться (   Читать дальше...   )Производство: Канада / Dystopia Films, Raven Banner EntertainmentЖанр: Ужасы, фантастика, комедияРежиссер: Стивен КостанскиАктеры: Нита-Джози Ханна, Оуэн Майр, Steven Vlahos, Мэтью Нинабер, Kristen MacCulloch, Rick Amsbury, Адам Брукс, Scout Flint, Stacie Gagnon, Alexis Kara HanceyПеревод: Многоголосый профессиональный (Good People)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B239D4A9159E06CFBEEAF36283DF2DDB0CCCF578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448212   (1030300) от 19.02.2021
+
+Энола Холмс / Enola Holmes (2020) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия, 1884 год. В день своего 16-летия Энола Холмс обнаруживает, что её мама бесследно пропала. Обратившись за помощью к давно покинувшим отчий дом братьям Майкрофту и Шерлоку, девушка не получает ожидаемой поддержки. Поскольку отец умер рано, мать - женщина прогрессивных взглядов - воспитывала и обучала дочь сама, и теперь юная Энола не соответствует общепринятому (   Читать дальше...   )Производство: Великобритания / Netflix, Legendary Entertainment, PCMA ProductionsЖанр: Приключения, детектив, криминалРежиссер: Гарри БрэдбирАктеры: Милли Бобби Браун, Генри Кавилл, Сэм Клафлин, Хелена Бонем Картер, Луис Патридж, Берн Горман, Адиль Ахтар, Сьюзан Уокома, Хэтти Морахэн, Дэвид БамберПеревод: Дублированный (Netflix)Язык озвучки: Русский, украинскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (SDH)Продолжительность: 02:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6EE64894A2A6F33783DA082BA30B1C0953498B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622284   (1030282) от 28.03.2023
 
 Сестричка, действуй 2 / Sister Act 2: Back in the Habit (1993) BDRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030282.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030125.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030120.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030092.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030086.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029880.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029864.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029855.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029846.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029840.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029834.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029773.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029766.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029765.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029659.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029657.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029650.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029644.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029643.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029641.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029599.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365F43AEF4D5C6F6E8B1763EF60129044A89D168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442323   (1029480) от 23.02.2021
-
-Мальчишник 2: Из Вегаса в Бангкок / The Hangover Part II (2011) WEB-DLRip [H.264] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029480.jpg" />
-</div>
-
-
-###  Подробнее
-
-В продолжении культовой комедии «Мальчишник в Вегасе» четверо друзей Фил, Стю, Алан и Даг отправляются в экзотический Тайланд на свадьбу Стю. После безумного мальчишника в Лас-Вегасе, они решают не испытывать судьбу во второй раз, а потому в Бангкоке планируют очень спокойное и безопасное празднество. Но как обычно, все идет совсем не по плану... Что происходит в (   Читать дальше...   )Производство: США, Таиланд / Warner Bros., Legendary Entertainment, Green Hat Films, Living FilmsЖанр: КомедияРежиссер: Тодд ФиллипсАктеры: Брэдли Купер, Эд Хелмс, Зак Галифианакис, Кен Жонг, Мэйсон Ли, Джастин Барта, Пол Джаматти, Джейми Чон, Нирут Сиричанья, Джеффри ТэмборПеревод: Дублированный, ДвухголосыйСубтитры: Русские (full), Английские (full)Продолжительность: 01:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27002E6AA0139B6611AD89D21AE996EE5146D02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449901   (1029437) от 23.02.2021
-
-Девушка, подающая надежды / Promising Young Woman (2020) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая, невероятно умная и подающая большие надежды студентка престижного университета – казалось ее будущее предопределено. Но одно трагическое событие меняет все. Теперь она ведет двойную жизнь и уверена, что нет ничего соблазнительнее, чем месть.Производство: Великобритания, США / FilmNation Entertainment, Focus Features, LuckyChap EntertainmentЖанр: Триллер, драма, криминалРежиссер: Эмиральд ФеннелАктеры: Кэри Маллиган, Бо Бёрнэм, Элисон Бри, Клэнси Браун, Дженнифер Кулидж, Лаверн Кокс, Крис Лоуэлл, Конни Бриттон, Адам Броди, Кристофер Минц-Плассе, Макс ГринфилдПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BFAB808060E6C9CB6A9024A4E0F8C5F6068135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623347   (1029402) от 01.04.2023
-
-Маленький городок Висконсин / Городок в Висконсине / Small Town Wisconsin (2020) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэйн изо всех сил старается быть хорошим отцом, но проблемы с алкоголем сильно влияют на его способность быть ответственным родителем. Его бывшая жена хочет дать сыну лучшее будущее, а для этого им нужно переехать в Аризону. Уэйн боится утратить связь с сыном и решает напоследок устроить ему незабываемую поездку.Производство: США / Cream City FilmsЖанр: драма, комедияРежиссер: Нильс МюллерАктеры: Дэвид Салливан, Билл Хек, Кристен Джонстон, Купер Дж. Фридман, Braden Andersen, Andi Matusiak, Leah Nickolai, Марк Борхардт, Kendall Dakof, Таня ФишерПеревод: Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAF2594C9CF4791DB9B316E8D483ADF1C184AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623337   (1029401) от 01.04.2023
-
-Мёртвая тишина / Dead Silence (2007) BDRip [H.264] [MVO] [Расширенная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодожёны Джэми и Лиза получают посылку без обратного адреса, в которой - кукла чревовещателя. В этот же вечер нечто жестоко убивает Лизу, и Джэми, будучи главным подозреваемым, решает сам разобраться в её загадочной смерти. Погружаясь в то, что он ещё недавно считал сказками, парень узнаёт легенду о некой Мэри, дух которой, по словам местных жителей, всё ещё бродит (   Читать дальше...   )Производство: США, Evolution Entertainment, Twisted Pictures, Universal PicturesЖанр: ужасыРежиссер: Джеймс ВанАктеры: Райан Квантен, Эмбер Валлетта, Донни Уолберг, Майкл Фэйрмэн, Джоан Хини, Боб Гантон, Лора Риган, Дмитрий Чеповецкий, Джудит Анна Робертс, Кейр ГилкристПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01199AB0A0C044846A97D8C44CEA131E73CB938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443833   (1029258) от 24.02.2021
-
-Боевой робот номер 4 (Монстры, созданные человеком) / Monsters of Man (2020) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029258.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далёких джунглях Камбоджи ЦРУ проводит несанкционированные испытания боевых роботов с искусственным интеллектом, созданных частной компанией. Расстреливая банду вооружённых наркоторговцев, андроиды уничтожают и жителей лесной деревни, невольными свидетелями чего становится живущий там же бывший морпех и группа американских студентов-медиков, участвующих в волонтёрской (   Читать дальше...   )Производство: Австралия / MRT Films Pty Ltd, Hanuman Films, 11:11 EntertainmentЖанр: фантастика, боевикРежиссер: Марк ТойяАктеры: Нил МакДонаф, Brett Tutor, Хосе Росете, Дэвид Хэверти, Paul Haapaniemi, Райан Хью, Ly Ty, Ma Rynet, Kayli Tran, Джессика БлэкморПеревод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельным файлом)Продолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620D689AED7AC4B428716A2D53818E0B4B27E07A
 ```
 
 https://mybot314.ru/tekegram_catalog/

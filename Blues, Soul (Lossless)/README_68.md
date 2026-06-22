@@ -6,7 +6,7 @@ Seth Walker - I Hope I Know (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480269.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Bonamassa - Live At The Greek Theatre (2016) 2CD [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479301.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Steve Hunter - Short Stories (2008) [FLAC|Lossless|image + .cue] <Instrumental B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479300.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Deák Bill Gyula - Hatvan csapás (2008) [FLAC|Lossless|image + .cue] <Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478097.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Dahman Beck Band - Ride the Night (2005) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477706.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Buddy Whittington - Six String Svengali (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476620.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Brother Jack Mcduff - A Change Is Gonna Come (1999) [FLAC|Lossless]<Jazz, Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476479.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The Wicked Mercy - The Wicked Mercy (2013) [FLAC|Lossless|tracks] <Blues Rock, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475349.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sister Suzie - Ain't No Lady (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474091.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Rick Gibson Band - Junkyard Son (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473288.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Savoy Brown - Ain't Done Yet (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472922.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Mulberry Sky - Who's There? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472466.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Blue Tide - Plague Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472388.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Ticket West - 49 Park St. Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472374.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sven Zetterberg - Rain On (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472372.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ T. Kuusisto & The Sons Of Mojo - Borrowed (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472370.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ The Bateleurs - The Sun in the Tenth House (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472359.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Phantom Blues Band - Blues for Breakfast (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472356.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Johnny Wheels & the Swamp Donkeys - Keep On Pushin (2022) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472350.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ V.A. - Summertime Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472240.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Harry Manx - West Eats Meet (2004) [WavPack|Lossless|image + .cue] <Blues, Folk,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471342.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Robert Cray - I Was Warned (1992) [WavPack|Lossless|image + .cue] <Blues, Electr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469197.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Ronnie Earl And The Broadcasters - Maxwell Street (2016) [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469035.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Bonnie Raitt - The Best Of Bonnie Raitt (2003) [FLAC|tracks+.cue]<Contemporary B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467023.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Paul Wood - Blues Is My Business (2001) [FLAC|Lossless|image + .cue] <Blues, Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466443.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Clifton Chenier - In New Orleans (1988) Crescendo Records[FLAC|Lossless|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466442.jpg" />
 </div>
 
 

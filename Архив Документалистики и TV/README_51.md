@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879531.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879527.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879526.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879525.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879524.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879523.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879520.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879411.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879386.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878391.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878390.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878389.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878388.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878387.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878386.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878305.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878303.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878302.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878301.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878112.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_878102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_878102.jpg" />
 </div>
 
 
@@ -595,6 +595,40 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299991   (878099) от 23.02.2011
+
+Мужская компания. 24 выпуска. (2006-2008) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_878099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыбалка - это не ловля рыбы для насущных потребностей, это в первую очередь восстановление нервной системы и просто великолепный отдых на природе. Рыбалка - это возможность остаться одному со своими мыслями. Самое главное - отправляясь на рыбалку, правильно подготовиться и настроиться на удачу. В этих передачах от рыбаков-профессионалов и просто любителей Вы узнаете о спиннинговых снастях, приманках, методах проводки и оснастки, методах ловли и многое другое...
+Представлена зимняя и летне-весенняя рыбалка.
+Интересный сборник передач о рыбалке, в котором каждый рыболов найдёт для себя что-то новое и познавательное:
+- для любителей зимней рыбалки – передачи с 4 по 13
+- для любителей ловли хищника на спиннинг – передачи 1, 2, 3, 14, 15, 16, 21, 22
+- для любителей ловли окуня – передачи 18 и 24
+- для любителей ловли судака – передача 20
+- для карасятников – передачи 17 и 19
+- для карпятников – передача 24Жанр: Документальный, Телепередача, СпортПродолжительность: 0 ч 24 мин 15 с
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5DD6F76897726C30C822DC99FCF884D955BC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 642819   (877928) от 12.04.2013
 
 Паранормальное. Встреча с пришельцами / Paranormal. Alien Encounters (2012) IPTVRip
@@ -603,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877928.jpg" />
 </div>
 
 
@@ -629,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877773.jpg" />
 </div>
 
 
@@ -655,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877771.jpg" />
 </div>
 
 
@@ -681,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877768.jpg" />
 </div>
 
 
@@ -695,32 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F342A8700CCACB0BADDA42AB5209F8C098E93723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996957   (877765) от 15.03.2016
-
-Футбол. Кубок Англии 2015-2016. 1/4 финала. Обзор матчей. (14.03.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей очередного раунда.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7B4C9228D7C123B526924EC64FEAED1E2E1BF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

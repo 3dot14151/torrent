@@ -1,3 +1,29 @@
+###  Публикация: 1606946   (1044222) от 24.01.2023
+
+Gekijouban Karakai Jouzu no Takagi-san | Озорная Такаги (фильм) [2022, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последнее лето Такаги и Нишикаты в младших классах вот-вот начнется, и это уже трогательное начало! Когда пара находит брошенного котенка, они решают работать вместе и заботиться о своем очаровательном новом компаньоне, пока не найдут его пропавшую мать.Производство: Студия Shin-Ei Animation / シンエイ動画Жанр: комедия, романтика, повседневностьРежиссер: Акаги ХироакиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 75 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B88DF4E06A025AEDBF8FF6F360EC24F6FF25662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 688490   (1044103) от 25.01.2023
 
 Ginga Tetsudou 999 / Ginga Tetsudo 999 / Galaxy Express 999 / Галактический экспресс 999 [1978, TV, 113] DVDRip 720p Hi10P raw
@@ -6,7 +32,7 @@ Ginga Tetsudou 999 / Ginga Tetsudo 999 / Galaxy Express 999 / Галактиче
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044103.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Uchuu Kaizoku Captain Harlock / Space Pirate Captain Harlock / Космичес�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044091.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | League of Nations Air Fo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043915.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043887.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Lupin Zero | Люпин Зеро [2022, Web, 6 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043803.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Lapis Re:LiGHTs | Лазурные огни [2020, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042780.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Houkago Teibou Nisshi | Diary of Our Days at the Breakwater | Рыбалка д�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042770.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Hachi-nantte, Sore wa Nai Deshou! | The 8th Son? Are You Kidding Me? | Вось�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042769.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai / Love Live! Nijigasaki High 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042701.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Enen no Shouboutai: Ni no Shou | Fire Force (TV-2) | Пламенная бриг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042137.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Eikoku Koi Monogatari Emma | Emma: A Victorian Romance | Эмма: Виктор�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042110.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Jeremy no Ki | Jeremy's Trees | Дерево Джереми [1983, Movie] VHSRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042000.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Gokujou Seitokai | Best Student Council | Лучший студсовет [2005,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041989.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Santa Claus Tsukamaeta! | Я поймал Санта Клауса! [1989, OVA, 1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041983.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Yakusoku no Neverland | The Promised Neverland | Обещанный Неверл
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041659.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Tendouke no Oyobidenai Yatsura! | Tendo Family`s Annoying Acquaintances | Док
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041454.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Karakai Jouzu no Takagi-san: Water Slider | Озорная Такаги OVA [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041403.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Dr. Stone | Доктор Стоун [ТВ-1][2019, TV, 24 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040732.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Takamiya Nasuno Desu! Teekyuu Spin-off | Я - Насуно Такамия! [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040628.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040619.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, Speci
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040582.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Toaru Kagaku no Railgun T | A Certain Scientific Railgun T | Некий науч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040488.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный к
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040474.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Sore dake ga Neck | That is the Bottleneck | Только до шеи [2020, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040261.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Uzaki-chan wa Asobitai! | Uzaki-chan Wants to Hang Out! | Узаки хочет 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039814.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Uzaki-chan wa Asobitai! | Uzaki-chan Wants to Hang Out! | Узаки хочет 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E312BE13F0A58B9B78929052C4A266B83EC8D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612841   (1039797) от 17.02.2023
-
-Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Эвергарден (фильм) [2020, Movie] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, мелодрамаРежиссер: Исидатэ ТайтиПеревод: 1) nnm-club^anime; 2) NetflixЯзык озвучки: ЯпонскийСубтитры: 1) Русские; 2) Английские; 3) Японские; #) Multi-SubПродолжительность: 140 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB281F012EA53B9DC1B69381FD96183B18D1B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,138 @@
+###  Публикация: 1812869   (7302) от 17.08.2025
+
+JetBrains GoLand 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7302.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
+
+IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EB665C2C11F29D784194297FD417C992888A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812865   (7290) от 17.08.2025
+
+JetBrains RustRover 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7290.jpg" />
+</div>
+
+
+###  Подробнее
+
+RustRover - это мощная и удобная среда разработки, которая значительно упрощает процесс создания программ на Rust. Благодаря широкому набору функций и интуитивно понятному интерфейсу, RustRover помогает разработчикам всех уровней повысить продуктивность и качество кода.
+Если вы планируете изучать Rust или уже работаете с этим языком, RustRover может стать отличным (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B23BB60CF1B46877857E6FD44621FEF4DE5298D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812900   (7277) от 17.08.2025
+
+JetBrains DataSpell 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7277.jpg" />
+</div>
+
+
+###  Подробнее
+
+DataSpell — IDE для Data Science. DataSpell создан специально для тех, кто занимается разведочным анализом данных, и прототипированием моделей машинного обучения. Это эргономичная среда разработки, объединяющая в себе интерактивные возможности Jupyter-ноутбуков и умный редактор PyCharm для работы с Python и R.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23238CCD3EF3640ECA0906DACA29D14581241C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812899   (7268) от 17.08.2025
+
+JetBrains RubyMine 2025.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7268.jpg" />
+</div>
+
+
+###  Подробнее
+
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
+Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D168CD5E55DF9E0A029E29F433398E3CA63FF20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815313   (5372) от 29.08.2025
+
+PilotEdit Lite & Pro 20.2.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
+PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A95A03FDADF34C29066E4AFD98A263D2B378AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814237   (5266) от 30.08.2025
 
 ProfiCAD 13.1.7 [Multi]
@@ -6,7 +141,7 @@ ProfiCAD 13.1.7 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5266.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ Snappy Driver Installer Origin R817 | Драйверпаки 25.08.3 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5091.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ Adobe Dreamweaver 2021 21.6.0.15711 RePack by KpoJIuK [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4994.jpg" />
 </div>
 
 
@@ -84,7 +219,7 @@ FontViewOK 8.99 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4957.jpg" />
 </div>
 
 
@@ -110,7 +245,7 @@ WinToUSB Technician 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4464.jpg" />
 </div>
 
 
@@ -136,7 +271,7 @@ Lively Wallpaper 2.2.0.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4354.jpg" />
 </div>
 
 
@@ -163,7 +298,7 @@ Silent Installer Builder 6.4.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3770.jpg" />
 </div>
 
 
@@ -181,32 +316,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817443   (3526) от 10.09.2025
-
-Archicad 28.3.0 Build 6003 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_3526.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArchiCAD - это мощное приложение моделирования, которое позволяет архитекторам более эффективно проектировать здания с использованием технологии Virtual Building. ArchiCAD позволяет архитекторам сконцентрироваться именно на проектировании, выполняя эту работу самостоятельно или в коллективе, обмениваясь при этом данными с консультантами и специалистами в других областях.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2A03A40F17FBA0847B64906D7CA4439E880573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817582   (3386) от 11.09.2025
 
 VirtualBox 7.2.2 Build 170484 + Extension Pack [Multi/Ru]
@@ -215,7 +324,7 @@ VirtualBox 7.2.2 Build 170484 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3386.jpg" />
 </div>
 
 
@@ -241,7 +350,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3378.jpg" />
 </div>
 
 
@@ -267,7 +376,7 @@ MSActBackUp 1.2.9 Portable by Ratiborus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3052.jpg" />
 </div>
 
 
@@ -293,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2877.jpg" />
 </div>
 
 
@@ -319,7 +428,7 @@ NVIDIA GeForce Desktop Studio 581.29 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2826.jpg" />
 </div>
 
 
@@ -345,7 +454,7 @@ SolarWinds Platform 2025.2.1 [Multi]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2650.jpg" />
 </div>
 
 
@@ -371,7 +480,7 @@ WinToUSB Free / Pro / Enterprise / Technician 10.0 RePack (& Portable) by Dodaka
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2399.jpg" />
 </div>
 
 
@@ -397,7 +506,7 @@ Microsoft Visual Studio 2022 Professional 17.14.15 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2330.jpg" />
 </div>
 
 
@@ -423,7 +532,7 @@ Open Server Panel 6.4.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1511.jpg" />
 </div>
 
 
@@ -451,7 +560,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.16 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1183.jpg" />
 </div>
 
 
@@ -477,7 +586,7 @@ GraphPad Prism 10.2.3.403 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_568.jpg" />
 </div>
 
 
@@ -505,7 +614,7 @@ MInstAll v.21.09.2025 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_456.jpg" />
 </div>
 
 
@@ -531,7 +640,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.09.29 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154.jpg" />
 </div>
 
 
@@ -549,60 +658,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820779   (115) от 29.09.2025
-
-Microsoft  Visual C++ Runtimes AIO v0.101.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E463479ABA0AA8CECF537201EA70F613983F199C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820818   (93) от 29.09.2025
-
-Red Cad App 3.24.3.0 [Multi]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_93.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предварительные знания не требуются; всего 5 шагов отделяют вас от профессионального CAD-проектирования. - Это RED CAD APP.
-RED CAD сочетает интуитивное управление с практичным использованием, обеспечивая профессиональные результаты.
-Благодаря интерфейсу PDF, DWG и DXF проблемы с совместимостью остались в прошлом! Выберите мастер импорта, вставьте план фона, измерьте (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A3FD86D17C17FC2F6EEB92765201A1D5263506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820904   (68) от 29.09.2025
 
 Microsoft Visual C++ 2015-2022(2026) Redistributable 14.50.35615.0 [Ru]
@@ -611,7 +666,7 @@ Microsoft Visual C++ 2015-2022(2026) Redistributable 14.50.35615.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68.jpg" />
 </div>
 
 

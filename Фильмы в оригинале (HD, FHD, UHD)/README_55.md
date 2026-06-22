@@ -1,3 +1,133 @@
+###  Публикация: 1609666   (203117) от 04.02.2023
+
+Вавилон / Babylon (2022) WEB-DL [H.264/1080p] [EN / Ru, En, Fr Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голливуд, конец 1920-х. Звезды немого кино пытаются найти место в новом мире, где набирают популярность звуковые фильмы. Успешная карьера старых кумиров неумолимо близится к закату.Производство: США / Paramount Pictures, C2 Motion Picture Group, Marc Platt ProductionsЖанр: драма, комедия, историяРежиссер: Дэмьен ШазеллАктеры: Брэд Питт, Марго Робби, Диего Калва Эрнандес, Джин Смарт, Джован Адепо, Ли Цзюнь Ли, Оливия Хэмилтон, П.Дж. Бирн, Лукас Хаас, Макс Мингелла, Тоби МагуайрПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Forced, Full, SDH), французскиеПродолжительность: 03:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC1C9D1EC0038E111778150678CE9BCD2DFED2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615778   (202089) от 28.02.2023
+
+Любовь как искупление / Redeeming Love (2022) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потеряв мать, Эйнджел ещё в детстве оказалась в борделе. Теперь она самая востребованная проститутка в городе. Однажды на улице её видит фермер Майкл и влюбляется в девушку.Производство: США / Nthibah Pictures, Pinnacle Peak Pictures, Mission Pictures InternationalЖанр: драма, мелодрамаРежиссер: Ди Джей КарузоАктеры: Эбигейл Ф. Коуэн, Том Льюис, Эрик Дэйн, Фамке Янссен, Логан Маршалл-Грин, Нина Добрев, Ливи Бирч, Джеми-Ли О’Доннелл, Уилли Уотсон, Джош ТейлорПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B067A0287BCD6E3A4C7F44C5B566D5E23EFD183A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616028   (201735) от 04.03.2023
+
+Царство небесное / Kingdom of Heaven (2005) Blu-ray [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, XII век. Молодой кузнец Бэлиан вынужден бежать со своей родины. Он присоединяется к отряду крестоносцев, во главе которого стоит его отец. В одной из битв тот получает тяжёлое ранение и перед смертью посвящает сына в рыцари.Производство: США, Испания / Twentieth Century FoxЖанр: боевик, драма, приключения, военный, историяРежиссер: Ридли СкоттАктеры: Орландо Блум, Ева Грин, Мартон Чокаш, Дэвид Тьюлис, Гассан Массуд, Лиам Нисон, Джереми Айронс, Эдвард Нортон, Брендан Глисон, Александр СиддигПеревод: Многоголосый профессиональныйЯзык озвучки: итальянский, английский, русский (отдельным файлом)Субтитры: итальянские (PGS), английские (PGS)Продолжительность: 03:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999818DD9D7FCBF2DE27177B237D32D02F0EAD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617752   (201599) от 09.03.2023
+
+Триплексоголик / xxxHOLiC (2022) BDRip [H.264/1080p] [JP / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кимихиро Ватануки обладает особой способностью видеть аякаси (призраков). Однажды бабочка приводит его в таинственный магазин, торгующий исполнением желаний. Там он встречает хозяйку магазина Итихару Юко (Фамилия и Имя не настоящие). Она говорит ему, что исполнит его желание за соразмерную плату в отношении самого драгоценного для него...Производство: Япония / Asmik Ace, Hachinoji, ShochikuЖанр: фэнтези, мистика, триллерРежиссер: Мика НинагаваАктеры: Рюносукэ Камики, Ко Сибасаки, Хокуто Мацумура, Тина Тамасиро, Сюри, Даоко, Серена Мотола, Нанасэ Нисино, Сакурако Охара, Тэнка ХасимотоПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно)Продолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B592019BAD2F92C7A37693D2306B7C5FAF3D53BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602711   (201579) от 09.03.2023
+
+Падающая звезда / Nagareboshi / Shooting Star (2021) HDTVRip [MPEG-2/1080i] [JP / RU, JP Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хосино Нацко закрывает пансионат «Хосюкан» в связи с непопулярностью данного формата гостиниц. Её муж уходит на собрание ассоциации жителей. Тогда она видела его в последний раз... На сорок девятый день перед ней возникает из ниоткуда девушка назвавшаяся «Юмэно Мари». Юная особа предложила вдове исполнить четыре её желания. Первым невысказанным желанием Нацко было (   Читать дальше...   )Производство: Япония, NHKЖанр: фантастика, мелодрамаРежиссер: Коно КэйтаАктеры: Мацудзака Кэйко, Куросима Юина, Тайра Юна, Кирияма Акито, Хории Арата, Окавара Мэгуми, Ёкояма Рё, Вакабаяси Гэнта, Оми Тосинори, Фунакоси ЭйитироПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно), Японские (ASS, отдельно)Продолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48FBB846E812A1DE28605320EA3361BD99A2754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621016   (200893) от 24.03.2023
 
 Патхан / Pathaan (2023) WEBRip [H.265/1080p] [10-bit] [Hindi / RU, EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200893.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200468.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200457.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200118.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200105.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200028.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199759.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199686.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199255.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198963.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198952.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198936.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198735.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198637.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198473.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.264/1080p] [EN / RU, EN 
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198443.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198040.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197225.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196943.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195818.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195761.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6046C1C7A712B05C0FC12F18F541A0EBB69F2A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646097   (195720) от 13.07.2023
-
-Трансформеры: Восхождение Звероботов / Transformers: Rise of the Beasts (2023) WEB-DLRip [H.264/720p] [EN / RU, EN, FRA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195720.jpg" />
-</div>
-
-
-###  Подробнее
-
-История происходит в далеком 1994 году. Два археолога, Ной и Елена, уже несколько лет ведут очень интересные и необычные археологические раскопки. Однако раньше они никогда не сталкивались ни с чем подобным. Однажды они оказываются в центре конфликта между макисмарами, плеконианцами и телоконианцами.Производство: США / Paramount Pictures, Skydance Media, New Republic PicturesЖанр: фантастика, боевик, приключенияРежиссер: Стивен Кейпл мл.Актеры: Доминик Фишбэк, Энтони Рамос, Луна Лорен Велес, Дин Скотт Васкес, Тобе Нвигве, Сара Стайлс, Лени Паркер, Френсис Ламарр, Эйдан Дивайн, Кервин ДжексонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские (full, SDH), французскиеПродолжительность: 02:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B032232972C16BED1890677D1CAB0A20566D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649589   (195061) от 28.07.2023
-
-Круче некуда / Hidden Strike (2023) WEB-DL [H.264/1080p] [EN / EN, GER, FRA and other Subs]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195061.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем битвы за нефть захватили весь мир. Когда команда международных преступников захватывает заложников, чтобы провернуть крупнейшее ограбление, только два человека оказываются в силах остановить их. Это два наемника по разные стороны конфликта, их план совершенно безумен, но они должны прорваться через град пуль и песчаные бури. Даже если терпеть друг друга (   Читать дальше...   )Производство: Китай, США / Changchun Film Studio, Epitome, Flame Pictures CompanyЖанр: боевик, комедияРежиссер: Скотт ВоАктеры: Джеки Чан, Джон Сина, Пилу Асбек, Ван Чжэньвэй, Рэйчел Холовэй, Макс Хуан, Амадеус Серафини, Хоу Минхао, Рима Цзэйдань, Ма ЧуньжуйПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, немецкие, французские и др. (см. MediaInfo)Продолжительность: 01:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C55FFB53D244E533A2198412D47D6762B0A5412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652505   (194486) от 11.08.2023
-
-Сердце Стоун / Heart of Stone (2023) WEB-DL [H.264/1080p] [EN / RU, EN, UKR and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативник разведки теневого глобального миротворческого агентства должен помешать хакеру украсть его самое ценное и опасное оружие.Производство: США / Dune Films, Mockingbird Pictures, NetflixЖанр: боевик, триллер, криминалРежиссер: Том ХарперАктеры: Галь Гадот, Лу Сыцзин, Джейми Дорнан, Пол Рэди, Энцо Чиленти, Joe Reisig, Лука Фьяменги, Алиа Бхатт, Маттиас Швайгхёфер, Томас АрнольдПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др. (см. MI)Продолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79038A50998B1209C82EF805573790D5D728B764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655305   (193797) от 25.08.2023
-
-Мег 2: Бездна / Meg 2: The Trench (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Водолаз-спасатель Джонас отправляется во впадину, где обитает очередная акула-мегалодон. Одолеть суперхищницу и её подводных приспешников будет совсем непросто.Производство: США, Китай / Apelles Entertainment, China Media Capital, Flagship Entertainment Group, Gravity Pictures, Maeday Productions, Warner Bros. Studios LeavesdenЖанр: ужасы, фантастика, боевикРежиссер: Бен УитлиАктеры: Джейсон Стэйтем, Клифф Кёртис, Сиенна Гиллори, Шуя Софиа Цай, Скайлер Сэмюэлс, Мелиссанти Махут, Пейдж Кеннеди, Джеки У, Whoopie Van Raam, Киран Соня СаварПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full, SDH), французские (full)Продолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF22284AF3FB8613E34376F7B0F7B06A7414AF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656077   (193642) от 29.08.2023
-
-Индиана Джонс и колесо судьбы / Indiana Jones and the Dial of Destiny (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неувядающий авантюрист и пытливый археолог-исследователь по-прежнему в седле. На этот раз ему придётся столкнуться с непростой задачей, которую решить на раз-два вряд ли получится. Но Индиана Джонс не даст слабину и не отступит при виде даже самой безнадёжной ситуации.Производство: США, Walt Disney Pictures, Lucasfilm, Paramount PicturesЖанр: боевик, приключенияРежиссер: Джеймс МэнголдАктеры: Харрисон Форд, Фиби Уоллер-Бридж, Мадс Миккельсен, Антонио Бандерас, Джон Рис-Дэвис, Тоби Джонс, Бойд Холбрук, Карен Аллен, Шонетт Рене Уилсон, Томас КречманПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full), французские, испанскиеПродолжительность: 02:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A98A21D7F88FDCECD5649978DC299F992FEB3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

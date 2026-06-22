@@ -1,3 +1,55 @@
+###  Публикация: 1843176   (1049113) от 19.12.2025
+
+Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049113.jpg" />
+</div>
+
+
+###  Подробнее
+
+CML 2.9 — это мощный инструмент для сетевой симуляции, пришедший на смену VIRL. В отличие от GNS3 или EVE-NG, CML поставляется с официальными, оптимизированными образами Cisco. Версия 2.9 включает обновленный пользовательский интерфейс, улучшенную производительность и расширенную поддержку API для автоматизации (PyATS, Ansible).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC62D7AFAC49206466B9FD6FFB6B5EB5B15F9B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843214   (1049082) от 19.12.2025
+
+Mikrotik Router OS 7.20.6 [x86] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049082.jpg" />
+</div>
+
+
+###  Подробнее
+
+RouterOS v7 — это операционная система на базе ядра Linux (5.6.3+), предназначенная для создания маршрутизаторов на базе обычного ПК или сервера. В отличие от 6-й версии, v7 поддерживает современные многоядерные процессоры, новые драйверы сетевых карт и лишена ограничения в 16 ГБ оперативной памяти.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1EC8A73E3CAA65A2C1E6FA7853B3275C052B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438453   (1040987) от 08.01.2021
 
 Debian GNU/Linux 10 (Buster) LXQt by Lazarus [x86, x86_64] (2xDVD) [Авторская раздача]
@@ -6,7 +58,7 @@ Debian GNU/Linux 10 (Buster) LXQt by Lazarus [x86, x86_64] (2xDVD) [Авторс
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040987.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036928.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Ubuntu*Pack GNOME 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036272.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Ubuntu*Pack GNOME Classic 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036268.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036264.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Ubuntu*Pack 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036257.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Ubuntu*Pack Cinnamon 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036253.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036251.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Ubuntu*Pack Unity 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036242.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Ubuntu*Pack MATE 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036233.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036212.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036209.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036201.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ Ubuntu*Pack GNOME Like Win 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036191.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ Ubuntu 22.04.2 LTS, KDE Plasma, [amd64] 1xDVD (март 2023) [Авторска�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033587.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032951.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032942.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ Debian Edu - Skolelinux 10.8.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032919.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ Ubuntu 20.04.2.0 Focal Fossa LTS [amd64] 2xDVD
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031711.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ WifiSlax 3.3 [Аудит безопасности, хакинг] [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031529.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ Mageia 8 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028870.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ Mageia 8 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028816.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ Mathlinux 2011 alpha (Дистрибутив для математиков, фи
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024795.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024003.jpg" />
 </div>
 
 
@@ -637,61 +689,6 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D339A5848473775F7CDA893745004E755DF6A32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458340   (1023757) от 29.03.2021
-
-Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано девятое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 45 обновлений с устранением проблем со стабильностью и 30 обновлений с устранением уязвимостей. Из изменений в Debian 10.9 выделяется обновление до свежей стабильной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697F3D5EF33B82AE3B85BEDC09FC2BF45257AB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461687   (1020750) от 16.04.2021
-
-Parrot OS Security 4.11 [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parrot OS 4.11 новая версия включает в себя множество важных обновлений, которые делают распространение более надежным и безопасным.
-
-Parrot - это всемирное сообщество разработчиков и специалистов по безопасности, которые работают вместе, чтобы создать общую платформу инструментов, которые сделают их работу проще, стандартизованнее, надежнее и безопаснее.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2FE746D0859FDD07033E2D19D236996BA9D07C
 ```
 
 https://mybot314.ru/tekegram_catalog/

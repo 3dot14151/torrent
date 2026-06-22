@@ -1,3 +1,82 @@
+###  Публикация: 1776783   (71195) от 02.02.2025
+
+Памела Друкерман | Французские дети не плюются едой. Секреты воспитания из Парижа (2023) [MP3, Ольга Иванова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французским родителям удаётся вырастить счастливых, вежливых и послушных детей, не жертвуя при этом своей взрослой жизнью. Почему французы, в отличие от нас, не проводят часть ночи в попытках убаюкать своих малышей? Почему их дети не требуют непрерывного внимания? Почему они не вмешиваются, когда взрослые общаются, и не устраивают истерик в магазинах игрушек? Почему (   Читать дальше...   )Жанр: детская психология, зарубежная прикладная литература, зарубежная психологияПеревод: Юлия ЗмееваИздательство: СиндбадПродолжительность: 09:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A962E4691E697913802C32369C36D5A95F2149F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774196   (70928) от 08.02.2025
+
+Лев Кассиль | Великое противостояние (2020) [MP3, Маргарита Иванова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды тринадцатилетняя московская школьница Сима Крупицына написала в своем дневнике, что ничего интересного у нее в жизни уже не будет: ни приключений, ни увлечений, никаких забавных случаев. Но как же она ошиблась!
+Судьба преподнесла девочке много сюрпризов - сначала ее пригласили сниматься в фильме об Отечественной войне 1812 года, а затем... чего только не (   Читать дальше...   )Жанр: Детская литература, повестьИздательство: Нигде не купишьПродолжительность: 14:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3870D586F061D7E86D49CEC533F3AC365ED20C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778207   (70909) от 08.02.2025
+
+Энн Файн | Дневник кота-убийцы. Все истории (2024) [MP3, Алексей Золотовицкий]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите котиков? Этих милых, ласковых, невинных пушистиков? Сейчас проверим вашу любовь на прочность! Дневник кота Таффи — честный и откровенный, полный сарказма монолог о том, как коты на самом деле относятся к жизни и к своим хозяевам. Нежным натурам обещаем много откровений об их питомцах! Всем остальным — очень много смеха, ведь злоключений и чувства юмора коту-убийце (   Читать дальше...   )Жанр: детские приключения, зарубежные детские книги, сказки о животныхПеревод: Дина КрупскаяИздательство: СамокатПродолжительность: 05:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656178CAC05365127C804AC6EB60ED78D67DB78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778236   (70900) от 08.02.2025
 
 Сара Пеннипакер | Пакс (2021) [MP3, Иван Писоцкий]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70900.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70897.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70894.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70875.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70874.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70674.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70668.jpg" />
 </div>
 
 
@@ -195,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70623.jpg" />
 </div>
 
 
@@ -224,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70620.jpg" />
 </div>
 
 
@@ -252,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70563.jpg" />
 </div>
 
 
@@ -278,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70545.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70525.jpg" />
 </div>
 
 
@@ -330,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70524.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70520.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70403.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70394.jpg" />
 </div>
 
 
@@ -435,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70391.jpg" />
 </div>
 
 
@@ -461,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70372.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70188.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70147.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70050.jpg" />
 </div>
 
 
@@ -570,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69913.jpg" />
 </div>
 
 
@@ -598,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69912.jpg" />
 </div>
 
 
@@ -610,91 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1187DD9CB299791A05AE9608D3270F46B949EFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782855   (69911) от 02.03.2025
-
-Павел Бажов | Сказы Павла Бажова. Выпуск 2 (2020) [MP3, Валентина Сперантова, Клара Румянова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мелодия – детям.
-Павел Петрович Бажов (1879–1950) – русский писатель, фольклорист, впервые выполнил литературную обработку уральских сказов.
-Сказы Бажова впитали сюжетные мотивы народных уральских преданий и легенд и рассказы горных мастеров и старателей. Реально-бытовые элементы соседствуют в них с фантастическими фольклорными образами Хозяйки Медной (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C7824F50DD1B63C198FF2C2D478E144847E376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784196   (69646) от 09.03.2025
-
-Михаил Пляцковский | История вторая. Новые приключения кузнечика Кузи (2022) [MP3, Георгий Вицин, Евгений Весник, Юрий Антонов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Мелодия – детям».
-Главный персонаж – любопытный кузнечик, уже знакомый детям и взрослым, в том числе и по знаменитой песне. У Вас есть уникальная возможность еще раз вспомнить любимые моменты замечательной музыкальной сказки.
-Кузнечик Кузя возвращается из Жарафрики на корабле, после своих приключений из мультфильма «Приключения кузнечика Кузи (история (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D8DEB3490A0AC8F2493BC4AAA1DD25AAD75D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784201   (69645) от 09.03.2025
-
-Михаил Пляцковский | История четвёртая. Кузя на планете Туами (2022) [MP3, Георгий Вицин, Олег Анофриев, Юрий Антонов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Мелодия – детям».
-Главный персонаж – любопытный кузнечик, уже знакомый детям и взрослым, в том числе и по знаменитой песне. У Вас есть уникальная возможность еще раз вспомнить любимые моменты замечательной музыкальной сказки.
-Продолжение приключений кузнечика Кузи.
-Сказку придумал и написал стихи для песен Михаил Пляцковский. Музыку сочинил, играл на (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1093A988342AAF4A39075DD41A22BA544CC1D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

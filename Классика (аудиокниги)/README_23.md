@@ -1,3 +1,55 @@
+###  Публикация: 1147101   (609394) от 02.07.2017
+
+Кристофер Марло | Трагическая история доктора Фауста (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда о чернокнижнике докторе Фаусте, продавшем душу дьяволу, уже без малого пять столетий служит источником вдохновения для создания шедевров мирового искусства. Первое произведение в этом ряду, оказавшее существенное влияние на всю последующую литературу о Фаусте, появилось в 1594 году, через год после загадочной смерти его автора – английского драматурга Кристофера (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 03:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F179809B4CA12243424A0835D507013373306E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546399   (607824) от 23.04.2022
+
+Иван Сергеевич Шмелёв | Солнце мёртвых (2020) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607824.jpg" />
+</div>
+
+
+###  Подробнее
+
+С июня 1918 по март 1922 года русский писатель Иван Сергеевич Шмелёв (1873-1950) жил и творил в Алуште. Ему довелось стать свидетелем таких жутких последствий Гражданской войны, как красный террор (жертвой которого стал и сын писателя, 24-летний Сергей Шмелёв, белый офицер-инвалид, расстрелянный в Феодосии в январе 1921 г.), разруха, голод. «Солнце мёртвых» – документальная (   Читать дальше...   )Жанр: Литература 20 века, Русская классикаПродолжительность: 09:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30B8C1599F9862F87ED434E913DA9D7899410E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147580   (607523) от 03.07.2017
 
 Проспер Мериме | Коломба (2014) [MP3, Андрей Филиппак]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607523.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606606.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605549.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603917.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603909.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600228.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598653.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598361.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598216.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598210.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598208.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598023.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597891.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596545.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596540.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593572.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593568.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593540.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593534.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593392.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593389.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592851.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592664.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592662.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12EF1743E65F4DD8062A3B1285332BFC99B3A164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550341   (592488) от 10.05.2022
-
-Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 408-458 (2022) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разбивка текста сказок на ночи происходила на последнем этапе их обработки, когда они попадали в руки компилятора, составлявшего очередной сборник «Тысячи и одной ночи». При отсутствии материала на нужное количество «ночей» составитель пополнял его из письменных источников, заимствуя оттуда не только мелкие рассказы и анекдоты, но и длинные рыцарские романы.Жанр: Зарубежная классика, Сказки, НовеллыПродолжительность: 03:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D77D636B41EDE92A4572CA1EEEBD18D3B5145C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550637   (592103) от 11.05.2022
-
-Эрих Мария Ремарк | Тени в раю (2019) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592103.jpg" />
-</div>
-
-
-###  Подробнее
-
-1944 год. После долгих скитаний по нацистской Германии и Европе, немецкий журналист Роберт Росс, казалось бы, наконец вытянул свой счастливый билет и оказался в тихой и безмятежной Америке. Но, как оказалось, без денег и с сомнительными документами, не так-то просто обустроиться в новой жизни. В этом безупречном и прекрасном мире он по-прежнему остается никому не (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 14:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946A8698D456B1AA8019F2B4A088614DDB6CFF9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

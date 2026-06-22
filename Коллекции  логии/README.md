@@ -1,4 +1,59 @@
 https://t.me/izofen
+###  Публикация: 1877128   (1073836) от 
+
+YouTube канал "Silent Hall of Fame" - Старые Зарубежные Фильмы (1903-1929) WEBRip [H.264]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "Silent Hall of Fame" / UCR5II4AyzqRyx_8veCdJBXg по состоянию на июнь 2026 года.
+
+Канал "Silent Hall of Fame" был открыт в 2013 году, перестал обновляться с июля 2024 года.
+За 11 лет было опубликовано около 450 коротких и полных фильмов, большую часть из которых удалось сохранить для данной раздачи.Производство: СШАЖанр: история, драма, комедия, немое киноЯзык озвучки: Немое киноСубтитры: Английские интертитрыПродолжительность: 163:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B04880D08F573DD41BFE87F5EABD83C93711CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876261   (1073129) от 
+
+Я иду искать / Ready or Not (2019 - 2026) BDRip [H.264/720p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая невеста — теперь часть семьи своего новоиспеченного мужа, богатого, но эксцентричного рода, чтящего вековые традиции. Кто бы мог подумать, что первая брачная ночь превратится в смертельную игру с новообретёнными родственниками, в которой девушке нужно будет очень постараться, чтобы дожить до рассвета.Производство: США, Канада / Fox Searchlight Pictures, Mythology Entertainment, Vinson FilmsЖанр: триллер, комедия, ужасыРежиссер: Мэттью Беттинелли, Тайлер ДжиллеттАктеры: Самара Уивинг, Адам Броди, Марк О`Брайэн, Генри Черни, Энди МакДауэлл, Мелани Скрофано, Кристиан Бруун, Никки Гуаданьи, Элиз Левек, Джон Ралстон, Кэтрин Ньютон, Элайджа Вуд, Сара Мишель Геллар, Шон ХэтосиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:35:22 / 01:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6337AC8FC0DA9F1392EB1607A357A1A26C291006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874803   (1072119) от 
 
 Онг Бак: Трилогия / Ong Bak: Trilogy (2003-2010) BDRip [H.264/1080p]
@@ -7,7 +62,7 @@ https://t.me/izofen
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072119.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ YouTube канал "green lamp public domain" - Старые Зарубежны�
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069099.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068793.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ YouTube канал "Азербайджанские Фильмы" (1925-2013) WEB
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068498.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059388.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058273.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058266.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057964.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057958.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057018.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055590.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050569.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050012.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049972.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049959.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049957.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048649.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046298.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045899.jpg" />
 </div>
 
 
@@ -510,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043695.jpg" />
 </div>
 
 
@@ -536,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043389.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043286.jpg" />
 </div>
 
 
@@ -589,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042962.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042584.jpg" />
 </div>
 
 
@@ -626,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C184C5C4CBAFFB411D5E78E20B5021BCEECDD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601780   (1041773) от 09.02.2023
-
-Крестный отец / The Godfather Trilogy (1972 - 1990) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киносага повествует о жизни трёх поколений семьи эмигранта из Италии в США Вито Корлеоне. После убийства отца, старшего брата и матери, спасая Вито от кровной мести, друзья семьи сажают его на пароход и отправляют из Сицилии в США. По стечению обстоятельств и благодаря твёрдому характеру, Вито становится главой крупной преступной группировки выходцев из Италии в (   Читать дальше...   )Производство: США / Alfran Productions, Paramount Pictures, The Coppola Company, Zoetrope StudiosЖанр: боевик, триллер, драма, криминалРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Аль Пачино, Роберт Де Ниро, Роберт Дювалл, Дайан Китон, Талия Шайр, Джон Казале, Энди ГарсиаПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийЯзык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Forced, Full)Продолжительность: 02:56:44 | 03:22:15 | 02:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F1C67D1731EBA806FEA41DE49D3EE64AAF61EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285035   (1039674) от 13.01.2021
-
-Человек-Паук: Трилогия / Spider-Man: Trilogy (2002/2004/2007) [1080p] Blu-ray
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло пять лет с тех пор, как Питер осознал, что «с Великой силой приходит Великая ответственность!» и три года с тех пор, как он отказался быть борцом за справедливость. Но сейчас кажется, Питер прекрасно научился жить несколькими жизнями. Он хорошо учится, Нью-Йорк признал его героем, отношения с Мэри Джейн прочные. Питер даже намеревается сделать ей предложение! (   Читать дальше...   )Жанр: Фэнтези, Боевик, Триллер, ДрамаРежиссер: Сэм РэймиАктеры: Тоби Магвайр, Кирстен Данст, Джеймс Франко, Томас Хейден Черч, Тофер Грэйс, Брайс Даллас Ховард, Розмари Харрис, Дж.К. Симмонс, Джеймс Кромуэлл, Тереза Расселл, Дилан Бэйкер, Билл Нанн, Брюс Кэмпбелл, Элизабет Бэнкс, Тед Рэйми, Уиллем Дафо, Перла Хэйни-Джардин, Клифф Робертсон, Эля Баскин, Маджейна Това, Джон ПэкстонПеревод: ДублированныйСубтитры: Russian, English, Arabic, Bulgarian, Croatian, Czech, Danish, Dutch, Estonian, Finnish, Greek, Hebrew, Hindi, Hungarian, Icelandic, Lithuanian, Norwegian, Polish, Romanian, Slovenian, Swedish, Turkish.Продолжительность: 02:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556657BCF22E6B70EDDF63E007F8D62DF984604F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1456143   (1025277) от 21.03.2021
+
+Fantasia | Girl from Phantasia | Девушка из Фантазии [1993, OVA] LDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий день для Акихиро Оцуки: сегодня Миюки-тян, самая хорошенькая девушка в школе, придет к нему гости. Если он только сумеет произвести на нее впечатление, как знать, чем могут закончиться посиделки вдвоем?! Ах, мечты, мечты.
+
+А пока Акихиро-кун споткнулся о выброшенный кем-то ковер. Сначала разозлился, а потом оценил качество выделки и решил: если отчистить (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: комедия, романтика, фэнтези, эттиРежиссер: Камия ДзюнПеревод: TargonЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333811885A3A73245A7DE932007FA83FCE64214D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456245   (1025276) от 21.03.2021
 
 Exper Zenon | Экспер Зенон [1991, OVA] LDRip 480 raw
@@ -6,7 +34,7 @@ Exper Zenon | Экспер Зенон [1991, OVA] LDRip 480 raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025276.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Megami Paradise | Рай Богинь [1995, OVA, 2 из 2] LDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025272.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Mainichi ga Nichiyoubi | Каждый день воскресенье [1990, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025270.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Nozomi Witches | Bewitching Nozomi | Околдованный Нозоми [1992
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025264.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Uchuu no Senshi | Starship Troopers | Звёздный десант [1988, OVA, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025214.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ Jikuu Bouken Nuumamonjaa | Приключения сквозь время и р�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025096.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ Strike Witches: 501 Butai Hasshin Shimasu!! | Strike Witches: 501st Joint Fighte
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025093.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ Neko Neko Fantasia | Кошачья фантазия [1991, OVA] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025088.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ Shin Dousei Jidai: Hawaiian Breeze | Новая эпоха сожительст�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025083.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ Greed | Жадность [1985, OVA] LDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025081.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ Elf Seventeen | Эльф 17 [1987, OVA] VHSRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025071.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024859.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ I-Chu: Halfway Through the Idol | Айчу: На полпути к айдолу 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024519.jpg" />
 </div>
 
 
@@ -347,7 +375,7 @@ Hortensia Saga | Сага о гортензии [2021, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024496.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ LBX Girls | Soukou Musume Senki | Бронированные девушки [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024495.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ Di Gi Charat | Ди Джи Карат [ТВ-1] [1999, TV, 16 эп.] BDRip 576p r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024396.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ Call Me Tonight | Позвони мне вечером [1986, OVA] LDRip 480p 10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024367.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ Show by Rock!! Stars!! | Рок-шоу! Звёзды [2021, TV, 12] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024328.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024141.jpg" />
 </div>
 
 
@@ -503,7 +531,7 @@ Kai Byoui Ramune | Dr. Ramune Mysterious Disease Specialist | Доктор Ра�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024138.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024127.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ Ore dake Haireru Kakushi Dungeon / The Hidden Dungeon Only I Can Enter / Скр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024110.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023945.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ Beastars 2 | Выдающиеся звери [ТВ-2] [2021, TV, 12] HDTVRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023925.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ Yakusoku no Neverland (2021) | Обещанный Неверленд [ТВ-2] [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023911.jpg" />
 </div>
 
 
@@ -652,32 +680,6 @@ Yakusoku no Neverland (2021) | Обещанный Неверленд [ТВ-2] [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30669F181D2EEEFB1F8A337DEFD86C64EF50C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458482   (1023831) от 29.03.2021
-
-Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movie 1st | Лиричная волшебница Наноха (фильм первый) [2010, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если твой город, весь твой мир внезапно затянуло в орбиту амбиций, интриг и политических игр неведомых, но явно высших сил? Для 9-летней Нанохи Такамати из тихого городка Уминари ответ ясен: надо драться, а что дальше – бой покажет! Симпатичная рыжая девочка, выросшая в семье мастеров меча и кулинарии, вовсе не растерялась, когда на голову в прямом смысле (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключения, махо-сёдзёРежиссер: Кусакава КэйдзоПеревод: Hunk & ShinyaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 130 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A5D311C655839E6F3713797B8C2FBDE9FD20C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

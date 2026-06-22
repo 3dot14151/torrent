@@ -1,3 +1,91 @@
+###  Публикация: 1049796   (542024) от 06.09.2016
+
+Herbie Hancock - Future2Future (2002) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wisdom
+ 02. Kebero
+ 03. This is DJ Disk
+ 04. Dolphin Dance(   Читать дальше...   )Жанр: Музыка, Музыкальный, Acid JazzАктеры: Herbie HancockПродолжительность: 01:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACD2500D60502B3EAB0D405F8ECFCC8949B474D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049785   (542012) от 06.09.2016
+
+Джаз в Париже, ремиксы / Jazz in Paris remixed (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный андеграундный видеоряд с видами Парижа под не менее замечательную музыку.01. Miles Davis. Ascenseur Pour L’Echafaud (remixed by Nicolas Repac)
+ 02. Pierre Michelot. Elephant Green (remixed by Pierre Audetat)
+ 03. Raymond Fol. Les 4 Saisons (remixed by Yvinek)
+ 04. Chet Baker. Everything Happens To Me (remixed by VV (Gonsales & Renaud Letang)(   Читать дальше...   )Жанр: Музыка, МузыкальныйРежиссер: Antoine CarlierПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D77416F0EBB7A05EC0CE478D64FFB1AED3CE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154369   (540446) от 30.07.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 4) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Очередная - четвёртая часть серии видеомиксов популярных клипов легендарных 90-х. Продолжаем танцевать в стилях  Rock Ballads, Reggae, R&B и Eurodance! Вспоминаем и наслаждаемся приятной и танцевальной музыкой 90-х!
+- Разбивка по трекам отсутствует.N Sync – Tearin’ Up My Heart
+2Pac – Changes
+Puff Daddy - I'll Be Missing You
+House Of Pain – Jump Around(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED67907AC4752F652373699532F30CD06217C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818641   (539476) от 04.09.2014
 
 Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
@@ -6,7 +94,7 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539476.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539475.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539467.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536924.jpg" />
 </div>
 
 
@@ -119,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535896.jpg" />
 </div>
 
 
@@ -140,6 +228,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367044   (535178) от 24.07.2011
+
+The Eagles - Life In The Fast Lane (Live) (2005) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вырезка из автралийского концерта "The Farewell 1 Tour" на RodLaver Arena в Мельбурне в 2005г.Актеры: EaglesПеревод: ОтсутствуетПродолжительность: 5mn 50s
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08930F5C91FF15BBE90C908D73CA6CC68BD300EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 365183   (534476) от 24.07.2011
 
 Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Good Quality][Rock][LDRip][2xDVD9]
@@ -148,7 +262,7 @@ Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Go
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534476.jpg" />
 </div>
 
 
@@ -174,7 +288,7 @@ VA - Летний марафон № 181 / Видеоклипы (Коктейл�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533322.jpg" />
 </div>
 
 
@@ -203,7 +317,7 @@ NikitA - Avocado (2012) MasterRip [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533108.jpg" />
 </div>
 
 
@@ -231,7 +345,7 @@ Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532748.jpg" />
 </div>
 
 
@@ -257,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529450.jpg" />
 </div>
 
 
@@ -286,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529387.jpg" />
 </div>
 
 
@@ -307,6 +421,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367354   (529054) от 27.07.2011
+
+Сборник видео клипов (2011) DVDRip-AVC / HDRip-AVC
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видео клиповФормат: MKVПродолжительность: 03:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBAC632A24630AD1C8260DD4BA2111A4D76699D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 367842   (527353) от 29.07.2011
 
 Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
@@ -315,7 +455,7 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527353.jpg" />
 </div>
 
 
@@ -341,7 +481,7 @@ Dr.Alban-41 клип (1990-2008) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_525202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525202.jpg" />
 </div>
 
 
@@ -367,7 +507,7 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523972.jpg" />
 </div>
 
 
@@ -396,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520958.jpg" />
 </div>
 
 
@@ -425,7 +565,7 @@ Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520341.jpg" />
 </div>
 
 
@@ -451,7 +591,7 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519492.jpg" />
 </div>
 
 
@@ -480,7 +620,7 @@ VA - Летний марафон № 184 / (Марафон Русских Хит
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516146.jpg" />
 </div>
 
 
@@ -509,7 +649,7 @@ DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515569.jpg" />
 </div>
 
 
@@ -535,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515495.jpg" />
 </div>
 
 
@@ -572,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515080.jpg" />
 </div>
 
 
@@ -586,151 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A24F061781EA88EF9942812ADC46D479704AFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930893   (513869) от 24.08.2015
-
-VA - Летний марафон № 185 / (Новый Хитовый Сборник) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (23.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 5 Seconds Of Summer - She's Kinda Hot (Official Video) (00:04:05)
-2. Achtabahn - To The King (Official Video) (00:02:54)
-3. Amure - Horses (Official Video) (00:05:15)
-4. Black Fox ft. Dj Chris Parker - Live show (Official Video) (00:07:32)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, House, ProgressiveПродолжительность: 01:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF80D2CFECA00A81D7119D8775A6567A5C7B09A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536198   (513190) от 19.08.2012
-
-PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: K-pop, hip-hopПродолжительность: 00:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F84BC367DB23A475243259C72CAEBFD55A21A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375508   (512098) от 15.08.2011
-
-Элвис Пресли / Elvis Presley - Hollywood Elvis, Volume 1 (2007) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_512098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый диск из серии "Hollywood Elvis", посвященной актерскому этапу карьеры, одного из величайших музыкантов в истории современной музыки, Элвиса Пресли. Сборник, изданный студией "Star", содержит более 50 (!) клипов. Именно клипов, причем оригинальных и качественно сделанных, а не просто вырезанных из фильмов музыкальных моментов с участием Элвиса. В большинстве клипов звук взят не из самих фильмов, использовались треки с саундтреков к фильмам (оригинальные и FTD релизы), так что даже знакомые по фильмам моменты смотрятся с большим интересом. Данный выпуск посвящен следующим актерским работам Элвиса: "Love Me Tender", "Loving You", "Jailhouse Rock", "King Creole".Жанр: Музыка, Rock&RollПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C506805C30ED5786130013877CC4615D9858F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931188   (511631) от 26.08.2015
-
-The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная 40-ковка отличных групп!01. Creedence Clearwater Revival - I put a spell on you [04:38]
-02. Rammstein - Du Hast [04:10]
-03. Queen - Bohemian Rhapsody [05:39]
-04. Suzi Quatro - A Girl Like Me [04:21](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 04:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE655B38A5F70DA00FF8943C02DA623F0599C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376296   (511114) от 16.08.2011
-
-Мадонна / Madonna - The Video Collection 2000-2006 (2006) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Pie
-02. Music
-03. Don't Tell Me
-04. What It Feels Like For A Girl
-05. Paradise (Not For Me)
-06. Die Another Day
-07. American Life
-08. Hollywood
-09. Love Profusion
-10. Hung Up(   Читать дальше...   )Жанр: Сборник видеоклипов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA69A4CAAEB5B51E8564C4E33F845E3D13478FEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

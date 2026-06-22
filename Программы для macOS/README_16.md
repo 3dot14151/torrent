@@ -6,7 +6,7 @@ MWeb: Markdown writing, note taking, static blog generator 4.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003883.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SoundSource 5.3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003873.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wifiry: Wi-Fi Signal Strength 2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003864.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MHT Viewer 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003858.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Ghostnote 2 v2.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003599.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Typeface 2 v2.6.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003491.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Enolsoft PDF Converter with OCR 6.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002508.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Enolsoft PDF to Word with OCR 6.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002481.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Enolsoft PDF Creator 4.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002470.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cheetah3D 7 v7.4.2 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002465.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Divvy 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002436.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ ACD Systems Canvas Draw 6.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002427.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ BusyContacts 1.4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002260.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Wimoweh 1.1.68 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002257.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ vGuru - Video Player 1.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002178.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Adobe Zii 2020 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001907.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ MathWorks MATLAB R2019b 9.7.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001827.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Colorful Folders - Easy to use and design folder 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001676.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Data Recovery Essential Pro 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001649.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ ChronoSync 4.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001646.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Hot Door CADtools v.12.1.1 and Control Plug-ins v1.7 ONLY for Adobe Illustrator 
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001540.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Paintstorm Studio 2.43 (build 120120) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001249.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000908.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Omni Remover 3 v3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000903.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ EverWeb 3 v3.1.7 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000891.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000853.jpg" />
 </div>
 
 

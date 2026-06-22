@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161920.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161913.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - " Золотой фонд эстрады " - Многое в жизни б�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161906.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161896.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161874.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161870.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161859.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161855.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161848.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161844.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161842.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161829.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Робинзон (1997) [FLAC|Lossless|image +.cue]<Retro, Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161825.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161823.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161821.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161791.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - 20 Золотых мелодий (2000) [FLAC|Lossless]<Retro|Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161786.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161780.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161774.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161771.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161762.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161756.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161751.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161740.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161727.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - Ретро-Дуэты - Листья желтые над городом к�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161707.jpg" />
 </div>
 
 

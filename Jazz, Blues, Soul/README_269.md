@@ -1,32 +1,3 @@
-###  Публикация: 927537   (528767) от 13.08.2015
-
-Fattburger - Living In Paradise (1988) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friends [04:35]
-02. One More Time [05:28]
-03. The Banana Bread Song [05:00]
-04. Imagine That [04:35](   Читать дальше...   )Жанр: Jazz, Smooth, Jazz-PopПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E660950F47220616A655FF2FCE5F87B18EC8C482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927531   (528766) от 13.08.2015
 
 Carter Jefferson - The Rise Of Atlantis (1978) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Hard Bop, Post-Bop>
@@ -35,7 +6,7 @@ Carter Jefferson - The Rise Of Atlantis (1978) /2015, Solid Records/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528766.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Barney Wilen - More From Barney At The Club Saint-Germain (1959) /2014, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528765.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ John Coltrane - Living Space (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528760.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Sly & The Family Stones - Les Genies du Rock - Back On The Right Track (1994) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528759.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ The Moonshiners - Boot Legs (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528754.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Shirelles - Les Genies du Rock - Will You Love Me Tomorrow (1993) [MP3|320 �
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528701.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Sam & Dave, Solomon Burke - Les Genies du Rock - Hold On I'm Coming (1993) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528696.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ BBC Band - Big Band Classics (2015) [FLAC|tracks|WEB-DL]<Swing, Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528685.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Kenny Neal - Straight from the Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528658.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ V.A. - The Complete 'Blue Cover' Series (2017) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528410.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Marty Ehrlich's Traveler's Tales - Malinke's Dance (2000) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528290.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ The Don Pullen & George Adams Quartet - Breakthrough (1986) Blue Note[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528199.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Raphael Imbert & Co - Music Is My Home (2016) [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528198.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Coleman Hawkins / Frank Wess - Giants Of The Tenor Sax (1940, 1943, 1954) 1988, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528195.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Ron Lasalle - When Hellhounds Meet Angels (2012) [APE|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528193.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Mats Gustafsson / Barry Guy / Paul Lovens - Mouth Eating Trees And Related Activ
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528178.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Tom Harrell - Prana Dance (2009) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527786.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Free Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527722.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Maaike Nicola - A Portrait Of Maaike (1989) IPS[FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527380.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Najee - You, Me and Forever (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527375.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Eric Gales (Eric Gales, The Eric Gales Band, The Gales Bros. Eric Gales Trio, Pi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527272.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Buddy DeFranco (De Franco) - The Buddy DeFranco Wailers (1956, 1957) 2007, Defin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527230.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Konstantin Klashtorni - Chillaxonic: 1st Facet (2018) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527193.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Cedar Walton & Clifford Jordan - The Pentagon (1976) 2008, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527079.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Jim Hall - Giants Of Jazz (1956 - 1964) 1997, Promo Sound AG [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527078.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Jim Hall - Giants Of Jazz (1956 - 1964) 1997, Promo Sound AG [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E547DFA7E527F053615D58BC06E0E83DA8AB148B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156634   (527077) от 08.08.2017
+
+Miles Davis - Walkin' (1954) 1994, GBH Music [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin' [13:20]
+02. Blue 'n' Boogie [8:15]
+03. Solar [04:45]
+04. You Don't Know What Love Is [04:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC56A289DB43D501541E7A2FCEFE5BA3A33F8EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

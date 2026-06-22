@@ -1,3 +1,29 @@
+###  Публикация: 641803   (1055200) от 01.02.2026
+
+Little Witch Academia | Академия ведьмочек (фильм первый) [2013, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка Акко, побывав однажды на магическом представлении, с первого взгляда влюбилась в этот невероятный вид искусства. И ей даже удаётся поступить в лучшую в Европе школу магии «Luna Nova». Но обыденная учеба оказалась не такой уж и завораживающей, как она думала… И вот, когда разочарованная скучными и консервативными занятиями Акко уже перестаёт мечтать, ее школа (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: приключения, фэнтези, комедияРежиссер: Ёсинари ЁПеревод: SchumЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A331B7F96417E06E19A1C388D1892313DD9996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850585   (1054391) от 11.02.2026
 
 Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720р raw
@@ -6,7 +32,7 @@ Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054391.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Momotarou: Umi no Shinpei | Momotaro Sacred Sailors | Momotaro's Divine Sea Warr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054050.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054011.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Kumo to Tulip | Spider and Tulip | Паук и тюльпан [1943, Movie] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053853.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Eiga Kobayashi-san Chi no Maidragon: Samishigariya no Ryuu | Miss Kobayashi's Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053387.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Hell Mode: Yarikomi Suki no Gamer wa Hai Settei no Isekai de Musou Suru | Hell M
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052910.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Sousou no Frieren (2026) | Frieren: Beyond Journey's End (2026) | Фрирен [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052812.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Prism Rondo | Love Through a Prism | Любовь сквозь призму [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052549.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Undead Unluck: Winter Hen | Undead Unluck: Winter Arc | Нежить и Неуд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052533.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052497.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Odayaka Kizoku no Kyuuka no Susume. | A Gentle Noble's Vacation Recommendation |
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052495.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Hime-sama Goumon no Jikan Desu (2026) | Tis Time for Torture, Princess (2026) | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052161.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052160.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adore
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052106.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная ве
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052091.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052088.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052067.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ You and I Are Polar Opposites | Seihantai na Kimi to Boku | Ты и я полн�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052066.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052061.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Jingai Kyoushitsu no Ningengirai Kyoushi / A Misanthrope Teaches a Class for Dem
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051961.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ Yuusha no Kuzu / Scum of the Brave / Герой-мерзавец [2026, TV, 1 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051942.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ Kuro no Tsuki: Tsuki no Saidan | Dark Moon: The Blood Altar Animation | Тёмн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051938.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Dead Account | Мёртвый аккаунт [2026, TV, 1 из 12 эп.] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051937.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кая не боится [2026,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051850.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051788.jpg" />
 </div>
 
 
@@ -665,32 +691,6 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F450B6627B9CC7A04ED7DFB3BCD270E73A94D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847002   (1051753) от 23.01.2026
-
-Enen no Shouboutai San no Shou (2026) | Fire Force (2026) | Пламенная бригада пожарных [ТВ-3, часть 2] [2026, TV, 1 их 12 эп.] WEBRip 720р raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Токио объят пламенем. Всё дело в феномене самовозгорания, которым страдают жители. Справиться со взбунтовавшимся огнём по силам лишь членам Пламенных отрядов, в чьи ряды так спешит вступить Синра. В униформе Восьмого отряда, ловко манипулируя своими дьявольскими ступнями, наш герой не позволит городу обратиться в пепел! Вот только призраки прошлого и тайна, сокрытая (   Читать дальше...   )Производство: David ProductionЖанр: приключенияРежиссер: Minamikawa TatsumaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C368B9D4956288549783A3486709FA462DB34C6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

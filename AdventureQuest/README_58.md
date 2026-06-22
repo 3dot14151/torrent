@@ -1,3 +1,133 @@
+###  Публикация: 1568618   (210940) от 09.08.2022
+
+No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бо с Ао заканчивают университет и готовятся покинуть квартиру, в которой они жили вместе в течение года. Из-за визовых ограничений Ао вынужден вернуться в Японию, оставив Бо в Англии. Разочарованные постобразовательной жизнью и будучи под давлением правительства, которое не хочет, чтобы они там находились, оба пытаются смириться со своим неопределённым будущим. А (   Читать дальше...   )Тип издания: LicenseРазработчик: Humble Grove, Hana Lee, Cel Davison, Adrienne Lombardo, Eli RainsberryЖанр: Приключение, КвестЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29ED144C6A367545A67FBBCDEB1333884E95CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641165   (210838) от 21.06.2023
+
+MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairlight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верни волшебство обратно в Эквестрию! Тебя ждут приключения, полные веселья, стиля и настоящей дружбы с новым поколением персонажей MY LITTLE PONY. Земная пони Санни мечтает о том, чтобы мир стал лучше! Она решила отпраздновать фестиваль Дня бухты Мейртайм и вернуть позабытое торжество дружбы и волшебства, но кто-то хочет испортить праздник - крадет торты, выпускает (   Читать дальше...   )Тип издания: SceneРазработчик: Melbot StudiosЖанр: AdventureЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46C55F1E3AAE43EF546EB183D0F74ECDFA8737F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569557   (210487) от 14.08.2022
+
+My Destiny (2022) [Ru/Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210487.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Destiny - это одиночная игра о медвежонке, который следует своей загадочной судьбе, блуждая по холодному и в то же время прекрасному миру. Раскройте трогательную судьбу медвежонка, пройдя весь его путь до конца. Открывайте новые воспоминания, которые подарит вам Дух Севера о потерянном медвежонке в этом большом и суровом мире. Наслаждайтесь атмосферой холодной (   Читать дальше...   )Тип издания: LicenseРазработчик: Butengo entertainmentЖанр: Adventure, ActionЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CAF71EA800DB61CD8016C0AC8FA6D140018E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643209   (210195) от 30.06.2023
+
+Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспокойные духи угрожают безопасности жителям острова Тороми, поэтому Тай должен рискнуть и отправиться в опасные подземелья и пройти через разнообразные препятствия, чтобы успокоить духов. И все это на летних каникулах! Reverie – это приключенческая игра, действие которой разворачивается на вымышленном острове в Новой Зеландии, вдохновленном легендой Мауи о Гигантской (   Читать дальше...   )Тип издания: LicenseРазработчик: Rainbite LtdЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B90539EEF6F59DBF676D3AE195625141CFF639F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571424   (210068) от 21.08.2022
+
+A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210068.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Tale of Paper: Refolded — это платформер-головоломка, рассказывающий историю Линии (Line), волшебного персонажа из бумаги, который может менять свою форму с помощью оригами. Превращайтесь в лягушку, ракету, птицу и других персонажей, пока Лайн отправляется в эмоциональное путешествие, чтобы осуществить мечту своего создателя.Тип издания: RepackРазработчик: Open House GamesЖанр: Adventure, Platform, Puzzle, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F479521C464B17DB21258BDA21D8E3D3A004DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606428   (209314) от 22.01.2023
 
 The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
@@ -6,7 +136,7 @@ The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209314.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207645.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207448.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Notch - The Innocent LunA: Eclipsed SinnerS (2012) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206669.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206465.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206436.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Hidden Folks (2017) [Ru/Multi] (2.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206434.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205689.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205685.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205679.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.0 Build 9076338) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205416.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205205.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205116.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205009.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204382.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204094.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204048.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204000.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203797.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203267.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF377F4CC96C6A149B9A20CA2FB4733A6108737C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609295   (203228) от 02.02.2023
-
-The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земли Кирандии исчезают пядь за пядью, и вам, неординарной юной чародейке, предстоит проникнуть в центр мира, чтобы разрушить проклятье. Это сюрреалистическое приключение заставит пораскинуть мозгами самых проницательных. Путешествуя по огромному странному и прекрасному миру, вы будете варить зелья, творить заклинания и привлекать на помощь очень странных жителей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Приключeние, Квест, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610028   (203090) от 05.02.2023
-
-The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великое завершение трилогии «Дома Да Винчи» грядет! Вас ожидает множество новых загадок, захватывающая история и высокое качество исполнения, за которое все и полюбили эту серию игр. Время финала пришло: в последний раз станьте Джакомо, другом и учеником великого мастера наук и искусств Леонардо да Винчи. Исследуйте наполненный загадками мир эпохи Возрождения, находите (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Brain GamesЖанр: Adventure, Strategy, PuzzleЯзык озвучки: Английский, ЧешскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512E602A2B97915391CA0C820D7A1A58F3061422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613221   (202595) от 18.02.2023
-
-Loretta (2023) [Ru/Multi] (1.1.7) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loretta - визуальная новелла, в которой предстоит выступить в неожиданной перспективе, став соучастником преступления. Главной героиней выступает девушка по имени Лора. Вместе с ней потребуется пройти настоящий кошмар. Игра выполнена в жанре психологического триллера. Игровой процесс Loretta строится на основе выборов. Любое принятое решение влияет на дальнейшее (   Читать дальше...   )Тип издания: LicenseРазработчик: Yakov ButuzoffЖанр: Приключение, Point & ClickЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0DB93218C2FEA282E3A83FAE7F8BDE5F4BDE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613706   (202582) от 19.02.2023
-
-Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hike Isle предлагает игрокам отправиться в путешествие по таинственному острову. По сюжету туда главный герой приплыл на лодке. Протагонист довольно быстро перемещается. Он может пользоваться лестницами и заходить в некоторые постройки. Также присутствует возможность осматриваться. Большая карта вмещает в себя десятки локаций и большое количество разных сооружений.Тип издания: SceneРазработчик: Morning Shift StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EDE0FD4E677979426E5C636753BD637CB76FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830051   (202442) от 26.10.2025
-
-Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Labyrinthine - кооперативная хоррор игра, которая научит Вас не останавливаться внутри лабиринта. Вы и три ваших друга могут почувствовать совместный опыт в истории от Джона, работника лабиринта, а также почувствовать мистическую составляющую этого места. Здесь все зависит от Вашего выбора, и помните, Вы не одни! Игровой процесс в Labyrinthine нацелен на совместное (   Читать дальше...   )Тип издания: RepackРазработчик: Valko Game StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC684EECD2CF30F242858785E3E5BE92290B0CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

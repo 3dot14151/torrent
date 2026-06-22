@@ -1,3 +1,187 @@
+###  Публикация: 1868095   (1067393) от 
+
+X AAC Encoder 1.1 Portable [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067393.jpg" />
+</div>
+
+
+###  Подробнее
+
+X AAC Encoder преобразует любой аудио- или видеофайл в формат AAC или M4A с пакетной обработкой, полным добавлением метаданных и поддержкой обложек. Работает на основе FAAC, заключен в чистый современный интерфейс. Без рекламы, шпионского ПО и предустановленных программ. Работает на базе FAAC и FFmpeg. Файлы WAV считываются программой FAAC без изменений. Все остальные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED0E3FD1E2D2DE89F6A5879849E378BC5A79FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867217   (1066786) от 24.04.2026
+
+X AAC Encoder 1.0 Portable [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066786.jpg" />
+</div>
+
+
+###  Подробнее
+
+X AAC Encoder преобразует любой аудио- или видеофайл в формат AAC или M4A с пакетной обработкой, полным добавлением метаданных и поддержкой обложек. Работает на основе FAAC, заключен в чистый современный интерфейс. Без рекламы, шпионского ПО и предустановленных программ. Работает на базе FAAC и FFmpeg. Файлы WAV считываются программой FAAC без изменений. Все остальные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E8D0F3BDE3CA2645170CE9F88CE1BE9494053A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867070   (1066620) от 
+
+Steinberg Nuendo Pro 15.0.21 Build 252 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Nuendo — это самое передовое решение для обработки звука, которое доступно профессионалам киноиндустрии, телевидения, игр и иммерсивного звука во всем мире. С момента своего первого выпуска Nuendo был жизненно важным инструментом в создании саундтрека ко многим громким постановкам, продуктам и инсталляциям. Регулярные обновления с новыми функциями, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEC6B758FB189E1292B8AEE7C3E3E13F9CD84D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867099   (1066598) от 
+
+Serato DJ Pro Suite 4.0.7 [Multi]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serato DJ Pro — самое популярное в мире программное обеспечение для диджеев. Serato, известное своей надёжностью, обеспечивает невероятные выступления.Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8CC189F28B8D74786E9FCE33145039E9B0B182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866738   (1066284) от 22.04.2026
+
+X Sample Rate Converter 1.0 Portable [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа позволяет изменять частоту дискретизации WAV-файлов до любого стандартного значения — 44,1 кГц, 48 кГц, 96 кГц и других. Для быстрой и точной передискретизации используется FFmpeg на сервере.
+
+В настольной версии используется движок soxr (SoX resampler) — профессиональный ресемплер, сравнимый с r8brain. Он обеспечивает гораздо более высокое качество, чем (   Читать дальше...   )Язык интерфейса: Английски
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BCA68EE2340A7575876E535D61D3FAC87FB68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866328   (1066203) от 19.04.2026
+
+n-Track Studio Suite 10.3.0.10767 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066203.jpg" />
+</div>
+
+
+###  Подробнее
+
+n-Track Studio — кроссплатформенный аудиоредактор с возможностью многодорожечной записи звука (цифровая звуковая рабочая станция), разработанный итальянской компанией n-Track Software. Программа поддерживает неограниченное число аудио- и MIDI-дорожек и позволяет использовать различные виртуальные инструменты (VST, VST3, AU и др.). Имеет нативную версию компьютеров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5FEA3F40C7303558B8454C22AA87DBEF5EB138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866384   (1066184) от 19.04.2026
+
+Steinberg Cubase Pro 15.0.21 Build 252 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального производства (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D8D107728368B40BF10BC06A1672107D33662D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866583   (1066053) от 20.04.2026
 
 Ocenaudio 3.18 + Portable [Multi/Ru]
@@ -6,7 +190,7 @@ Ocenaudio 3.18 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066053.jpg" />
 </div>
 
 
@@ -32,7 +216,7 @@ n-Track Studio Suite 10.3.0.10756 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065450.jpg" />
 </div>
 
 
@@ -58,7 +242,7 @@ Monkey's Audio 12.67 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065439.jpg" />
 </div>
 
 
@@ -84,7 +268,7 @@ n-Track Studio Suite 10.3.0.10743 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065396.jpg" />
 </div>
 
 
@@ -110,7 +294,7 @@ Mp3tag 3.34 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064940.jpg" />
 </div>
 
 
@@ -136,7 +320,7 @@ FL Studio Producer Edition 25.2.5.5319 All Plugins Edition & FLEX Pack Portable 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064229.jpg" />
 </div>
 
 
@@ -162,7 +346,7 @@ Ashampoo Music Studio 12.0.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064226.jpg" />
 </div>
 
 
@@ -189,7 +373,7 @@ mp3DirectCut 2.40 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064153.jpg" />
 </div>
 
 
@@ -215,7 +399,7 @@ mp3DirectCut 2.40 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064089.jpg" />
 </div>
 
 
@@ -241,7 +425,7 @@ XRecode 3 1.180 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064061.jpg" />
 </div>
 
 
@@ -267,7 +451,7 @@ Cockos REAPER 7.67 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064060.jpg" />
 </div>
 
 
@@ -293,7 +477,7 @@ Steinberg Cubase Pro 15.0.20 Build 226 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063642.jpg" />
 </div>
 
 
@@ -319,7 +503,7 @@ Steinberg Nuendo Pro 15.0.20 Build 220 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063636.jpg" />
 </div>
 
 
@@ -345,7 +529,7 @@ mp3DirectCut 2.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063229.jpg" />
 </div>
 
 
@@ -371,7 +555,7 @@ MediaHuman Audio Converter 2.3.5 (3103) RePack (& Portable) by elchupacabra [Mul
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063225.jpg" />
 </div>
 
 
@@ -399,7 +583,7 @@ Wave Editor 5.0.0.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063213.jpg" />
 </div>
 
 
@@ -427,7 +611,7 @@ Monkey's Audio 12.63 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063173.jpg" />
 </div>
 
 
@@ -453,7 +637,7 @@ Helium Music Manager Premium 18.0.714.0 RePack (& Portable) by elchupacabra [Mul
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063112.jpg" />
 </div>
 
 
@@ -479,7 +663,7 @@ EZ CD Audio Converter 12.4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062931.jpg" />
 </div>
 
 
@@ -490,190 +674,6 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D311823FE9A63F5885B3545932790E28F28DD109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861420   (1062492) от 25.03.2026
-
-Helium Music Manager Premium 18.0.706.0 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Helium Music Manager - многофункциональный музыкальный каталогизатор, дающий возможность систематизировать Вашу музыкальную коллекцию. Представляет из себя одновременно редактор тегов и имён файлов по тегам, музыкальную базу-каталог и создатель плейлистов по ней. Так же, есть возможность создания отчётов по коллекции и быстрый поиск по базе. Немаловажными плюсами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D8C91DAF3E536DB3A5A82617371C86C427D5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860966   (1062255) от 23.03.2026
-
-MediaHuman Audio Converter 2.3 (0312) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062255.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman Audio Converter - бесплатный аудио конвертер, позволяющий конвертировать музыку в большинство популярных форматов. Поддерживает следующие форматы: WMA, MP3, AAC, AC-3, WAV, FLAC, OGG, AIFF и Apple Loseless.
-
-Не содержит ничего лишнего и имеет простой интуитивно понятный пользовательский интерфейс. Использует последние версии кодеков, что гарантирует высокое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943B435310F9A12F3244B6E3B9F39C53D4525A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861108   (1062143) от 24.03.2026
-
-Cockos REAPER 7.66 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6CBBFF40EC8052195BE64C662C51DF9094DDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860030   (1061566) от 19.03.2026
-
-Serato DJ Pro Suite 4.0.4 [Multi]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serato DJ Pro — самое популярное в мире программное обеспечение для диджеев. Serato, известное своей надёжностью, обеспечивает невероятные выступления.Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0743AD85BC2C77F3D0BA46F55431C2C566974E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859197   (1060848) от 14.03.2026
-
-FL Studio Producer Edition 25.2.5.5319 All Plugins Edition + Addons + FLEX Pack (x64) RePack by KpoJIuK [Multi]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060848.jpg" />
-</div>
-
-
-###  Подробнее
-
-FL Studio Producer Edition - это одна из лучших программ(DAW) для создания собственной музыки, с её помощью вы можете создавать собственные треки любого стиля. Программа имеет все необходимые функции для работы со звуком : запись, сведение, мастеринг, а также имеет больее ста виртуальных синтезаторов и эффектов.Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B83567F6B558178B2DA463DE3400830387DEA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858353   (1060274) от 10.03.2026
-
-XRecode 3 1.179 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060274.jpg" />
-</div>
-
-
-###  Подробнее
-
-XRecode3 — популярный и мощный аудио конвертер, обладающий удобным «drag and drop»-интерфейсом и поддерживающий большинство распространенных форматов, который позволяет быстро и без особого труда преобразовывать аудио-данные. Поддерживается извлечение аудио дорожки из видео файлов и граббинг многоканальных Audio CD. Возможность создания одного большого аудио файла (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3724992A43AE2F1D773F3D18C1B3F97C582C750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857714   (1059888) от 07.03.2026
-
-Ocenaudio 3.17.3 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9EED051757C9F616F6C0E442DCCF71079E7801
 ```
 
 https://mybot314.ru/tekegram_catalog/

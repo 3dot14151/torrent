@@ -1,32 +1,3 @@
-###  Публикация: 1563425   (504574) от 14.07.2022
-
-Dinah Shore - 36 All-Time Greatest Hits (1940-e - 1960-e) 3CD, 1999, BMG [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504574.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. He Wears a Pair of Silver Wings [3:17]
-02. Miss You [2:34]
-03. One Dozen Roses [2:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743F6AB8C265D208B9EFE8F0EFD43A2B83EBA256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563249   (504571) от 14.07.2022
 
 VA - Electric Blues Bands (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -35,7 +6,7 @@ VA - Electric Blues Bands (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504571.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ VA - The Electric Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504567.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ VA - Bloody Mary Blues (Blues music selectuon) (2022) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504563.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ VA - 100 Hits - Northern Soul (2009) Box Set 5xCD [FLAC|Lossless]<Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504493.jpg" />
 </div>
 
 
@@ -142,7 +113,7 @@ Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Зв�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504235.jpg" />
 </div>
 
 
@@ -171,7 +142,7 @@ Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503768.jpg" />
 </div>
 
 
@@ -200,7 +171,7 @@ Dominique Magloire - Travelin' Light With Billie (2015) [FLAC|tracks|WEB-DL]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503762.jpg" />
 </div>
 
 
@@ -229,7 +200,7 @@ Ethel Ennis - If Women Ruled The World (1998) /Savoy Jazz/[FLAC|tracks+.cue]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503759.jpg" />
 </div>
 
 
@@ -258,7 +229,7 @@ Anat Cohen - Luminosa (2015) /Anzic Records/[FLAC|tracks+.cue]<Contemporary Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503758.jpg" />
 </div>
 
 
@@ -287,7 +258,7 @@ Bireli Lagrene - 15 (1982) Antilles [FLAC|Lossless|tracks + .cue] <Swing, Gypsy,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503726.jpg" />
 </div>
 
 
@@ -316,7 +287,7 @@ Tina Schlieske - Evil Gal Blues (2008) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503682.jpg" />
 </div>
 
 
@@ -337,6 +308,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377125   (503536) от 24.08.2011
+
+Miles Davis - The Real... The Ultimate Miles Davis Collection [3CD] (2011) [FLAC|Lossless]<Jazz, Cool Jazz, Bebop, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_503536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love For Sale (11:46)
+02. The Duke (3:35)
+03. My Ship (4:29)
+04. Dear Old Stockholm (7:51)
+05. Tadd's Delight (4:28)
+06. The Theme (2:46)
+07. Ah-Leu-Cha (5:51)
+08. Buzzard Song (4:09)
+09. Bess, You Is My Woman Now (5:11)
+10. Straight, No Chaser (10:37)2011Жанр: Jazz, Cool Jazz, Bebop, FusionПродолжительность: 03:26:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563831   (503517) от 15.07.2022
 
 Paul Brown - Promised Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -345,7 +351,7 @@ Paul Brown - Promised Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503517.jpg" />
 </div>
 
 
@@ -366,6 +372,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379071   (503411) от 24.08.2011
+
+Paul Hardcastle - Jazz Collection (2011) [FLAC|Lossless]<Jazz-Pop, Smooth Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_503411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz-Pop, Smooth Jazz, New Age
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316980   (503371) от 29.07.2019
 
 Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossless|image + .cue] <Jazz Fusion>
@@ -374,7 +406,7 @@ Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503371.jpg" />
 </div>
 
 
@@ -403,7 +435,7 @@ The Cinematic Orchestra - Presents In Motion #1 (2012) [FLAC (tracks+cue)|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503317.jpg" />
 </div>
 
 
@@ -435,7 +467,7 @@ Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502635.jpg" />
 </div>
 
 
@@ -464,7 +496,7 @@ Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502622.jpg" />
 </div>
 
 
@@ -493,7 +525,7 @@ Lee Konitz - Chicago'N All That Jazz (1975) 1989, Lester Recording [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502614.jpg" />
 </div>
 
 
@@ -522,7 +554,7 @@ Jessi Teich - Twisted Soul (2015) [FLAC|Lossless]<Vocal Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502534.jpg" />
 </div>
 
 
@@ -551,7 +583,7 @@ Claudia Morris - Secret Love (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502533.jpg" />
 </div>
 
 
@@ -580,7 +612,7 @@ Pink Turtle - Pop in Swing (2008) [APE|image+.cue]<Jazz Mainstream, Tribute, Par
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502411.jpg" />
 </div>
 
 
@@ -609,7 +641,7 @@ Pink Turtle - A la mode (2012) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502409.jpg" />
 </div>
 
 
@@ -638,7 +670,7 @@ BBB - Tell Me (2008) [MP3|320 Kbps] <Blues Rock, Blues, Female Vocal>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502388.jpg" />
 </div>
 
 
@@ -667,7 +699,7 @@ VA - Sexy Erotica Jazz (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502245.jpg" />
 </div>
 
 
@@ -696,7 +728,7 @@ Eliza Toth - Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501676.jpg" />
 </div>
 
 
@@ -710,35 +742,6 @@ Eliza Toth - Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7438E458BA2CF7F6E8A893C5C84FFA7C8A52AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563951   (501663) от 17.07.2022
-
-Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box Set, 6 CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501663.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Collaborator:
-01. Yes - I've Seen All Good People (6:55)
-02. Yes - Heart of the Sunrise (10:41)
-03. Yes - And You & I (10:09)(   Читать дальше...   )Жанр: Jazz, RockПродолжительность: 06:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D75854817C54656B1CA02950B0B14250AA8B0D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1648018   (208346) от 21.07.2023
+
+ProPresenter 7.13.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208346.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
+Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
+Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2023Разработчик: ©️ 2023 Renewed Vision, LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский  и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DC92850713E847BA8E94DB741B26E66A77D868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609453   (208298) от 03.02.2023
+
+ZBrush 2023.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixologic ZBrush - программа для трёхмерного моделирования, созданная компанией Pixologic. Созданный с уникальным неповторимым интерфейсом, ZBrush предлагает наиболее продвинутые технологии для художников. ZBrush создает множество возможностей творить и вдохновляет творческий процесс. Возможность создавать с помощью скульптинга модели с миллионами полигонов в ZBrush (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2022 Pixologic Inc.Поддерживаемая ОС: macOS 10.14 or newerЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075642769B67C7899CA2F4A2C68F90C631B88FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648421   (208148) от 23.07.2023
 
 Elmedia Video Player Pro 8.16 [Multi/Ru]
@@ -6,7 +60,7 @@ Elmedia Video Player Pro 8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208148.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ macOS 12 Monterey 12.6.8 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207885.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ macOS 12 Monterey 12.6 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207862.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Navicat Premium 16.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207813.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Davinci Resolve Studio 18.0.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207745.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Wondershare Repairit 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207714.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ DoYourData Start Menu Pro 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207696.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ JetBrains Clion 2023.1.5 for Mac Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207657.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ Omni Recover 3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207516.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ AudFree Spotify Music Converter for Mac 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207500.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Aiseesoft Mac Screen Recorder 2.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207428.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Serial Box & SerialSeeker 2023 - 08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207424.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ Native Instruments Kontakt 7 v.7.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207343.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Ableton Live Suite 11 v.11.3.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207312.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ TechTool Pro 18 v.18.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207264.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ JetBrains PyCharm Professional for Mac 2023.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207215.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ App Cleaner & Uninstaller Pro 8.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207207.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ JetBrains Rider for Mac 2023.1.4 Intel/Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207099.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ SteerMouse 5.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207069.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ Capture One 23 Pro 16.2.3.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206893.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ Capture One 23 Enterprise 16.2.3.32 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206796.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ Allavsoft Video Downloader Converter 3.25.8.8606 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206662.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ VueScan Pro 9.8.14 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206660.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ DxO PhotoLab 5 ELITE Edition 5.13.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206563.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ DxO PhotoLab 5 ELITE Edition 5.13.1 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7E5CC9CB1AD5EFA3B3656DBB646C48E76ED576A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652527   (206509) от 11.08.2023
-
-Topaz Photo AI for Mac Intel/ARM 1.3.11 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 22.06.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B0B8333E449229EBCB13F7039BBD51731CA3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652568   (206507) от 12.08.2023
-
-DxO PhotoLab 6 ELITE Edition 6.8.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.01.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C4EBEF289EAD60E3C20FFA44472630F0D25556
 ```
 
 https://mybot314.ru/tekegram_catalog/

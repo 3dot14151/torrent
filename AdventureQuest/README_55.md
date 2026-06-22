@@ -1,3 +1,133 @@
+###  Публикация: 1638878   (247674) от 10.06.2023
+
+Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beautiful Desolation - это двухмерная изометрическая приключенческая игра, действие которой происходит в отдалённом будущем. Исследуйте постапокалиптические пейзажи, решайте головоломки, заводите новых друзей и могущественных врагов, выполняйте функции посредника в конфликтах и сражайтесь за свою жизнь, чтобы разгадать тайны мира вокруг Вас.Тип издания: LicenseРазработчик: The BrotherhoodЖанр: Adventure, RPG, Sci-FiЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B7B784AA1AE296A3A2AC5F43F11080A4A7CFCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638810   (247671) от 10.06.2023
+
+A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247671.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Plague Tale: Innocence – это невероятный средневековый мир, благодаря поразительным декорациям и таланту опытных разработчиков оживающий под незабываемую музыку, что пробирает до глубины души. Осмелитесь ли вы открыть ужасающую страницу истории и отправиться в приключение, где нет места невинности? Отправляйтесь в путешествие вместе с Амицией и ее младшим братом (   Читать дальше...   )Тип издания: RepackРазработчик: Asobo StudioЖанр: Adventure, Action, Stealth, 3rd PersonЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794F5F6A64B006F1C174D9189B7F945C17DC8891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515056   (247662) от 10.06.2023
+
+The Captain (2021) [Multi] (1.1.4) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы Капитан Томас Уэлму, ученый в Spacefleet, затерянный на другом конце галактики. Темные силы на пути к Земле чтобы её уничтожить и только у вас есть способ их остановить. Мчитесь назад домой по всей галактике. Заведите новых друзей в своём путешествии, а также новых врагов. Всех спасти не получится, кого вы оставите позади? Какие цивилизации вы спасете, а какие (   Читать дальше...   )Тип издания: LicenseРазработчик: Sysiac GamesЖанр: Приключение, Симулятор, ФантаcтикаЯзык субтитров: Английский, Немецкий, Испанский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736CD9AA9AB64FA599DAD9EBF3FEB33FDE89D30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588750   (247447) от 21.06.2023
+
+The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247447.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Entropy Centre - умопомрачительное приключение в мире загадок, где вам предстоит перемещать предметы во времени, чтобы обойти невероятные препятствия и решить сложные загадки. Управляйте ходом времени, проходя через набитые головоломками комнаты к сердцу космической станции на орбите Земли.Тип издания: LicenseРазработчик: Stubby GamesЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6686F0F6219BEA7E8B1A29762DF3A33F8A63F3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540069   (247405) от 23.06.2023
+
+Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы лишь попытаемся ввести вас в огромный фантастический мир, равных которому нет и не было. От горизонта до горизонта простирается древняя империя Д’ни, которая населена тайнами и загадками. Вам, одинокому путешественнику, никто и ничто не будет указывать, что делать. Просто живите, ежесекундно совершая новые открытия, обращаясь к древним манускриптам и изучая новую (   Читать дальше...   )Тип издания: UnofficialРазработчик: Cyan WorldsЖанр: Adventure, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640531   (247373) от 25.06.2023
 
 Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
@@ -6,7 +136,7 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247373.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247371.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247288.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247273.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247061.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246990.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246786.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246740.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246723.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246321.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246247.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246192.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245498.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245153.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244766.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244694.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244676.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244581.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244443.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244343.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243332.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5928CB3481F5FF0DF750DE4E70B42DD38B453155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573728   (237664) от 02.09.2022
-
-Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mists of Aiden — это сюжетный хоррор от первого лица, который позволит тебе выбрать собственный кошмар. Вы играете за молодого вора, для семьи которого наступили тяжёлые времена. Напарник убедил вас взять последний заказ и выкрасть из отдалённой усадьбы редкую драгоценность. Пробраться внутрь было не просто, но ещё сложнее будет выбраться. Потому что дом не отпустит. (   Читать дальше...   )Тип издания: RepackРазработчик: Steppe Hare StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6135A93756DA8CE8547F041C5BEE886FDEE2A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574233   (237353) от 04.09.2022
-
-South of the Circle (2022) [Ru/Multi] (23) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237353.jpg" />
-</div>
-
-
-###  Подробнее
-
-South of the Circle - эмоциональная игра с глубоким многослойным кинематографическим сюжетом. Она ставит вопросы о последствиях жизненного выбора, о столкновении карьеры и любви, о попытках лавировать между настоящим и прошлым. Вы будете играть за Питера, ученого из Кембриджа, который терпит крушение в Антарктиде во времена Холодной войны. Пока он ищет помощи, его (   Читать дальше...   )Тип издания: LicenseРазработчик: State of Play GamesЖанр: Приключение, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550042   (236481) от 09.05.2022
-
-Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dracula: Origin раскрывает темные начала проклятия Дракулы. Однажды ярый сторонник Христианства, Дракула, теряет свою веру в Бога, когда после свадьбы его покидает единственная настоящая любовь. Дракула заключает договор с Принцем Тьмы и становится вампиром. Со временем, Дракула узнает о существовании манускрипта, который, как утверждают, описывает ритуал, который (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C2D3575A5B97CB3986101AE9848CD26446C76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544249   (236275) от 10.05.2022
-
-Ecstatica: A State of Mind (1997) [En] (1.0) License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в северной Европе в 928 году. Путешественник, главный герой игры, заезжает в вымышленный городок Тирих (Tirich), чтобы пополнить запасы питья. Он обнаруживает, что город захвачен демонами. Пообщавшись с местными жителями, герой узнаёт, что демонов вызвала молодая девушка по имени Экстатика (в игре её имя не упоминается - оно есть только в (   Читать дальше...   )Тип издания: LicenseРазработчик: Andrew Spencer StudiosЖанр: Adventure, Survival Horror, 3D, 3rd PersonЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547397   (235338) от 14.05.2022
-
-Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235338.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Сингапуре полночь. Контакт не пришёл на встречу, клиент ждёт новостей, а пустой банковский счёт висит над головой, будто неоновый Дамоклов меч. Добро пожаловать в 2037 год. Добро пожаловать в игру Chinatown Detective Agency. Мир нестабилен, глобальная экономика близится к низшей точке десятилетнего коллапса, Сингапур остался последним оплотом порядка, но даже местное (   Читать дальше...   )Тип издания: LicenseРазработчик: General Interactive Co.Жанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0AE279CECDE138F261C1B99BA310D49D5BC348
 ```
 
 https://mybot314.ru/tekegram_catalog/

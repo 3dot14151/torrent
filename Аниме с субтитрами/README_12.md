@@ -1,3 +1,29 @@
+###  Публикация: 1458482   (1023831) от 29.03.2021
+
+Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movie 1st | Лиричная волшебница Наноха (фильм первый) [2010, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если твой город, весь твой мир внезапно затянуло в орбиту амбиций, интриг и политических игр неведомых, но явно высших сил? Для 9-летней Нанохи Такамати из тихого городка Уминари ответ ясен: надо драться, а что дальше – бой покажет! Симпатичная рыжая девочка, выросшая в семье мастеров меча и кулинарии, вовсе не растерялась, когда на голову в прямом смысле (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключения, махо-сёдзёРежиссер: Кусакава КэйдзоПеревод: Hunk & ShinyaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 130 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A5D311C655839E6F3713797B8C2FBDE9FD20C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458483   (1023821) от 29.03.2021
 
 Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебница Наноха (фильм второй) [2012, Movie] BDRip 1080p raw
@@ -6,7 +32,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023821.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Mahou Shoujo Lyrical Nanoha A's | Magical Girl Lyrical Nanoha A's | Лиричн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023810.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mahou Shoujo Lyrical Nanoha StrikerS | Magical Girl Lyrical Nanoha StrikerS | Л
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023809.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mahou Shoujo Lyrical Nanoha | Magical Girl Lyrical Nanoha | Лиричная в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023792.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка на час [ТВ-1] [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023746.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Wave!! Surfing Yappe!! | На волне! Сёрфинг! [2020, TV, 12] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023594.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Toji no Miko + Mini Toji | Katana Maidens | Жрицы-мечницы + Мини
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023593.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023579.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023567.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023455.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023383.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023353.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Tenchi Souzou Design Bu | Heaven's Design Team | Небесное бюро ди�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023210.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Kemono Jihen | Инцидент с монстром [2021, TV, 12] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023208.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Osomatsu-san (2020) | Mr. Osomatsu 3rd Season | Осомацу-сан [ТВ-3] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023207.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Aya to Majo | Earwig and the Witch | Ая и ведьма [2020, Special, 1 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022923.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022840.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022742.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Majutsushi Orphen Hagure Tabi: Kimluck Hen | Sorcerous Stabber Orphen: Battle of
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022692.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Log Horizon 3 / Лог горизонта [ТВ-3] [2021, TV, 12] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022513.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ SK∞ | SK8 the Infinity | На скейте в бесконечность [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022352.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Super Seishun Brothers | Супербратья Сэйсюн [2013, TV, 14] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022244.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Gekidol: Actidol Project | Театрайдол [2021, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022232.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Horimiya | Хоримия [2021, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022153.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022144.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4358F7D8A87B13D9432706BC1354F7A3C49AC72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460826   (1022143) от 07.04.2021
-
-Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк (фильм третий) [1995, Movie] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот короткометражный фильм является дополнением к сериалу. Тренер Анзай, после первого поражения в отборочных играх национального чемпионата Японии, для восстановления духа команды Сехоку, принимает предложение от только что сформированной команды Рекуфу о тренировочном матче.Производство: Toei Animation / 東映アニメーションЖанр: комедия, спортРежиссер: Какудо ХироюкиПеревод: tetsuЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C235251F5BFE1C8FFD83D3EE5DED4703E1C654
 ```
 
 https://mybot314.ru/tekegram_catalog/

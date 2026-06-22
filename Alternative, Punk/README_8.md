@@ -1,3 +1,32 @@
+###  Публикация: 1388683   (786591) от 07.06.2020
+
+Martin Grech - Hush Mortal Core (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maelstrom Spark (05:53)
+ 02. Auras Awol (07:24)
+ 03. Hush Mortal Core (03:39)
+ 04. Mothflower (06:10)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8524588A2D87A2F1BFC89D88AFBD26E1AC7393D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123643   (786359) от 08.04.2017
 
 Sylvaine - Wistful (2016) Limited Edition [MP3|320 Kbps] <shoegaze, post-rock, darkwave>
@@ -6,7 +35,7 @@ Sylvaine - Wistful (2016) Limited Edition [MP3|320 Kbps] <shoegaze, post-rock, d
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786359.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sylvaine - Silent chamber, noisy heart (2014) [MP3|320 Kbps] <shoegaze, post-roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786355.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Deez Nuts - Binge & Purgatory (2017) [MP3|320 Kbps] <Hardcore, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786161.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Junius - Eternal Rituals For The Accretion Of Light (2017) [MP3|320 Kbps] <post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785774.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Add1ction - Leave It All Behind (2020) [MP3|320 Kbps] <Alt.Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785157.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ MGMT - Little Dark Age (2018) [MP3|320 Kbps] <Alternative, Indie, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784887.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Palaye Royale - The Bastards (2020) [MP3|320 Kbps] <Alt.Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784779.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Franz Ferdinand - Always Ascending (2018) [MP3|320 Kbps] <Indie Rock, Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784053.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Other - Haunted (2020) [MP3|320 Kbps] <Punk Rock, Horror Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783408.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sim - Thank God, There are Hundreds of Ways to Kill Enemies (2020) [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781822.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Cro-Mags - In The Beginning (2020) [MP3|320 Kbps] <Hardcore Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781449.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Lisbon Kid - Lisbon Kid (2016) [MP3|320 кб/с] <Alternative, Acoustic, Electro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778369.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Brazzaville - Dream-Sea (2018) [MP3|320 Kbps] <Indie Rock, Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778161.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Three Days Grace - Outsider (2018) [MP3|320 Kbps] <Post-Grunge, Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777083.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Senses Fail - If There Is Light, It Will Find You (2018) [MP3|320 Kbps] <Post-Ha
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776898.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ For The Fallen Dreams - Six (2018) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776867.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Rolo Tomassi - Time Will Die And Love Will Bury It (2018) [MP3|320 Kbps] <Mathco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776858.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Ploho - Куда птицы улетают умирать (2018) [MP3|320 Kbps] 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776469.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Radiohead - A Moon Shaped Pool (2016) [MP3|320 кб/с] <Alternative, Indie Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775947.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Celldweller - Transmissions Vol. 03 (2016) [MP3|320 кб/с] <Industrial, Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775686.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Coriky - Coriky (2020) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773262.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773194.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Fvnerals - The Light (2014) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772102.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Fvnerals - Wounds (2016) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772093.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ King Woman - Doubt (2015) [MP3|320 Kbps] <shoegaze, sludge, dream-pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772092.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ King Woman - Doubt (2015) [MP3|320 Kbps] <shoegaze, sludge, dream-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B32CE58AA4F99B49E53B420626A5041FE9082BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016456   (770519) от 14.05.2016
-
-Viot - Astana (2016) [MP3|320 кб/с] <Alternative, Indie Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом восходящей звезды Франции!01. Rouge
-02. Devenir un Indien
-03. Honey
-04. Renaissance(   Читать дальше...   )Жанр: Alternative, Indie Rock, ElectronicПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC58917A53F1DAF2DA778DBDF534601F0E6E5409
 ```
 
 https://mybot314.ru/tekegram_catalog/

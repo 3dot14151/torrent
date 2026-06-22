@@ -1,3 +1,61 @@
+###  Публикация: 1457782   (1024240) от 27.03.2021
+
+Pet Shop Boys - Behaviour (1990) [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Being Boring
+02. This Must Be The Place I Waited Years To Leave
+03. To Face The Truth
+04. How Can You Expect To Be Taken Seriously ?(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C377F7874A62F1BC3F476A4952D7DEA82BED44C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458622   (1023683) от 30.03.2021
+
+Alien Skin - Cold War Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold War Pop [00:03:12]
+02. My Machine [00:03:14]
+03. Someone With Your Name [00:03:34]
+04. I Say I Do But [00:03:24](   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371D3168050FB03E705920D32D93F6C40BE12B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461171   (1021963) от 09.04.2021
 
 Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -6,7 +64,7 @@ Siamese Youth - Echoes of Tomorrow (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021963.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021950.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Pure Synthpop, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021936.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ New Arcades - Returning Home (The Instrumentals) (2020) [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021921.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021628.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Первому Покорителю Космоса (To The First Conqueror 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021187.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Nickolay Fedorenko - Dance Planet (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020678.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Synthwave Dreams, Vol. 13 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020657.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Front Line Assembly - Mechanical Soul (2021) [FLAC|Lossless|image + .cue] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020656.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Synthwave Dreams, Vol. 14 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020653.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Electric Dark Souls - Planet 0712 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019992.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Electric Dark Souls - Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Re
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019966.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Kiez Beats: Synthwave, Vol. 8 (2021) Anniversary Edition [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018600.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Yello - Yello 40 Years (2021) 4CD, RM. Ltd. [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018370.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018094.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Synthwave Dreams, Vol. 16 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014362.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Marvel83' - Atlantis (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011479.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Nutronixx - Planet Of Love (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009472.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009180.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Retro Active 1-7 (Rare & Remixed) (2004-2010) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007120.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Space Odyssey – Trip Six: New Year's Voyage 2020 (2020) 2CD, Compilation,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004395.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ W O L F C L U B (Wolfclub) - Just Drive - Part 2 (2021) [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003857.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002988.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002479.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158F72B9A6F14FD040E76959C9CBAA0C6B517873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353372   (991871) от 18.01.2020
-
-Chromatics - Closer to Grey (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie Pop, Dreampop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound Of Silence (03:16)
-02. You're No Good (04:52)
-03. Closer To Grey (02:45)
-04. Twist The Knife (03:28)(   Читать дальше...   )Жанр: Synthpop, Indie Pop, DreampopПродолжительность: 02:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E6EFD74C2F4928B2F495D9DBA4B6FC3E682CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354082   (989054) от 21.01.2020
-
-Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Return Of Space Raiders (Original Version) 6:48
-2 The Return Of Space Raiders (Staffan Öhman Remix) 6:54
-3 The Return Of Space Raiders (mindXpander Remix) 8:08
-4 The Return Of Space Raiders (Marco Rochowski Remix) 7:09(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD137E8949C4CACFDAFD5DB94DF784F5A55C695
 ```
 
 https://mybot314.ru/tekegram_catalog/

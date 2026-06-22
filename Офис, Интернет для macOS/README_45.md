@@ -1,3 +1,55 @@
+###  Публикация: 1669880   (172521) от 18.10.2023
+
+BatchOutput DOC for Mac 2.6.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172521.jpg" />
+</div>
+
+
+###  Подробнее
+
+BatchOutput DOC автоматизирует создание и печать PDF-файлов из Microsoft Word. Просто добавьте файлы Word в список BatchOutput DOC, настройте параметры, и BatchOutput DOC сделает все остальное за вас автоматически.Тип издания: macOS SoftwareРелиз состоялся: 24.09.2023Разработчик: © 2012-2020 Zevrix SolutionsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30E962186C0544A3853A25813BB4B4B4CCFEB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669832   (172496) от 18.10.2023
+
+Texifier 1.9.23 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Texifier — это редактор LaTeX, предназначенный для простой навигации, редактирования и верстки проектов любого размера. Откройте корневой файл LaTeX, и Texifier просканирует его, откроет все файлы, на которые есть ссылки, извлечет структуру документа для отображения в представлении схемы и настроит наборщик в соответствии с пакетами и инструментами, используемыми (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2023Разработчик: © 2011-2023 Valletta Ventures (UK) Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0594D0ADDC8113309FFC99E14ACA9719FE783CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669851   (172492) от 18.10.2023
 
 Storyist 4 v.4.3.3 [Multi]
@@ -6,7 +58,7 @@ Storyist 4 v.4.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172492.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ SnippetsLab 2.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172146.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Canary Mail 4.25 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172045.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ DBeaver Ultimate Edition 23 for Mac v.23.2 Intel/ARM [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171841.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ MacFamilyTree 10.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171702.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Master of Typing 3 - Practice 15.13.24 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171580.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ NCH Doxillion Plus 7.22 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171441.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Apple Remote Desktop 3.9.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171354.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171328.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Deliver 2.7.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171272.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ ConceptDraw PROJECT 14 v.14.0.0.302 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171237.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ ConceptDraw DIAGRAM 17 v.17.0.0.468 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171204.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ ConceptDraw MINDMAP 15 v.15.0.0.296 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171198.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ ConceptDraw Office for Mac 10.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171175.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Balsamiq Mockups For Desktop 4.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171033.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Twitterrific 5 v5.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170666.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Murasaki 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170491.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ ABBYY Lingvo European Dictionary 1.12.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169847.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Exhibeo 2 v2.0.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169640.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ SmallCubed MailSuite 2019.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169065.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ BatchOutput PPT 2.2.23 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168485.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ FontBook 5.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168457.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Chronicle Pro 14.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168340.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ CodeRunner 4 v.4.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168275.jpg" />
 </div>
 
 
@@ -627,59 +679,6 @@ CodeRunner - отличный редактор для программиста �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C05FBE3DB836EE8C681F44ABD44573F1C009047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516018   (168001) от 09.12.2021
-
-MiniNote Pro 5.91 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168001.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы, которые можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже если заметок очень много.
-В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEDEADD2E1FAFA137A3A7E23871BFF5657A2979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431468   (167958) от 13.12.2020
-
-Home Inventory 3.8.5 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Home Inventory помогает людям во всем мире документировать и управлять своим домом и имуществом с 2005 года. Можно записать: инвентарный номер, дату покупки, производителя, стоимость и много другой полезной информации. Если у вас несколько домов, то для каждого можно создать отдельный список имущества и не бояться забыть где именно храниться та или иная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Formations, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6FD2F88D3D7FE81D5863CB6F58D0940CE2552C
 ```
 
 https://mybot314.ru/tekegram_catalog/

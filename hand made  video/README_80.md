@@ -1,3 +1,29 @@
+###  Публикация: 1655481   (204334) от 26.08.2023
+
+Переход / Le Passage / The Passage (1986) DVDRip [H.265/1080p] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан Диаз, художник-мультипликатор создает сценарий к полнометражному мультфильму, призывающему людей остановить поток насилия на Земле. Но на сцене появляется Смерть. Она заставляет завершить фильм уже у себя в подземелье, угрожая в противном случае убить его сына Филипа, с матерью которого он в разводе. Жан узнает, что вовсе лишенная воображения Смерть осуществляет (   Читать дальше...   )Производство: Франция, Adel ProductionsЖанр: Драма, Мистика, ФэнтезиРежиссер: Рене МанзорАктеры: Ален Делон Кристин Буассон, Жан-Люк Моро, Ален Лаланн, Альберто Ломео, Сальваторе Никозия, Жан-Пьерр Левассер, Мари Маркос, Сильви Монье, Кристиан БрендельПеревод: Многоголосый профессиональный, Авторский одноголосый (CP Digital, т/к Питербург ТВ5, Михаил Заугаров, Неизвестный)Язык озвучки: Русский, ФранцузскийСубтитры: отсутствуютПродолжительность: 01:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE369D2D24E6FA73A431C20B20E30EF2943EC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565708   (204261) от 09.01.2023
 
 007: Координаты «Скайфолл» / Skyfall (2012) HybridRip [H.264/1080p-LQ] [Open Matte] [handmade remastered AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204261.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204181.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204176.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204156.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204121.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204065.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204060.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204040.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203958.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203929.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203781.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203767.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203753.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203712.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203696.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203664.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203374.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203351.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203225.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203133.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202950.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202902.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202884.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202609.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202602.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0877ABFFB2E6C8104AFB4860657AF5F3CC6D692A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606418   (202601) от 18.02.2023
-
-Приключения Алибабы и сорока разбойников / Alibaba Aur 40 Chor (1980) DVDRip [H.265/1080p] [Индийская версия] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202601.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древнем восточном городе Гупьабаде жил веселый и хитроумный дровосек Али-Баба с матерью и братом Касымом. Однажды Али-Баба получил письмо от отца, который ушел с караваном и пропал, и отправился за ним в Индию. Там он спас принцессу Марджину, дочь раджи, и вместе с ней вернулся в Гульабад, а его отец погиб во время нападения разбойников. Дома Али-Баба узнал о том, (   Читать дальше...   )Производство: СССР, Индия, Узбекфильм, Eagle FilmsЖанр: приключения, мелодрама, семейныйРежиссер: Латиф Файзиев, Умеш МехраАктеры: Дхармендра, Хема Малини, Зинат Аман, Прем Чопра, Фрунзик Мкртчян, Закир Мухамеджанов, Софико Чиаурели, Мадан Пури, Якуб Ахмедов, Ролан БыковПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, Хинди (Индийский)Субтитры: отсутствуютПродолжительность: 02:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FFE996180E7CDB8D45CC638C81D73809585A37
 ```
 
 https://mybot314.ru/tekegram_catalog/

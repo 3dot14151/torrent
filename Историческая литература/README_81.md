@@ -1,3 +1,107 @@
+###  Публикация: 1261449   (303482) от 11.11.2018
+
+В. Я. Лаверычев, А. М. Соловьев | Боевой почин российского пролетариата (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303482.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге показано одно из первых массовых выступлений пролетариата в России — Морозовская стачка 1885 г., значение которой исключительно высоко оценил В. И. Ленин. Подготовленная передовыми рабочими-революционерами по главе с П. А. Моисеенко, стачкa оказала большое влияние на рост классового самосознания российского пролетариата, на развитие всего рабочего движения (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19959531F404318919667E2114E9D7B11122C7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261448   (303435) от 11.11.2018
+
+А. Пиренн | Нидерландская революция (1937) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа Пиренна по Истории нидерландской революции входит в тт. III и IV его многотомной истории Бельгии. В работе содержится большой фактический материал по политической истории, истории религиозной борьбы и по культурной истории Бельгии в XVI—XVII вв.Жанр: История, политология, экономика, публицистика, культурология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142B4583F1208E2DE522012D9172236311D6FF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960988   (303395) от 30.11.2015
+
+В. И. Кузищин (ред.) | История Древнего Востока (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник включает пять разделов: Древний Египет, Передняя Азия; Иран и Средняя Азия; Южная Азия; страны Восточной и Юго-Восточной Азии. В нем излагается история Древней Кореи, Японии, Парфии, Карфагена и др. Материал охватывает период до падения рабовладельческой формации и начала средневековья. Во 2-е издание (1-е— 1979 г.) внесены уточнения и добавления в свете (   Читать дальше...   )Жанр: История, культурология, искусство, политология, экономика, география, археология, этнографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529C0CB33D1254568D4704F48B9DEFF508CEAD6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961017   (303383) от 30.11.2015
+
+И. В. Созин (отв. ред.) | История южных и западных славян (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303383.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещаются вопросы социально-экономического, политического и культурного развития зарубежных славянских народов от древнейших времен до современности. Особое внимание уделяется истории зарубежных славянских народов после второй мировой войны. Подробно освещаются революционные преобразования 1944—1948 гг. и развертывание социалистического строительства, его (   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF746813C6B9633F53A31B79124E71969ECD4AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261398   (303255) от 11.11.2018
 
 Сергей Реутов | Легенды бандитской Одессы (2018) [FB2]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303255.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303153.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302720.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302637.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301497.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301421.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301409.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301405.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301335.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301025.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300602.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299081.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298909.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298904.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298801.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298800.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297017.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296963.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294182.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294009.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293674.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293640.jpg" />
 </div>
 
 
@@ -572,113 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA63C543830A353A023CD5F2D722CC6FE5209BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185371   (293637) от 21.11.2017
-
-И. С. Кондурушкин | Хозяйственно-экономические судебные процессы периода НЭПа. Обвинительные речи (1930) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попытка захвата экономических позиций с самых первых лет, очень непростого процесса установления советской власти, была вполне ожидаема как лично Лениным, так и ядром государственников в компартии, вообще. Поэтому, та контратака, посредством ряда мероприятий по линии ГПУ и НКЮ предпринятая в 1922-м, может характеризоваться как тактика перехода от обороны к наступлению (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82089EEB1B9184CF42A7680AAFED84FFA251EBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185173   (293599) от 21.11.2017
-
-Лацис [Судрабс] | Чрезвычайные комиссии по борьбе с контр-революцией (1921) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-Настоящая брошюра была написана почти два года тому назад, когда у нас Чрезв. Комис. находились еще в процессе строения и когда большинство членов нашей партии имело самое смутное понятие о В. Ч. К., а часть из них вела даже борьбу против нее. К тому же на местах не было еще определенного руководства при постановке работы Чрезв. Комис. Все это побудило (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD696B2FF94E5F1F95552D1DAB94E06BDBEDED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962665   (293539) от 05.12.2015
-
-Денис Ахапкин | Иосиф Бродский после России. Комментарии к стихам И. Бродского (1972-1995) (2009) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир Иосифа Бродского — мир обширный, таинственный и нелегко постижимый. Книга Дениса Ахапкина, одного из ведущих исследователей творчества Нобелевского лауреата, призвана помочь заинтересованному читателю проникнуть в глубины поэзии Бродского периода эмиграции, расшифровать реминисценции и намеки.
-Книга «Иосиф Бродский после России» может стать путеводителем по многим (   Читать дальше...   )Жанр: Литературоведение, Поэтические произведенияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C45E12BFE51838C3007034785F138D59D8D963E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961783   (293536) от 05.12.2015
-
-Леонид Юзефович | «Как в посольских обычаях ведется...» (1988) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293536.jpg" />
-</div>
-
-
-###  Подробнее
-
-В живой публицистической форме рассказывается о становлении и первых шагах дипломатической службы России в XV —XVII вв. Автор рассказывает о существовавшем тогда порядке направления русских послов за рубеж, о правилах поведения иностранных представителей при дворах европейских и азиатских монархов, о порядке ведения переговоров, оформлении дипломатических документов, (   Читать дальше...   )Жанр: Внешняя политика, Международные отношенияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A46F21C68A48AABD3231409B602AF38B2ACB4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
